@@ -6,7 +6,7 @@ Pet Shop Boys - Nonetheless (2024) [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58550.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sirup Ibiza 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58650.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58660.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58750.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Acylum - Zuchthaus (2024) Bonus Version [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58755.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jamie B and Nova Scotia - Because Of You (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58764.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Deep-House Heaven, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58765.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58766.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Spring Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58772.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Nova Scotia - Power Of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58773.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Hardstyle XXL Megamix 2024 [MP3|320 Kbps] <Hardstyle>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58866.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Korolova - Live @ Tulum Jungle, Mexico (2024-04-04) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58977.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Koan - Dell'arte (Side A-B) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59381.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Broken Videos - Memories of Tomorrow (2024) [MP3|320 Kbps] <Synthwave, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59395.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Trance 2024 Legends (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59602.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Lounge Delicious, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59610.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Armin van Buuren - A State of Trance (Celebration Weekend) (unmixed tracks)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59918.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - A State Of Trance Radio Top 50 - 2024, Vol. 1 (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59921.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59946.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Dance Covers 2024 - The Best Party Hits Only! [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60128.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Pet Shop Boys - Dancing star (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60857.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 23 (2024) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61395.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Erotic Lofi-Fi & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61824.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Corvin's Breed - 2 Albums (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61920.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Exx Underground Miami 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61923.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Scooter - Open Your Mind And Your Trousers (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62115.jpg" />
 </div>
 
 

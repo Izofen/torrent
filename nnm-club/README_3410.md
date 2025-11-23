@@ -1,3 +1,81 @@
+###  Публикация: 1728562   (108342) от 07.06.2024
+
+DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Police (3:53)
+02. Inside This Zoo (5:23)
+03. Be That Man (5:18)
+04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728416   (108343) от 07.06.2024
+
+Екатерина Гопенко | Весьма вероятные приключения Морского Конька и его невозможной команды (2024) [MP3, Екатерина Гопенко]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно в четыре часа я выползала на палубу, дабы лежать и страдать, пока мои товарищи вели корабль. Чтобы скрасить их ночи, я вначале рассказывала морские сказки – кельтские, скандинавские, испанские и французские. А когда известные сказки закончились, начала сочинять на ходу, вплетая нашу общую реальность в воображаемый мир. История продолжалась. Герои писались с (   Читать дальше...   )Жанр: Приключенческая художественная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 02:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD9F533BB4348936F299DE860D47EBE91CADF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728229   (108344) от 07.06.2024
+
+Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Crows Keep Your Grave Clean (4:16)
+02. Nobody Is Free (6:06)
+03. Streets Of My Life (5:26)
+04. Old Boxer (5:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BC1C8010376A76610F2742E9241C4732A11AA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728449   (108345) от 07.06.2024
 
 VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
@@ -6,7 +84,7 @@ VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108345.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Ca
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108346.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Louis King - Little Devil! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108347.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:DE3748178F1E28B0B124352A8539AA9B768FBD3D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108348.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ magnet:?xt=urn:btih:6B31004EC3293E70A2BF18BB02C8EBCA3A67B923
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108349.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108350.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Levee Town - Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108351.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108352.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ OneCommander Pro 3.81.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108353.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ VA - drama (2024) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108354.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Acode - code editor | FOSS 1.10.3 (959) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108355.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ magnet:?xt=urn:btih:2816513B04F8AC5B433720103D01776B21C6DAE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108356.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ VA - Anjunadeep 15 (Mixed By Jody Wisternoff & James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108357.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108358.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ magnet:?xt=urn:btih:CD511D9B90D1E8C50DB674970DD04C301E215D18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108359.jpg" />
 </div>
 
 
@@ -392,7 +470,7 @@ VA - Ibiza Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108360.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:A7A582EAB2109CF15F1BF6C60F19C47C1DB93AF9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108361.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ Speedtest от Ookla 5.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108362.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ Blizzen - World In Chains (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108363.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ Duality - Elektron (2016) [FLAC|Lossless|image + .cue] <Death Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108364.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ Echo of Silence - Misplaced Reality (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108365.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ magnet:?xt=urn:btih:3601CC20E1B6003B76E212AE2C476B31850EB036
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108366.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ magnet:?xt=urn:btih:C3B1EBD921D6F191BC75299A1AFE2E1B9C314D9B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108367.jpg" />
 </div>
 
 
@@ -586,84 +664,6 @@ magnet:?xt=urn:btih:C3B1EBD921D6F191BC75299A1AFE2E1B9C314D9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91D42B18309EF0DE5743A46C6D8ACF1A6ADD634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727937   (108368) от 05.06.2024
-
-My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скиталец (Intro) [00:01:34]
-02. Пока все птицы спят [00:05:11]
-03. Дальше жить нельзя [00:06:08]
-04. The Oddball [00:03:48](   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1971CAB0C7523CA4B7568B4FCA88E27F65E277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728064   (108369) от 05.06.2024
-
-Эдуард Качан | Время «безгрешных» (2021) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грешат все, и верующие, и неверующие. Однако разница все же есть. Верующие люди знают об этом и стараются бороться с собой и своими злыми привычками. Неверующие же искренне уверены, что грехов у них нет. Этим людям и посвящена книга, которую вы держите в руках. Что такое грех? Почему грешить плохо? Можно ли быть счастливым, делая зло? Все ли равно, как верить? Есть (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EED179BDB055B6A2B0A5DF28964B2D34DFC0BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727982   (108370) от 05.06.2024
-
-Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (06:42)
- 02. Barren Land (03:49)
- 03. Knee Deep In The Dead (05:59)
- 04. Dead Creature (04:09)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BCE07C3FDAF3EB9325095DD59F2BC8B3DC5283
 ```
 
 

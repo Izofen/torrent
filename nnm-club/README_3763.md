@@ -1,3 +1,75 @@
+###  Публикация: 1699692   (117520) от 15.02.2024
+
+Manjaro 23.1.3 Vulcan (xfce, KDE Plasma, Gnome) (Official images Manjaro Team) [x64] 12xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Manjaro - это дружественный пользователю дистрибутив Linux, основанный на независимо разработанной операционной системе Arch. В сообществе Linux, Arch известен как исключительно быстрый, мощный и легкий дистрибутив, предоставляющий доступ к самому последнему передовому и "революционному" программному обеспечению. Однако Arch также ориентирован на более (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798240B6BADA1A99647F51F921704A12973F9B16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632289   (117521) от 15.02.2024
+
+Борис Мосафир | Шибари (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шибари или сибари (с ударением на последнюю «и») — японское искусство связывания при помощи верёвок, которое сегодня известно, в основном, как садомазохистская практика. Техника бондажа восходит к техникам боевого связывания ходзё-дзюцу, возникшим в Японии в XV—XVI веках, однако в качестве эстетико-эротической практики шибари сформировалось только к середине XX века, (   Читать дальше...   )Жанр: сексология, пикап, искусство обольщенияЯзык озвучки: русскийПродолжительность: 11:40:05Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822739   (117522) от 10.10.2025
+
+Цвет настроения синий — история BSOD и палитра экранов смерти
+
+>>Компьютеры и комплектующие
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_117522.jpg" />
+</div>
+
+
+###  Подробнее
+
+BSOD, или «Синий Экран Смерти» — cколько несохраненных документов, неотправленных сообщений и почти пройденных игровых боссов кануло в небытие по его милости?Современный облик BSOD (кстати, с лета 2025 года — без грустного смайлика и QR-кода) — лишь последняя итерация долгой эволюции. Почему он синий, в какой версии Windows появился, бывают ли экраны смерти другого (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823165   (117523) от 12.10.2025
 
 Облако-рай (1990) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117523.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4B097AA8011BBCCE6D13A8DDBF7523D115A7A4B7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_117524.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_117524.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:4B097AA8011BBCCE6D13A8DDBF7523D115A7A4B7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117525.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:DF6EB5E75F2BF7C7C54AD48ABE9111B92A9710EB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117526.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117527.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:D9DF81E2384DFCF4E8727422E4700CD6F22A7AF8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117528.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:28DC7CA0861D26C2F9C07BF0BA53181A9D21CEE7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117529.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:0C594B70AC6CD339C4FD232D08A04AF1158B8A58
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117530.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117531.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:DE68F120385875E629F7F680052BDD0EA15C1B6A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117532.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117533.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ The Elder Scrolls 3: Morrowind + Tribunal + Bloodmoon [Ru] (L) 2002-2003
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117534.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Little Nightmares III (2025) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117535.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:1F44D5F66C34AA390A0F34A46E35E984C8B84055
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117536.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117537.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117538.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117539.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117540.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:DF20A164D9ADFC9897EA1B538B41D5DFF7DE9FCC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117541.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:04DA34F230A182C3AD3A1951990AA0054DC1D8CF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117542.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:FCE514D18EAB222208D7C4FC0AE2782D32115F78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117543.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:D8A130E3D30AB0C4FD0AE6B4AAF8076D5E49A9C8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117544.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117545.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F89D0C8854DCCEFBC0A690A774A76518517C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823175   (117546) от 10.10.2025
-
-Фоны - Creative Fabrica - Fall Autumn Digital Backdrops Bundle PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117546.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 осенних фонов для ваших творческих задач.Формат: PNGРазрешение файлов: 4096x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F9B371E6664347093B871978A240834991C3A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699790   (117547) от 14.02.2024
-
-Гюстав Флобер | Три повести (2013) [MP3, Юлия Тарасова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Три повести (Trois Contes, 1877) – авторский сборник французского классика Гюстава Флобера (1821–1880), включает в себя необычные и яркие сюжеты повествований.Жанр: Зарубежная литература, классика, повестьИздательство: МедиаКнигаПродолжительность: 04:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823174   (117548) от 10.10.2025
-
-Шрифты - Envato - Recubs Press - Display Letterpress Font - 92HK2YT [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый символ Recubs Press основан на прочной геометрической структуре с квадратными окончаниями и равномерной шириной штрихов, что обеспечивает читаемость при любом размере. Стиль Regular сочетает в себе приятную среднюю насыщенность с лёгким состариванием, передавая очарование ручной печати без ущерба для чёткости. Стиль Block усиливает зернистость и плотность, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8630226E27367374DC09E0F5F0F9271663F3AFD
 ```
 
 

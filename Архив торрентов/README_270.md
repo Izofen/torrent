@@ -6,7 +6,7 @@ FX Player Pro 3.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60124.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60127.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Icecream PDF Editor Pro 3.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60129.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft .NET 8.0.4 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60130.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Duolingo: изучай языки 5.145.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60133.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B424EF0357C82500410E1ED952DF833F257EABFF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60140.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:301D2AF126C7A3503499155773ACB0F97980A377
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60141.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ IconTo Pro 7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60144.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Total Commander 11.03 (03.04.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60154.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Midori Browser 11.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60156.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5E11FF62DCE20B3FE09F51D4416B716648DF29D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60168.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A796B4E1DF7386986801D6B762EA8BA1311ED42F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60170.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AIDA64 Extreme Edition 7.20.6820 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60190.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4291]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60191.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A393B45373558A610CB4B74C152207AAE23A649B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60194.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BlueStacks App Player 5.21.120.1025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60215.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (10.04.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60218.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinTools.net 24.3.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60219.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ IObit Smart Defrag Pro 9.4.0.342 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60220.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ WinTools.net Premium 24.3.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60221.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.0 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60225.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ USB Device Tree Viewer 4.2.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60226.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ O&O Defrag Professional 28.0 Build 10007 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60230.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ GPU-Z 2.58.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60231.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ K-Lite Codec Pack Update 18.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60238.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Fitify: Фитнес тренировки дома 1.69.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60240.jpg" />
 </div>
 
 

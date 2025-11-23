@@ -1,3 +1,75 @@
+###  Публикация: 867042   (120588) от 28.01.2024
+
+Coursera, МФТИ | Электричество и магнетизм - часть 1 (2014) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций от Московского Физико-Технического Института (МФТИ) по элетричеству и магнетизму (1 часть). Также в составе раздачи имеются семинары и демонстрации физических опытов.Жанр: ФизикаПродолжительность: 19:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC0BC8998FDFC76DEB7137D706D453511BC0DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445704   (120589) от 28.01.2024
+
+Звонок из прошлого / Kol / The Call (2020) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120589.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Yong FilmЖанр: триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ён, Чо Гён-сук, Мун Чхан-гиль и д.р.Перевод: Двуголосый закадровый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, немецкие, французские, испанские, португальские, итальянские (внутри контента)Продолжительность: 01:52:00Реклама: Нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5409B7B0723A6B747791BB3C41234656D0C2E7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695273   (120590) от 28.01.2024
+
+Догмен / Dogman (2023) BDRip [H.264] [Полная версия]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попавшегося полиции странного мужчину в инвалидной коляске, у которого фургоне обнаружили стаю разнопородных собак, а в месте его проживания — несколько трупов, допрашивает психиатр-криминалист. Тот охотно рассказывает о своём трудном детстве: как жестокий отец посадил его в клетку к псам, из-за чего у мальчика развилась с животными невероятная эмоциональная связь (   Читать дальше...   )Производство: Франция / Luc Besson ProductionЖанр: БоевикРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Джоджо Т. Гиббс, Кристофер Денэм, Клеменс Шик, Джон Чарльз Агилар, Грэйс Пальма, Ирис Бри, Мариза Беренсон, Lincoln Powell, Alexander SettineriПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5B0ABB1DF042F4B06DADFAD63E25F0FC6F979C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694817   (120591) от 28.01.2024
 
 Кроме «Слова пацана»: 5 российских сериалов, основанных на реальных событиях
@@ -6,7 +78,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120591.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120592.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120594.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Slower - Slower (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal, Heavy P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120595.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Maze Of Sothoth - Extirpated Light (2023) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120596.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ Sentencia - Tronos de Maldad (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120597.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120598.jpg" />
 </div>
 
 
@@ -216,7 +288,7 @@ Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120599.jpg" />
 </div>
 
 
@@ -243,7 +315,7 @@ Fast Aggressive - Волюнтаризм (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120600.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Vintage Culture - Live @ VNTG Is A Festival,Sao Paulo Brazil (2023-12-09) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120601.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120602.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:43469B7DFAF5017B02081F9277D2F63F4760B73B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120603.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120604.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120605.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ iA Writer 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120606.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120607.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120608.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120609.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120610.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120611.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120612.jpg" />
 </div>
 
 
@@ -583,7 +655,7 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120613.jpg" />
 </div>
 
 
@@ -597,84 +669,6 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694916   (120614) от 27.01.2024
-
-Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Start (0:32)
-02. UR R´N`R (2:56)
-03. Move (3:54)
-04. Remedy (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695011   (120615) от 27.01.2024
-
-Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblivion Part 1: The Chant Of Tyrants
-02. Black Veils Of Justice
-03. Between Suns Of Light
-04. Binary Souls(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694866   (120616) от 27.01.2024
-
-4K YouTube to MP3 Pro for Mac 5.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120616.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C23B12C57E6E8AF4624D03EEB20C0A2EDC37CFB
 ```
 
 

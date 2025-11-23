@@ -1,3 +1,75 @@
+###  Публикация: 591587   (135529) от 22.12.2012
+
+LAMA - 2 альбома, 3 сингла (2011-2012) [MP3|320 кб/с]<J-Pop, Electro>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135529.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Pop, ElectroПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111B0DB70FB896EA94B1612C6DC89AE944DF0DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592845   (135530) от 22.12.2012
+
+Владислав Конюшевский | Главный день [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похождения Сергея Корнева в параллельном мире продолжаются. Но теперь он, взяв в руки оружие, борется с людоедским режимом не в одиночку, а вступив в ряды российского Сопротивления. Как будет складываться эта борьба и сумеют ли люди победить, невзирая на сопротивление всего «цивилизованного сообщества»? А самое главное – что их ждет после победы?Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC99BA7CDA591D7259621B0CAB68D64814B3E40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592106   (135536) от 22.12.2012
+
+Египтянин / The Egyptian (1954) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет, XIV век до нашей эры. Страной правит фараон Аменхотеп IV, решивший изменить религию многобожия на поклонение единому божеству Атону. Культ Атона не был принят ни священнослужителями, ни жителями Египта и вызвал огромное негодование. В это же время Синух, молодой египтянин, выбирает профессию врача, и волею судьбы назначается лекарем самого фараона. Он становится невольным участником дворцовых интриг, заговоров и предательств... Решение экранизировать роман Мики Валтари, написанный с множеством научных деталей, наверняка потребовало определенной смелости, так как материал не давал возможностей для длинных, зрелищных прогонов. Книга рассказывает странную и необычную историю на фоне экзотического и в то же время резко реалистичного Египта 33 столетия тому назад. Жил тогда фараон, который верил в одного Бога, и врач, которому блеснул свет великой истины, и он пытался жить в соответствии с этим. На декорации и костюмы были выделены большие деньги — 4,2 млн долларов, и древней Египет ожил, оправдывая вложения. (   Читать дальше...   )Жанр: Драма, историяРежиссер: Майкл КертисВ ролях: Джин Симмонс, Виктор Мэтьюр, Джин Тирни, Майкл Уайлдинг, Белла Дарви, Питер Устинов, Эдмунд Пурдом, Джудит Эвелин, Генри Дэниелл, Джон Кэрредин, Карл Бентон Рейд, Томми Реттиг, Ричард Аллан, Майкл Ансара, Дон Блэкман, Джордж Честер, Анджела Кларк, Эдмунд Кобб, Генри Корден, Карл «Убийца» Дэвис, Мими Гибсон, Лео Гордон, Майкл Грэйнджер, Егиш Арут, Йен МакДональдПеревод: Многоголосый закадровый, Двухоголосый закадровыйПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76E973EB511A7FD2E1DC18406668BBA91DE6EA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592990   (135543) от 22.12.2012
 
 Мадана-Гопал дас (Максим Мейстер) | Санскрит для Вайшнава. Самоучитель [2002] [PDF]
@@ -6,7 +78,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135543.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:F2FB33A53BA4A261C0FD5BEBC193F9511A1C0BF1
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135544.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:F022739F9413245330C594C4BDE829B63E9991FA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135546.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:6D7BDE4309B8208E827645CCD716C4D2242FFF88
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135548.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135550.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135550.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135552.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135552.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135553.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:1CCDA273716CE01568DDC38408041147A0278F96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135554.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:C61772592C48C9283FA655D35BAF71B76F07BF39
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135557.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:935AAC043028C3EFD8CE89D8E6C4B97B9C4E3F7E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135558.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Berlitz | Японский разговорник и словарь [2009] [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135559.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:B2E2CAFAC36EB9E85EE198B9A3C27C29CA902E0C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135560.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ iStat Menus 4.03 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135561.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ iStat menus является одним из наиболее популярны
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135564.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ Pixelmator 2.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135567.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Pixelmator представляет собой мощный инструмент
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135568.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ magnet:?xt=urn:btih:CC5FD94B625DEB5797CFAB5ED97506387EBFD9BD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135569.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variati
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135570.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ Piano Sonata No. 21 in B flat major, D. 960:
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135571.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:22BF7FCD1B541DDBBBF726CF4C6609AF810A5224
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135578.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135579.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:33F5D12589C12C7418C9D50120AD91FA6C23D993
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135580.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135581.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135581.jpg" />
 </div>
 
 
@@ -572,78 +644,6 @@ magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592837   (135582) от 22.12.2012
-
-Tiny Core Linux 4.7.2 [x32] (3xminiCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiny Core Linux  (сокр. TCL) — минималистичный дистрибутив GNU/Linux, цель которого обеспечение базовой системы с использованием BusyBox, FLTK/FLWM и другого легковесного программного обеспечения. Размер дистрибутива около 10 мегабайт, устанавливается в текстовом режиме. Ведущий разработчик TCL, Роберт Шингледекер (англ. Robert Shingledecker), работает с сообществом пользователей и разработчиков дистрибутива для улучшения и тестирования 10-мегабайтного ядра и расширений. В TCL используется Tiny X вместо X-сервера, и uClibc вместо glibc — для экономии памяти и уменьшения размера дистрибутива. uClibc предназначен, прежде всего, для встраиваемых платформ, где ограничения памяти наиболее жёсткие.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592993   (135587) от 22.12.2012
-
-FontExplorer X Pro 3.5.1 [Eng]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135587.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontExplorer X Pro – предоставляет пользователю всевозможные средства и инструменты, которые позволяют проводить любые операции: сортировать старые шрифты, искать и импортировать новые, проводить выборку из любимых шрифтов и множество других функцийНазвание программы: FontExplorer X ProРелиз состоялся: декабрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592778   (135594) от 22.12.2012
-
-Мэтью А. Расселл | Dojo. Подробное руководство [2009] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dojo - это высоконадежный инструментарий JavaScript, позволяющий быстрее и проще создавать веб-приложения и сайты, основанные на применении JavaScript или технологии Ajax. Это издание представляет собой наиболее полный сборник документации по инструментарию Dojo, снабженный развернутыми комментариями. Демонстрируются эффективные приемы работы с обширным набором утилит, реализация различных пользовательских механизмов, методы воспроизведения анимационных эффектов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```
 
 

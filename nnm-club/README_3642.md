@@ -1,3 +1,78 @@
+###  Публикация: 1704248   (114374) от 04.03.2024
+
+Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожаловать в Сэтон [2020, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в частную школу Сэтон, где вся жизнь — сплошной естественный отбор, ведь обучаются здесь всевозможные представители фауны! Есть и зебры с лошадьми, и медведи, учитель — тирранозавр, а директор вообще аномалокарис. И вот, в эту странную школу поступают целых два человека, Дзин Мадзама и Хитоми Хино... но это далеко не все странности, которые ждут (   Читать дальше...   )Производство: Studio GokumiЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Японский, русский (AniLibria, Crunchyroll)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4FE4080650F3A1579607A32EC3BA4F950E6B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704246   (114375) от 04.03.2024
+
+Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Sail (Edits)
+2022 - Sail
+2023 - Conquest of Paradise(   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 5 CD, 04:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621F058D576ABB38C045EFE6EC2A692346E3961A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704480   (114376) от 04.03.2024
+
+Сад изящных слов / Kotonoha no Niwa / The Garden of Words (2013) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юноша по имени Такао встречает таинственную молодую женщину. Их случайные и как будто ни к чему не ведущие встречи в парке, где Такао прогуливает занятия, работая над достижением своей странной мечты — посвятить жизнь конструированию и изготовлению обуви — повторяются снова и снова, правда, только в ненастные дни. Сердца молодых людей начинают приоткрываться друг (   Читать дальше...   )Производство: Япония / CoMix Wave Inc.Жанр: аниме, мультфильм, мелодрамаРежиссер: Макото СинкайПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18713B920C4F814D762784B0C621F09A2F4575A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704387   (114377) от 04.03.2024
 
 Topaz Gigapixel AI 7.0.3 RePack (& Portable) by elchupacabra [En]
@@ -6,7 +81,7 @@ Topaz Gigapixel AI 7.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114377.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ NirLauncher Package 1.30.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114378.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114379.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:96C239479AE892869678A1D30D3D418488E7F117
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114380.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114381.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:373C544884CA9C22CFE6846D6F673B025E807555
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114382.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:373C544884CA9C22CFE6846D6F673B025E807555
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114383.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ Grab Photos From Videos / Фото из видео v11.1.5 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114384.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ Malwarebytes Windows Firewall Control 6.9.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114385.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ magnet:?xt=urn:btih:CD706474F583DD9A03762FDC366D61A437F5F5D5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114386.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:FA24210205C0BF632D0C6BB38EFB129FC69E55DF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114387.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:8527BF38F2B1A1144F691183E49C063F8957EA64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114388.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ uJAM - Beatmaker BUNDLE 2.3.1 (03.2024) VSTi, VSTi 3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114389.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ magnet:?xt=urn:btih:EBD6ED7D6BDD2A60259DFECBF9021C07FFB766FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114390.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ magnet:?xt=urn:btih:EBD6ED7D6BDD2A60259DFECBF9021C07FFB766FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114391.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:ABE2EEB4F90878F34448122047DB6830678FCABA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114392.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ magnet:?xt=urn:btih:5873B7D19D5174FF311DB2FA99335949F4C60011
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114393.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ magnet:?xt=urn:btih:5873B7D19D5174FF311DB2FA99335949F4C60011
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114394.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ MeinPlatz 8.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114395.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114396.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:93A7C3DA206AEB4E8194019F3C2C936EE3A0E6CA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114397.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ nthLink 6.2.6.0 x86 / 6.3.1.0 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114398.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ magnet:?xt=urn:btih:1D4ED0478E3E938060BC54BB17FA843BB75A6ACC
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114399.jpg" />
 </div>
 
 
@@ -549,78 +624,6 @@ magnet:?xt=urn:btih:1D4ED0478E3E938060BC54BB17FA843BB75A6ACC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738BAEF2CE6D5F08A5FAD8966B831EE0F872DB7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704454   (114400) от 04.03.2024
-
-1922 / 1922 (2017) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о Уилфреде Джеймсе, добропорядочном фермере и любящем отце, что из года в год усердным трудом взращивает на своей земле урожай. Он планировал сделать её наследием своего сына и его потомков, однако у жены Уилфреда другие планы. Она хочет продать землю и уехать в город. Честный фермер пойдет на многое, чтобы сохранить свой дом, даже на убийство собственной (   Читать дальше...   )Производство: США, Канада / Campfire, Lighthouse PicturesЖанр: ужасы, триллер, драма, криминалРежиссер: Зак ХилдитчАктеры: Томас Джейн, Молли Паркер, Дилан Шмид, Кейтлин Бернард, Брайан Д’Арси Джеймс, Нил МакДонаф, Боб Фрейзер, Патрик Китинг, Грэм Даффи, Брюс Блэйн, Питер Браун, Роан Кертис, Марк ЭчесонПеревод: Профессиональный многоголосый (Jaskier, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские, немецкиеПродолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E01B4110B8F0811934F56FC96980CFB6D4F675
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704440   (114401) от 04.03.2024
-
-Сирил Норткот Паркинсон | Законы Паркинсона (2023) [PDF, FB2, RTF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сирил Норткот Паркинсон – британский историк и писатель, родившийся в начале XX века, известный не столько многочисленными историческими исследованиями, сколько сформулированному закону, относящемуся к теории управления и получившему его имя. В наиболее общем виде этот закон звучит следующим образом: «Работа занимает столько времени, сколько его отводится на ее выполнение». (   Читать дальше...   )Жанр: Методы мотивации, мотивация и личность, самообразование, саморазвитие / личностный ростИздательство: ХАРВЕСТФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2453AB0AC70B26C613F011CBEF8FEB3486DCAA5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704462   (114402) от 04.03.2024
-
-Империя кошек (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милый документальный фильм расскажет, почему Россия стала лидером по количеству кошек на душу населения в мире.Производство: Россия / ООО, Телекомпания "Пятница"Жанр: документальныйРежиссер: Егор КлимовичЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CC943E7F1684CB06018A6826845F6B36794B41
 ```
 
 

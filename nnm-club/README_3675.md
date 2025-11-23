@@ -1,3 +1,75 @@
+###  Публикация: 1703325   (115232) от 28.02.2024
+
+Таксист / Такси Делюкс / Mobeomtaeksi / Taxi Driver (2023) HDTV [H.264/1080i] (сезон 2, серии 1-16 из 16) black HD
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь выпускника военно-морской академии изменилась в тот момент, когда маньяк убил его мать. Теперь парень работает таксистом в необычной фирме, сотрудники которой принимают от клиентов заказы на месть.Производство: Южная Корея, Creative Leaders Group 8, Studio SЖанр: триллер, криминалРежиссер: Пак Чун-уАктеры: Ли Джэ-хун, Исом, Ким И-сон, Пхё Е-джин, Ли Ю-джун, Чан Хёк-чин, Чха Джи-ён, Пэ Ю-рам, Ким Хён-мук, Пак Сон-унПеревод: Дублированный (black HD)Язык озвучки: Русский, КорейскийСубтитры: отсутствуютПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5550E2384A2D651AE6F1F791770951F02F85F7D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703356   (115233) от 28.02.2024
+
+Дом, в котором я живу (1957) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1935 год. Новый дом на окраине Москвы заселяется новоселами. С этого начинается простой сюжет о судьбах людей разных профессий и увлечений. Впереди страшные годы всеобщей немоты, на смену которым приходит война, а вместе с ней горечь утрат, холод, голод, расставания. Конец войны возвращает радость жизни. По-прежнему светит в окна солнце, летит тополиный пух и, как (   Читать дальше...   )Производство: СССР, киностудия им. М. ГорькогоЖанр: драма, мелодрама, военныйРежиссер: Лев Кулиджанов, Яков СегельАктеры: Валентина Телегина, Евгений Матвеев, Михаил Ульянов, Владимир Земляникин, Жанна Болотова, Римма Шорохова, Павел Шальнов, Нинель Мышкова, Николай Елизаров, Юрий МясниковПеревод: не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F0C427223106518879FB5D841F12E5C8F62998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703105   (115234) от 28.02.2024
+
+Каждый вечер в одиннадцать (1969) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115234.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа азербайджанского писателя Анара "Я, ты, он и телефон". Как-то вечером, в компании своих друзей холостяк Стас ради развлечения позвонил по номеру, цифры которого назвали его друзья (1-3-2-7-1-6), поставив шуточное условие: "Если ответит женщина, ты на ней женишься". Отозвался в самом деле приятный женский голос. Стас не решился (   Читать дальше...   )Производство: СССР, к/с "Мосфильм", т/о "Луч"Жанр: мелодрамаРежиссер: Самсон СамсоновАктеры: Маргарита Володина, Михаил Ножкин, Лариса Виккел, Изольда Извицкая, Зоя Степанова, Михаил Бовин, Алексей Головин, Леонид Каневский, Михаил Селютин, Алла БудницкаяПеревод: не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFED53287A3C53666B93D91B6D51FA47693CB492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703183   (115235) от 28.02.2024
 
 Братья / Bratri / Brothers (2023) WEB-DLRip [H.264] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115235.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:44349CFB4A257C63B7B594C546FF15DFB521A796
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115236.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:A12B6DEF8585027036E9089DBE57A2F62933F001
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115237.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Translator / Мгновенный перевод речи v10.1.6 Mod by Alex.St
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115238.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:C0814E91577F47933E80861B0F93C8B4ABA3C1FD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115239.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:D4FA662423C7FDD1BB4513E0DBC9524A6F6E908A
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115240.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:8062DD2D0A830DE5455F912DE545DEF0B6C5D91E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115241.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:2769E9C2C8410F70157A311E6732C1F280581C2B
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115242.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115243.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:CBABB533A335350096CE213C4A199D5736A6A56F
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115244.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:4BDF033F3CA0B347F91857DE5816E8032E6D39A3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115245.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115246.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ VA - Deep House, Baby 7 (2024) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115247.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:1C9C3576F5A45890530759CBEFE25B42B883A42C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115248.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115249.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:2AA20F1E412742E06AF865111B45B9FAC0BF3A47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115250.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ MathType 7.8.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115251.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:36BE3B4F68F9C58705AEE53B6D5A6FE8B194CB2C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115252.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:33B0B760D196078D0A8C3C517E500575CF3BD765
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115253.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:11D2FF7DE46F79D7734D95152280591B12C4D3B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115254.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115255.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115256.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:685BE2E2D57A703265DE2E5FB052F64D66B9DD0D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115257.jpg" />
 </div>
 
 
@@ -561,81 +633,6 @@ magnet:?xt=urn:btih:685BE2E2D57A703265DE2E5FB052F64D66B9DD0D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34BD361090860A4A2D7539A30A0CB860073FA6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703345   (115258) от 28.02.2024
-
-Пепел / ASCHE (2024) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадолго до Рождества странная улика и древняя книга заставляют молодого детектива Каролин Арендс вновь попытаться раскрыть дело о загадочном убийстве Александра Михальского.Производство: США / Medienproduktion 2.0Жанр: ТриллерРежиссер: Тобиас ОбентойерАктеры: Джессика Стауц, Макс Рэнфт, Рене Рюприх, Петра Мотт, Дженнифер Карен, Дэниэл Вандельт, Йоахим Зонс, Уве Келлер, Катрин Беккер, Гарри ЗайфертПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:18Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228A194E7831479A345926A44F077E1042DA6608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703261   (115259) от 28.02.2024
-
-Яндекс.Практикум | Основы управления проектами (2023) [unpacked]
-
->>Мультимедийные материалы
->>Компьютеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая задача = проект
-С целями, ресурсами и сроками
-Управление проектами — навык, который нужен всем специалистам
-независимо от сферы, размера компании и роли в команде(   Читать дальше...   )Жанр: Обучающий курсФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC621E778CCB4938AA87825DCC95BC69998915C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703156   (115260) от 28.02.2024
-
-Меч короля / Bastarden / The Promised Land (2023) BDRip [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датский король отправляет своего лучшего рыцаря обуздать дикие земли. Но здесь, за стенами высоких замков, свои законы. Местные князья не спешат подчиняться королевскому наместнику. Они сами решают, кто будет возделывать их земли, а кто упокоится в них навсегда. Конфликт усугубляет прекрасная дева, обещанная отцом местному феодалу. Оставить её — значит (   Читать дальше...   )Производство: Дания, Швеция, Норвегия, Германия / Zentropa Entertainments, Zentropa International Berlin, Zentropa International SwedenЖанр: драма, биография, историяРежиссер: Николай АрсельАктеры: Мадс Миккельсен, Аманда Коллин, Густав Линд, Кристин Куят Торп, Якоб Ульрик Ломанн, Мортен Хи Андерсен, Сёрен Маллинг, Магнус Креппер, Томас В. Габриэльссон, Феликс КрамерПеревод: Авторский (Юрий Сербин)Язык озвучки: Русский, датскийСубтитры: датские (forced, full, SDH), английские (full, SDH)Продолжительность: 02:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CBF5CE052E38E4C4B309509FEFCE6CEA182E6C
 ```
 
 

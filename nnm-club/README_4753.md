@@ -1,3 +1,180 @@
+###  Публикация: 1519402   (147334) от 25.12.2021
+
+VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burns - Talamanca (3:07)
+02. Obskür - Bayside (Radio Edit) (3:17)
+03. John Summit, Echoes - Human (3:39)
+04. Diplo, SIDEPIECE - On My Mind (3:09)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288F6DF8083B9703415A659E66A73078F4E7105B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678052   (147335) от 20.11.2023
+
+Мэйби Бэйби - Мэйбилэнд (2022) [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nya-Nya-Nya ^ω^ (00:02:20)
+02 - Мэйбилэнд (00:02:22)
+03 - Дакимакура (00:03:20)
+04 - Интимки (00:02:49)(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589872   (147336) от 15.12.2012
+
+Шаблоны - Портфолио и рамочка в винтажном стиле для девочки или девушки [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портфолио и рамочка в винтажном стиле для девочки или девушки.
+16 PNG
+Автор: MiranaФормат: PNGРазрешение файлов: 2398x3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4740BCF00B3A5B148DDF3C039ABE95B33D4C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347907   (147337) от 25.12.2019
+
+Л.В. Доманская | Найди, узнай, покажи. Техника и транспорт (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами не просто книга "Техника и транспорт", а познавательная игра. Именно во время игры ребенок знакомится с окружающим миром, развивает фантазию, тренирует память и проявляет свои творческие способности. На каждом развороте его ждут красочные иллюстрации, которые логически объединены одним сюжетом. Малыш увидит, какие бытовые приборы есть в каждом (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E457F6BCCE1344819C15614181983298E8AD9453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738028   (147338) от 27.12.2013
+
+Minecraft (2013) [Ru] (1.0) Mod
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft — инди-игра в жанре песочницы с элементами выживания и открытым миром. Данный Мод-Пак очень полезен! Он содержит моды, добавляющие в игру индустрию, а также новых монстров или реалистичность. Это что-то вроде Technik-Rpg-Realistic пака для игры. В клиенте 55 модов.Тип издания: Неофициальная сборка модификацийРазработчик: Маркус Перссон
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526DD0286A0187ED2C000070F11E306B3619DC14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678264   (147339) от 20.11.2023
+
+Topaz Photo AI for Mac 2.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E898A8DBBD5937F483352A9E9B1A6AE820CA1933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519617   (147340) от 25.12.2021
+
+iBoostUp Premium 9.8.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147340.jpg" />
+</div>
+
+
+###  Подробнее
+
+iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
+iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2021Разработчик: © iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431F7616AD90E54D971EBA40C47FC8997A16A15A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434927   (147341) от 26.12.2020
 
 Александр Герасимович | Криптовалюты от А до Я (2020) [PDF]
@@ -6,7 +183,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147341.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:E508BBEA6748D3706918C6E1E59873283F1AFA4E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147343.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147344.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147347.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ Downie 4 v.4.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147348.jpg" />
 </div>
 
 
@@ -131,7 +308,7 @@ magnet:?xt=urn:btih:D1C1ED35FDB1FAE8D5A09A7D6713F99FD829C1D3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147349.jpg" />
 </div>
 
 
@@ -155,7 +332,7 @@ magnet:?xt=urn:btih:59EB02C448967463D16B5F47A792C3D40D9876ED
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147350.jpg" />
 </div>
 
 
@@ -180,7 +357,7 @@ magnet:?xt=urn:btih:1DF8A3596D451E6B45193022B5A1E31B2B9191C3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147351.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ Apple выдали патент, подтверждающий, что компа
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147352.jpg" />
 </div>
 
 
@@ -228,7 +405,7 @@ Apple выдали патент, подтверждающий, что компа
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147353.jpg" />
 </div>
 
 
@@ -252,7 +429,7 @@ VA - Finest NY House 2021, Pt. 2 (2021) [AAC|~325 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147355.jpg" />
 </div>
 
 
@@ -279,7 +456,7 @@ magnet:?xt=urn:btih:CBC229B836ECCA13E107643A7B51E3052BC0C32E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147356.jpg" />
 </div>
 
 
@@ -303,7 +480,7 @@ magnet:?xt=urn:btih:35DB76BF1FF44AE07FCEC8ACA0151D05B8ABFD41
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147357.jpg" />
 </div>
 
 
@@ -329,7 +506,7 @@ magnet:?xt=urn:btih:C38FA08322F5EEC24EAC7E057DC7A34735BAC924
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147358.jpg" />
 </div>
 
 
@@ -354,7 +531,7 @@ magnet:?xt=urn:btih:560E907E78A2E638424CD123F1D8793273CA98EA
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -379,7 +556,7 @@ VA - Bedrock Collection 2021 (2021) [AAC|~322 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147360.jpg" />
 </div>
 
 
@@ -406,7 +583,7 @@ magnet:?xt=urn:btih:406E6E16E497BE683021F1F7B3374C8DA046198C
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147362.jpg" />
 </div>
 
 
@@ -430,7 +607,7 @@ magnet:?xt=urn:btih:0BB0C7011749A36CD48D5832651B34D0C6720D17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147364.jpg" />
 </div>
 
 
@@ -454,7 +631,7 @@ magnet:?xt=urn:btih:74F45DC91F902906E8439F50EDD6215D1DD73A4F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147365.jpg" />
 </div>
 
 
@@ -465,186 +642,6 @@ magnet:?xt=urn:btih:74F45DC91F902906E8439F50EDD6215D1DD73A4F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AA51FF0ED80666EA665575E3BFB55EA44380431
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969422   (147366) от 27.12.2015
-
-Журнал | Радиоэлектронные технологии №1 (2016) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147366.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Радиоэлектронные технологии" - Важными направлениями журнала стали поддержание и развитие имиджа радиоэлектронной отрасли, информирование отечественных и зарубежных партнеров о возможностях предприятий в области создания и производства радиоэлектронных устройств и комплексов, информационная поддержка научно-технических и инновационных технологических разработок (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B90FBCA5295C826EF5BD0009FD98369572DF10C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272045   (147367) от 25.12.2018
-
-VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NM - Interstellar Discovery (4:06)
-02. SynthOne - Electric Legend (5:39)
-03. Rama - Organix (5:13)
-04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, Synth-popПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCE7F4F6A86F82C450CD4E9EB00A23AFFB405A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588696   (147368) от 15.12.2012
-
-Петля времени / Looper (2012) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147368.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем, где стали возможны путешествия во времени, некая корпорация убирает нежелательных людей, отправляя их в прошлое в пластиковых пакетах. Задача принимающей стороны — всадить жертве пулю в голову, стерев тем самым несчастного из истории. Все идет гладко до тех пор, пока главный герой не распаковывает очередной пакет, обнаруживая в нем… самого себя из будущего.Жанр: Фантастика, Боевик, ТриллерРежиссер: Райан ДжонсонПродюсер: Рэм Бергман, Джеймс Д. Штерн, Лукас СмитАктеры: Брюс Уиллис, Джозеф Гордон-Левитт, Эмили Блант, Пайпер Перабо, Пол Дано, Гаррет Диллахант, Джефф Дэниелс, Трейси Томс, Пирс Гэнон, Ан Нуу Нгуйен и др.Перевод: ДублированныйПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434821   (147369) от 26.12.2020
-
-Greatercommons, Todd McLeod | Веб-разработка на языке программирования Google Go (golang) /  Web Development with Google’s Go (golang) Programming Language (2019) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите веб-программирование у профессора университета в области компьютерных наук с более чем 15-летним опытом преподавания.
-
-Язык программирования Go был создан Google для того, чтобы делать то, что делает Google: эффективные веб-приложения в масштабе.
-(   Читать дальше...   )Производство: GreatercommonsЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 18:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEEE103DC0A4955DF91347D2C1F0F17B0296448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519552   (147370) от 25.12.2021
-
-VA - Orbit O (2019) [AAC|~330 Kbps] <Deep House, Downtempo, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypersleep - Reason With The Sky (Orbit Intro Mix) (3:04)
-02. Rory Gallagher, Moodwax, Gabriel Lynch - Cog In The Machine (Moodwax Remix) (6:07)
-03. Rory Gallagher, Arzuk, Thomas Gandey - Soul De Anima (Thomas Gandey Last Communication Remix Edit) (7:32)
-04. Kris Davis - Naive (Original Mix) (7:12)(   Читать дальше...   )Жанр: Deep House, Downtempo, Progressive HouseПродолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7B67AEEAD96E54A0C6725282BCDF5BC55FED6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678046   (147371) от 20.11.2023
-
-Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathedral (4:22)
-02. White Rabbit (4:40)
-03. Passage (3:11)
-04. Imminent (4:57)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347954   (147373) от 25.12.2019
-
-Л.В. Доманская | Найди, узнай, покажи. Весь подводный мир (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы держите в руках не обычную книгу "Весь подводный мир", а познавательную игру. Именно игра знакомит ребенка с окружающим миром, развивает фантазию, тренирует память и раскрывает творческие способности малыша. На каждом развороте его ждут красочные иллюстрации, логически объединенные одним сюжетом из жизни обитателей подводного мира. Многих из них можно (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C67896C3E06CFEC00F1177212B63FC15602EF07
 ```
 
 

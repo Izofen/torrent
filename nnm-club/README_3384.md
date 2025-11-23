@@ -1,3 +1,79 @@
+###  Публикация: 1730878   (107666) от 21.06.2024
+
+Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
+02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731427   (107667) от 21.06.2024
+
+VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Indus, Synthwave, Electro-Synthpop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Future Sounds Of Kraut 2) [00:02:47]
+02. Angekommen in der letzten Reihe [00:06:32]
+03. Vertical Section [00:02:12]
+04. Monotonikum (Edit) [00:04:46](   Читать дальше...   )Жанр: Trip-hop, Indus, Synthwave, Electro-Synthpop, DowntempoПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287DF90C9C03812ABC85EB0BFC95CB544B470BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731572   (107668) от 21.06.2024
+
+Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731500   (107669) от 21.06.2024
 
 Марина Серова | Частный детектив Татьяна Иванова. Имя убийцы (2024) [MP3, Елена Пикунова]
@@ -6,7 +82,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107669.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Speedtest от Ookla 5.4.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107670.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:401A67297FA4F6FD492D2421560B6A25F88AEDE5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107671.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:18566050B4A0FB37B437D7C18EA4129F79A4F02E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107672.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:3293604AE691A10ECD96BB1765E3662C27797CD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107673.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ VA - Sunset Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107674.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Buenos Aires, Sao Paulo and Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107675.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ Tokyo Storm - Alien Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107676.jpg" />
 </div>
 
 
@@ -209,7 +285,7 @@ VA - Armin van Buuren - A State Of Trance 1178 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107677.jpg" />
 </div>
 
 
@@ -236,7 +312,7 @@ Chillymouse - Don't Give Me Your Life (Jay Frog remix) (2021) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107678.jpg" />
 </div>
 
 
@@ -260,7 +336,7 @@ The Force presents Beata - Maria Magdalena (2015) [FLAC|Lossless|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107679.jpg" />
 </div>
 
 
@@ -287,7 +363,7 @@ Lowell Hopper - Precious Moments (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107680.jpg" />
 </div>
 
 
@@ -314,7 +390,7 @@ Uran Bator - Uluu Tengri (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, EBM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107681.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ magnet:?xt=urn:btih:8763D6C10527B776B6C04CFB6AA42A71069DA925
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107682.jpg" />
 </div>
 
 
@@ -365,7 +441,7 @@ Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107683.jpg" />
 </div>
 
 
@@ -392,7 +468,7 @@ British Murder Boys - Active Agents and House Boys (2024) [FLAC|Lossless|WEB-DL|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107684.jpg" />
 </div>
 
 
@@ -419,7 +495,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107685.jpg" />
 </div>
 
 
@@ -443,7 +519,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107686.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107687.jpg" />
 </div>
 
 
@@ -491,7 +567,7 @@ VA - The Essential Downtempo Vol.6 Chillout Your Mind (2024) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107688.jpg" />
 </div>
 
 
@@ -518,7 +594,7 @@ VA - Олег Чубыкин. Трибьют (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107689.jpg" />
 </div>
 
 
@@ -545,7 +621,7 @@ PrivaZer Pro 4.0.87 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107690.jpg" />
 </div>
 
 
@@ -569,7 +645,7 @@ Snowy White - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107691.jpg" />
 </div>
 
 
@@ -583,83 +659,6 @@ Snowy White - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3CAC3243DF889A87D9ECE8E961E47A5F9C5B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731595   (107692) от 21.06.2024
-
-Болеро. Душа Парижа / Bolero (2024) TS [H.264/1080p] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:07Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731668   (107693) от 21.06.2024
-
-VA - The Essential Downtempo, Vol.5 Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Beachside (2:02)
-02. Dellasollounge - Lady Bug (Original Mix) (3:55)
-03. Brass - Rainy Afternoon (Original Mix) (2:14)
-04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB27D62F33E59B21BDDBE3E788A802BA889A0A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731607   (107694) от 21.06.2024
-
-Судьба человека с Борисом Корчевниковым. Судьба Алексея Кравченко (21.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107694.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-В преддверии (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Алексей КравченкоЯзык озвучки: РусскийПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED2FFB1DBAB73F57C5F92FF90316E35CB6B650D
 ```
 
 

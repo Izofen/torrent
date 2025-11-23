@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84326.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48E5C12AC4BEAB81EE4E3A495EB06836395766A1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84328.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Autodesk AutoCAD Architecture 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84336.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AutoCAD® Architecture – это AutoCAD® для архитекторов. С�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84342.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AutoCAD® Architecture – это AutoCAD® для архитекторов. С�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84350.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CyberLink PowerDVD Ultra 11.0.2608 RePack Lite by qazwsxe [Русский / Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84359.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Armin van Buuren - A State Of Trance 2012 (2012) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84366.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ CD 1 - On The Beach
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84370.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Sonic Academy - ANA 1.0.2.38 VSTi x86 x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84371.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sonic Academy ANA - синтезатор, специально разработ�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84372.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Autodesk AutoCAD Architecture 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84376.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AutoCAD® Architecture – это AutoCAD® для архитекторов. С�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84379.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:40C53F23B2DE921392D615108C10D6A9AC2DA7CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84381.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:40C53F23B2DE921392D615108C10D6A9AC2DA7CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84382.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9760A85847515203D8A20A9B7B6625C63B7F42A3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84387.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RadioBOSS Advanced 4.6.5.919 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84391.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Playlist Generator - автоматический (   Читать дальше
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84395.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ DG Win&Soft Free SoftPack 2012 (Март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84396.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Windows Хр/Vista/ Win7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84409.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CorelDraw Graphics Suite X6 16.0.0.707 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84418.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ CorelDRAW Graphics Suite X6 - новый графический пакет, по
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84429.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CorelDRAW Graphics Suite X6 - новый графический пакет, по
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84434.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84439.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84450.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:6E7597696C031F2F7C499326A5B652BA1A1A5E94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84456.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:BD106CF01162C451198D20C789260CE34FA04A99
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84463.jpg" />
 </div>
 
 

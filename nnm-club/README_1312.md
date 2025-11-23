@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34465.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:11294EC70696C740458F7EE9A87409D0AD36F186
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34466.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2511B00ABA48F21E6F51D79E530F9B34CE7E3521
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34467.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D1FB129CECD69CFD5F0DFEFDCBF6D60EBECB38F4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34468.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BIOMORPH (2024) [Multi] (1.7.27362) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34469.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6514549E8C12F78C5165E9EB580D0496C12E0CA8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34470.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0D0ADABBD81D0CE5B23CB74C7CB8DA066320AE37
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34471.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:571761D8737DEDFDAC2E7D3AA1D71B60C4C135A7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34472.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:35EB713F2F28EB19E968B398610D33BE39ACDC6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34473.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rhinoceros 3D 8.14.24345.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34474.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34475.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CCleaner 6.31.11415 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34476.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:B053AA0F3395AE8927E6D3C660ED1475137D1346
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34477.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Понемногу отовсюду by Yuridar #Full (1952-2024) Compilatio
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34478.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34479.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34480.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34481.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:DDF016114C289D978CC79A18D07C8FAE8BF9A6E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34482.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:55B64A23ADF3A726DF3BEB150C25FCF7A35E0EE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34483.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C8A487ABFF093DFB381DF0C2C8666491115A1034
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34484.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ExamDiff Pro 15.0.1.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34485.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5F9B0403F6A6D8E4091E353D5366C216FB905E2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34486.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:695FAC47CA08CC487AF05478B1F309EA92613F4A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34487.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34488.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A26F7F5A39365D6112E89330E2D35A56B3268FF9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34489.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34490.jpg" />
 </div>
 
 

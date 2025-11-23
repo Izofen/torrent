@@ -1,3 +1,84 @@
+###  Публикация: 1714274   (111748) от 08.04.2024
+
+Caravan - All Over You And You Too (2012) 2 x CD, Compilation, Reissue, Remastered, 	Talking Elephant Records [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111748.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - All Over You:
+01. If I Could Do It All Over Again, I’d Do It All Over You
+02.Place of My Own
+03. The Love in Your Eye / To Catch Me a Brother(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38886CC25DCA413A096C73836AE502283350342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714219   (111749) от 08.04.2024
+
+Rush - A Farewell To Kings (1977) 40th Anniversary Deluxe Edition, 2017, Island Def Jam [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xanadu [00:11:12]
+02. Closer To The Heart [00:03:24]
+03. Cinderella Man [00:04:27]
+04. Madrigal [00:03:25](   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 3 CD, 02:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E976261C4074A9722D328A179193A3020ED92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713998   (111750) от 08.04.2024
+
+Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Entourage [00:07:00]
+02. The Bottomless Pit [00:07:52]
+03. Time [00:08:51]
+04. Two Wolves [00:05:25](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ECF53FD2A3A153094D4B7CD91A9A0365DFEE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714275   (111751) от 08.04.2024
 
 Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
@@ -6,7 +87,7 @@ Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111751.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:E4ACB481F2E931903C9B07116D48B8765807291E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111752.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111753.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111754.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111755.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111756.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111757.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ David Cross - Crossing the Tracks (2018) [FLAC|Lossless|image + .cue] <Art Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111758.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111759.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ Acid Mammoth - Supersonic Megafuana Collision (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111760.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111761.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ HDCleaner 2.069 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111762.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111763.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ magnet:?xt=urn:btih:64AFA4A1116D319B20EC23D9661BC511B8E143B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111764.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ OfficeSuite Pro + PDF 14.4.51651 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111765.jpg" />
 </div>
 
 
@@ -398,7 +479,7 @@ magnet:?xt=urn:btih:D32535594D646E4C38638676602BA37BAA41CE83
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111766.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ magnet:?xt=urn:btih:B153360B3AE3E8C79274477917F8A361BDC40DAA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111767.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ iZotope - Trash 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111768.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ Advanced Renamer 3.95 release 3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111769.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ magnet:?xt=urn:btih:6B6C592CC666F1E3F85067409DD4A179D62BD35A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111770.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ magnet:?xt=urn:btih:4E86CB7E42B48C7F255CB511DA5157955DB4D40D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111771.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ RegCool 2.000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111772.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111773.jpg" />
 </div>
 
 
@@ -585,81 +666,6 @@ A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713402   (111774) от 08.04.2024
-
-Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel (5:27)Жанр: Melodic Hard 'n' HeavyПродолжительность: 00:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402AFE9B4B87CD0494FD2A7F3EC6EFC272E97D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714304   (111775) от 08.04.2024
-
-Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Chanson de vieux amants
-02. Once I Was Loved
-03. Get Out Of Town (Acoustic Version)
-04. Se Voce Me Ama(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714229   (111776) от 08.04.2024
-
-Гордон Диксон | Повелитель (2022) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111776.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Человечество расселилось на сотню планет. Но Земля осталась нетронутым островком самобытной человеческой культуры, музеем-заповедником, призванным хранить старый дух человеческой расы. Именно поэтому каждый Император Галактики перед вступлением на престол прибывает на землю, чтобы провести какое-то время вместе с представителем древнего рода телохранителей (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67CB42E04E36ABA8673C858C19CAD063F0ED8FF
 ```
 
 

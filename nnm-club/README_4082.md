@@ -1,3 +1,75 @@
+###  Публикация: 1823405   (125814) от 12.10.2025
+
+Энтузиасты предложили легкий неофициальный способ продления поддержки Windows 10 до 2028 года
+
+>>След.
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_125814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полноценная поддержка операционной системы Windows 10 прекратится уже 14 октября текущего года. После этого получать обновления безопасности будут только жители некоторых стран Европы, покупатели платной лицензии ESU и пользователи, синхронизировавшие настройки своего ПК с облаком через Windows Backup.Однако существуют и альтернативные способы продлить поддержку (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565287   (125815) от 12.10.2025
+
+Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мрачное приключение мальчика с протезом на лице и тяжёлым прошлым. В первом эпизоде под названием «Странные соседи» Салли-кромсали и его отец переезжают в новую квартиру, встречают самых разных жильцов здания и понимают, что чуть не стали свидителями преступления. Они и не подозревали, что невзгоды только начинаются. Распутайте зловещую тайну истории (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve GabryЖанр: Приключенческие игры, КвестыЯзык субтитров: Русский, Английский, Немецкий, Итальянский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823623   (125816) от 12.10.2025
+
+Месть из темноты / Dendam Malam Kelam / Vengeance In The Dreary Night (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125816.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели Софии, законной жены Джефри, её тело таинственно исчезает из морга. Джефри и его любовница Сара отчаянно пытаются скрыть свою связь и придумать алиби. Но прошлое не даёт им покоя, и тьма возвращается за возмездием.Производство: США, Индонезия / Falcon Pictures, Globalgate EntertainmentЖанр: криминал, детектив, триллер, драмаРежиссер: Даниал РифкиАктеры: Арья Салока, Бронт Паларае, Марисса Анита, Давина Карамой, Ибну Гундул, Мегатира, Путри Аюдья, Фатима Аззахра, Тасья Ризма, Агус Фирмансия, Ама Джеральд, Адли МаноппоПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, индонезийскийСубтитры: русские (forced, full - AI), английские, индонезийские (full, SDH)Продолжительность: 01:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A4A09773FCA592BB9B020584993F9751002FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823621   (125817) от 12.10.2025
 
 Моя рыжая чудачка (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125817.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:7E43AA543CA2E775F42A95D23D02C7BBFB93183F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125818.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D14163802BA281F5BE79767C1368E23BF768247E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125819.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ MyLanViewer 6.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125820.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125821.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Digital Juice - BrushBoxx - Volume 1 to 4 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125822.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125823.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125824.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:F37D2EA16A933F28A3D2FCF36273491BDBB9B583
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125825.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:3C1271A023B6694238C4607AC85D0F8D7D5446CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125826.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125827.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:AC03F25D64109B4F8D44667A61E2F56927719F90
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125828.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:1777487A782193923DA263E756C980DF02765175
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125829.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:AC791D643D9D9305FF861CE36739B95A9DDECB6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125830.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125831.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125832.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125833.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:FB0BF3DD9C094E06C8A65365E6D0C919A4579E01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125834.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:20F0F3F851FE56310FEA5F6645C404AEB2DE8C79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125835.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:F487D566797AAF0B428BE9C2D12268D75FC47429
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125836.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:E051806022456F5731743C9F2682BCA73FDDB695
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125837.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125838.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -555,78 +627,6 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A158B04B015AB4788BDAE5F24980EBDA98D358DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823571   (125840) от 11.10.2025
-
-Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вотано - обычный школьник. Обычный парень. Ну кроме того, что когда на горе Соукай случается беда, всегда зовут его. Беда всегда одна - либо кто-то уже захватил гору Соукай и установил на ней свой тотальный контроль либо только собирается это сделать. Приходится опять одевать свои латы, Меч Дракона, вызывать своего Робота Воина Дракона и идти всех месить. Такая вот (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтезиРежиссер: Иути СюдзиПеревод: Code Giass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 2 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25027B526C14C6115C33A3B126ABC33370DC02E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823572   (125841) от 11.10.2025
-
-Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спасатели 2 [1990, TV, 46 из 46] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон о приключениях 9-летнего мальчика Вотано, который попадает в волшебный мир богов.Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: CodeGiass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 46 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31288A6349EFE3CB8D95F2AD45D9CFCB98B7E58C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823576   (125842) от 11.10.2025
-
-Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спасатели: История о бесконечном времени [1993, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередные приключения Вотано и его друзей в мире богов.Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: CodGiass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57141A73307EA3D950964881C0E323627FAC99D
 ```
 
 

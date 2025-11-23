@@ -1,3 +1,87 @@
+###  Публикация: 456037   (77476) от 21.02.2012
+
+VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эffekt - Замерзаю
+ 02. Vincent Did It - Dynamo
+ 03. Egor - Breathe (Radio Edit)
+ 04. Claude Kelly - Don't Turn Out The Lights
+ 05. Gregory Sirakuza Feat. Mirami - Miramimania (House Remix)
+ 06. Suck The Clatter - Dance With You (Radio Edit)
+ 07. K.1.M Feat. Аня Скворцова - Причина-Это Ты
+ 08. Daddy Yankee Feat. Don Omar - Lovumba (Official Remix)
+ 09. Sara Oks - Rebel Girl
+ 10. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)2012Жанр: popПродолжительность: 06:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454266   (77487) от 21.02.2012
+
+Юстейн Гордер | Мир Софии (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга норвежского писателя Юстейна Гордера адресована прежде всего детям, но будет интересна и взрослым. Это захватывающий рассказ о таком сложном предмете, как философия. История мировой мысли предстает здесь как череда неожиданных открытий, которые совершает главная героиня - девочка по имени София, - получая письма от незнакомого, загадочного философа.
+
+       "Кто, (   Читать дальше...   )Жанр: Роман, философияПродолжительность: 19:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ED2B86AD1A1A51514F21CCDA80BF0785C2D12A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456049   (77488) от 21.02.2012
+
+А.Кочаров | Удивительный мир животных. Тигры [2004] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто там бесшумно крадется в высокой траве? Тигр! Полосы на роскошной меховой мантии делают его практически невидимым. Следуй за ним, и ты узнаешь, как очаровательный тигренок превращается в самую крупную на земле хищную кошку, каким образом он выживает в диких зарослях... и ещё многое-многое другое.
+Для младшего школьного возраста.Жанр: Детская литература, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADB3523C45A097321F55810509FEFDE1E11B86B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455898   (77495) от 21.02.2012
 
 Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The Music of Pink Floyd (2008) [FLAC|Lossless]<Cool Jazz>
@@ -6,7 +90,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77495.jpg" />
 </div>
 
 
@@ -38,7 +122,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77496.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ Louna - Время X (2012) [PROMO] [MP3|128 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77499.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ magnet:?xt=urn:btih:2E9B7B2D483602D6FEA843CF97858CB1961E6B4D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77502.jpg" />
 </div>
 
 
@@ -120,7 +204,7 @@ magnet:?xt=urn:btih:4C0E8B5AE15F245713C8D32EB36811C93350778A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77505.jpg" />
 </div>
 
 
@@ -144,7 +228,7 @@ Lee Ritenour&Chris Botti "Papa Was A Rolling Stone" (2005) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77508.jpg" />
 </div>
 
 
@@ -171,7 +255,7 @@ http://en.wikipedia.org/wiki/Papa_Was_a_Rollin'_Stone
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77511.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ magnet:?xt=urn:btih:840FFDA92E9503A96B4F1A096C2B3B24AB3B3F18
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77513.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77514.jpg" />
 </div>
 
 
@@ -243,7 +327,7 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77518.jpg" />
 </div>
 
 
@@ -272,7 +356,7 @@ magnet:?xt=urn:btih:B9E138F2347CD2383EF2D7E8994E8251C03371A6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77521.jpg" />
 </div>
 
 
@@ -297,7 +381,7 @@ magnet:?xt=urn:btih:BFD6362BD8552E9A4BFD4F0B5786A9D0AD4CCA36
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77524.jpg" />
 </div>
 
 
@@ -322,7 +406,7 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77530.jpg" />
 </div>
 
 
@@ -346,7 +430,7 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77549.jpg" />
 </div>
 
 
@@ -379,7 +463,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77554.jpg" />
 </div>
 
 
@@ -407,7 +491,7 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77555.jpg" />
 </div>
 
 
@@ -431,7 +515,7 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77557.jpg" />
 </div>
 
 
@@ -456,7 +540,7 @@ magnet:?xt=urn:btih:03318CDFF67D42A13CD600BCB8497E86156248EF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77572.jpg" />
 </div>
 
 
@@ -480,7 +564,7 @@ VA - 90 Club Hits From The 90's (2007) (4CD Box Set) [FLAC|Lossless]<Disco, Euro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77577.jpg" />
 </div>
 
 
@@ -513,7 +597,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77580.jpg" />
 </div>
 
 
@@ -540,7 +624,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77584.jpg" />
 </div>
 
 
@@ -573,7 +657,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77593.jpg" />
 </div>
 
 
@@ -597,7 +681,7 @@ magnet:?xt=urn:btih:41E70A6DE0E4CB696023E25B2AA459622F0BB848
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77594.jpg" />
 </div>
 
 
@@ -610,80 +694,6 @@ magnet:?xt=urn:btih:41E70A6DE0E4CB696023E25B2AA459622F0BB848
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9854ED6F4EDA4325D145994C6AFEF9AD12C2508A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455413   (77595) от 21.02.2012
-
-Алексей Пехов | Джанга с тенями [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кости Судьбы упали, показав единицы, и это значит, что отряд влип в очередную историю, а отдуваться за всех придется вору. Или герою? Или просто человеку, который оказался не в том месте и не в то время? Нет, ну вы подумайте сами, как можно назвать того, кто оказался между слугами Хозяина и Неназываемого, залез в гадючье гнездо за ключом от Створок эльфийских могильников, (   Читать дальше...   )Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2935E1AB9AE0354F1366C96F61AD39FEA433B001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453663   (77600) от 21.02.2012
-
-[Программа] (Android 1.5+) GameCIH2
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для замены значений в приложениях.
-В основном программа используется в играх для увеличения "нечестным" способом ресурсов в игре, таких как деньги, кристаллы покупаемые за реал и так далее.
-Game CIH - аналог Artmoney для ПК, Sorcerer для симбиан и PGS для ВМ.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455446   (77602) от 21.02.2012
-
-Растровый клипарт - Растительность [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт растительного мира на прозрачном фоне.Формат: PNGРазрешение файлов: 305x656 - 4724x1052
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DE7FC3CB6F1A5E7384134700FBEDFAAEEFCF37
 ```
 
 

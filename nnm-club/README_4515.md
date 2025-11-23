@@ -1,3 +1,153 @@
+###  Публикация: 1195485   (139744) от 30.12.2017
+
+Пойманный в раю / Trapped in Paradise (1994) WEBRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький провинциальный городок под названием «Рай», канун Рождества. Билл Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями — хитрецом Дэйвом и клептоманом Элвином. Когда братья решают ограбить местный банк, Биллу не удается их отговорить. К тому же дело на редкость простое и «верное«: в здании отсутствует охрана и сигнализация. (   Читать дальше...   )Производство: США, Permut Presentations, Twentieth Century Fox Film CorporationЖанр: Комедия, Приключения, Криминал, МелодрамаРежиссер: Джордж ГаллоАктеры: Николас Кейдж, Джон Ловиц, Дэна Карви, Ричард Б. Шалл, Медкен Эмик, Джек Хеллер, Флоренс Стэнли, Дональд Моффет, Майк СтейнерПеревод: Профессиональный (многоголосый, закадровый) 20th Century Fox + Профессиональный (многоголосый, закадровый) Первый канал + Авторский (одноголосый, закадровый) А.ГавриловСубтитры: Русские, английские
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A906601E37A05456AF5717C8ABD8F37903FFF304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349035   (139745) от 30.12.2019
+
+ScrollNavigator 5.13.3 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139745.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScrollNavigator - программа, которая поможет вам прокручивать по-вертикали и по-горизонтали ваши документы. С помощью этой утилиты достаточно зажать правую кнопку мыши в любом месте страницы и протянуть курсор в нужном направлении. Это поможет вам избежать позиционирование мыши над полосой прокрутки и позволит перемещаться в обоих направлениях одновременно. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3558B2327A2915ADD920FFB597E09F88E5AF918C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970768   (139746) от 31.12.2015
+
+Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139746.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Twisted Vision
+2. Eerie Hauntings
+3. Smell The Death
+4. The Face That Shares My Skull(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C875FA498042AB2938CB0165741C12CF6962872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273018   (139747) от 30.12.2018
+
+Алла Надеждина и др. | Чудеса под новый год [Сборник] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139747.jpg" />
+</div>
+
+
+###  Подробнее
+
+А Вы верите в чудеса? Говорят, в новогоднюю ночь сбываются самые несбыточные желания. Давайте проверим?Жанр: Романтическое фэнтези, РассказыПродолжительность: 03:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFF1A22109D4071E1648103966E4E4245E40B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436242   (139749) от 30.12.2020
+
+Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Sounds Better With You (Radio Edit) (4:25)
+ 02. Music Sounds Better With You (12' Club Mix) (6:51)
+ 03. Music Sounds Better With You (Anthem From Paris) (10:30)
+ 04. Music Sounds Better With You (Chateau Flight Remix) (7:18)Жанр: Electronic, Garage HouseПродолжительность: 00:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508608   (139751) от 29.12.2021
+
+Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Дублированный (iTunes), многоголосый любительский (АрхиAsia)Субтитры: Русские (.ASS), английские и китайские (hardsub)Продолжительность: 01:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AEA873E1F22B5FFF83AF2FE7F608B7E49F5252
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195787   (139752) от 30.12.2017
 
 Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
@@ -6,7 +156,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139752.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139753.jpg" />
 </div>
 
 
@@ -58,7 +208,7 @@ magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139754.jpg" />
 </div>
 
 
@@ -85,7 +235,7 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139755.jpg" />
 </div>
 
 
@@ -112,7 +262,7 @@ magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139756.jpg" />
 </div>
 
 
@@ -136,7 +286,7 @@ magnet:?xt=urn:btih:E07F1615BC2528D9ED99868EF4D7F4A72F6EB6B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139757.jpg" />
 </div>
 
 
@@ -160,7 +310,7 @@ Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139759.jpg" />
 </div>
 
 
@@ -187,7 +337,7 @@ magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139760.jpg" />
 </div>
 
 
@@ -213,7 +363,7 @@ Burnt Alive in Odessa (2021) WEBRip [H.264/1080p]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139762.jpg" />
 </div>
 
 
@@ -237,7 +387,7 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139765.jpg" />
 </div>
 
 
@@ -264,7 +414,7 @@ Snoweffect - Rustic Physiocrat (2005) Ryoondo-Tea [FLAC|Lossless|tracks+.cue] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139766.jpg" />
 </div>
 
 
@@ -291,7 +441,7 @@ magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139767.jpg" />
 </div>
 
 
@@ -315,7 +465,7 @@ magnet:?xt=urn:btih:4E99FB474583CACD773D0C48EF2658BCE9922A83
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139769.jpg" />
 </div>
 
 
@@ -340,7 +490,7 @@ Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139770.jpg" />
 </div>
 
 
@@ -367,7 +517,7 @@ magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139771.jpg" />
 </div>
 
 
@@ -391,7 +541,7 @@ magnet:?xt=urn:btih:A61B0C125AC222F0CDD22F3634B114C6E0D64758
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139774.jpg" />
 </div>
 
 
@@ -418,7 +568,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139775.jpg" />
 </div>
 
 
@@ -442,7 +592,7 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139776.jpg" />
 </div>
 
 
@@ -466,7 +616,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139778.jpg" />
 </div>
 
 
@@ -490,7 +640,7 @@ magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139779.jpg" />
 </div>
 
 
@@ -502,158 +652,6 @@ magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47647C6151698F648350BE51087BA117F20AA3B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195803   (139780) от 30.12.2017
-
-Русский спецназ (2002) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо подготовленная группа диверсантов планирует взорвать под Санкт-Петербургом похищенную ими ядерную боеголовку. Террористы намерены сделать это накануне 300-летия города, в День открытия фонтанов в Петродворце, куда должен приехать президент России.
-О готовящемся покушении независимо друг от друга узнают группы спецназа трех разных ведомств — ГРУ МО, ФСБ и ФСО. (   Читать дальше...   )Производство: Россия Кинокомпания "Сварог"Жанр: БоевикРежиссер: Станислав МареевАктеры: Игорь Лифанов, Алексей Осипов, Виктор Сухоруков, Дмитрий Нагиев, Владимир Турчинский, Ирина Салтыкова, Николай Годовиков, Никита ЛейтландСубтитры: ОтсутствуютПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D67D9EE4114011D05C59CF00443B18AB87CFEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088105   (139782) от 30.12.2016
-
-Автобан / Collide (2016) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский турист Кейси Штайн, путешествуя с подругой по Европе, оказывается втянутым в разборки между двумя враждующими мафиозными группировками. Одну из них возглавляет Хаген, другую — Геран. И с этого момента начинается смертельно опасная гонка на запредельной скорости по автобанам Германии.Производство: Великобритания, Германия, 42, Automatik EntertainmentЖанр: Боевик, ТриллерРежиссер: Эрен КривиАктеры: Фелисити Джонс, Энтони Хопкинс, Николас Холт, Бен Кингсли, Надиа Хилкер, Марван Кензари, Клеменс Шик, Александр Йованович, Кристиан Перерсен, Линдси ЭлизабетПеревод: Многоголосый закадровый, любительский (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:39:08Реклама: Имеется реклама от спонсора.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C0434C0FFB05398469225D4C69B1E8FEDE2507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272942   (139783) от 30.12.2018
-
-Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's Going On (02:59)
-02. Get Down (02:41)
-03. Never On My Mind (03:15)
-04. Supercharger (02:37)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970628   (139785) от 31.12.2015
-
-Хоккей. Молодежный чемпионат мира 2015-2016. группа A. Швейцария - Канада (29.12.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139785.jpg" />
-</div>
-
-
-###  Подробнее
-
-В столице Финляндии городе Хельсинки стартовал молодежный Чемпионат мира по хоккею с шайбой. В нем примут участие хоккеисты возрастом до 20 лет. В 2016 году хоккейный МЧМ пройдет в 40-й раз.
-Согласно регламенту МЧМ-2016 по хоккею с шайбой, с 26-го по 31 декабря пройдут матчи группового турнира, а с 2 по 5-е января матчи плей-офф молодежного Чемпионата мира по хоккею. (   Читать дальше...   )Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B9F06C91DAF8B3127F6A0CC378CBC39B50ACDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436028   (139786) от 30.12.2020
-
-Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Женщины. Гонка преследования 10 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по биатлону 2020-2021
-19 декабря 2020, суббота. 17:00 МСК
-Этап 4. Хохфильцен (Австрия)
-Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C20340FA6A8B9427D551266C1F12E168C7FDF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518767   (139787) от 29.12.2021
-
-Tor Browser Bundle 11.0.3 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F14B9B284BC8984A00415F370E1BB0F13B47930
 ```
 
 

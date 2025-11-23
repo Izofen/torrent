@@ -6,7 +6,7 @@ VB Decompiler Pro 9.2 Retail [MULTi / Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143673.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Altair EDEM Professional 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147025.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ SDL Passolo 2015 15.1.418.0 Collaboration Edition Portable by Evgenii724 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148101.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148806.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150677.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ SMath Studio Desktop 1.0.8348 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151738.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153912.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ InstallShield 2019 R3 Premier Edition 25.0.764.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154895.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ COMSS Boot USB 2021-12 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156576.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ HeavenTools Resource Tuner 2.04 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157999.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ RAM cube 3.21.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160540.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ LEX LIVE 10 Preview v.26.0.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161915.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ COMSOL Multiphysics 6.3 Build 290 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161966.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tenorshare 4uKey for Android 2.2.2.4 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163099.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wolfram SystemModeler 13.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163313.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165743.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Software Collection 2020.12 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166345.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ WPI x86-x64 by OVGorskiy® 10.2023 mini [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167423.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Oracle 10g Enterprise Edition 10.2.0 [Английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168032.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ WinToHDD 6.2 Technician Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171150.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172171.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Keysight IC-CAP 2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172622.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Keysight Model Quality Assurance 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172627.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Keysight Model Builder Program 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172631.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Keysight WaferPro Express 2016.04 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172639.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32599.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32602.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32604.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32607.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32611.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32613.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32632.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Fire: Ungh’s Quest (2015) (1.1.8329S) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32633.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32636.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32637.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Open Wheel Manager 2 (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32644.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32653.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32658.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32727.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32730.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32738.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32744.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack FitGirl [Mother Trucker
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32755.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32761.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.0/dlc) Scene Tenoke [Dig
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32771.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32775.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Super Woden GP 2 (2023) [Ru/Multi] (1.3) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32819.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32826.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32869.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32873.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32880.jpg" />
 </div>
 
 

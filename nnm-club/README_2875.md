@@ -1,3 +1,77 @@
+###  Публикация: 472612   (84161) от 24.03.2012
+
+Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра «Voltage» по степени драйва и адреналина поднимает жанр гонок на новый уровень. Заезды проходят в далеком будущем на планетах Солнечной системы, где игроки cоревнуются в самых быстрых и технологически продвинутых состязаниях, чтобы получить в итоге высочайший титул - Лучшего Гонщика Солнечной Системы.
+Игроки могут выбирать из машин с антигравитационными двигателями, которые "ездят" на электричестве, ядерном или тахионном топливе и способны запрыгивать на специальные секции трека для достижения более выгодной позиции. Как только игроки выбрали свои машины, веселье начинается...
+Треки содержат множество футуристических элементов: телепорты, электромагнитные платформы, ядерные и тахионные улучшения. Основная стратегия состоит в выборе коротких путей и поиске оптимальных маршрутов через серпантин поворотов, подъемов и различных ловушек. Вместе с тем не стоит забывать и о борьбе с оппонентами за право завоевать себе первое место.Тип издания: RePackРазработчик: IBA GroupЖанр: Arcade / Racing (Futuristic) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472598   (84162) от 24.03.2012
+
+Патриция Корнуэлл | Кей Скарпетта - 12 книг [1994-2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам представлено 12 книг из серии "Кей Скарпетта" популярной американской писательницы триллеров Патриции Корнуэлл (Patricia Cornwell). Первый роман о Скарпетте "Postmorten" был написан еще в 1990 году и на сегодняшний день является единственным в своем роде за всю историю детективного жанра. Это и стало началом успешной работы писательницы.1994-2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FB83253CF112F46640F7672D3C40653158742F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472553   (84168) от 24.03.2012
+
+Война (2002) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аслан Гугаев, командир отряда чеченских боевиков, отпускает троих пленников: двух русских солдат, сержанта Ивана Ермакова и рядового Кулика — потому что они не контрактники, а призывники, и англичанина Джона Бойла — потому что он должен собрать два миллиона фунтов стерлингов и привезти деньги Гугаеву в качестве выкупа за свою невесту Маргарет. Маргарет остается у (   Читать дальше...   )Производство: Россия, Кинокомпания CTBЖанр: Боевик, Драма, ВоенныйРежиссер: Алексей БалабановАктеры: Алексей Чадов, Иэн Келли, Ингеборга Дапкунайте, Сергей Бодров мл., Эвклид Кюрдзидис, Георгий Гургулия, Владимир Гостюхин, Бен Фостер, Юрий Степанов, Дэвид МакАллистерПеревод: ОригиналПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F98D30BDC75FF8355A71CBC559962F622E12FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472599   (84169) от 24.03.2012
 
 КВН. 50 виртуальных игр. Игры 1-50 из 50 (2011-2012) SATRip / IPTVRip
@@ -6,7 +80,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84169.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84173.jpg" />
 </div>
 
 
@@ -60,7 +134,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -84,7 +158,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84180.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ Kaspersky World 1.3.2.103 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84181.jpg" />
 </div>
 
 
@@ -165,7 +239,7 @@ Serv-U File Server Gold Edition 11.3.0.0 [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84182.jpg" />
 </div>
 
 
@@ -189,7 +263,7 @@ Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84183.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84184.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84185.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84186.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ magnet:?xt=urn:btih:A46DDCE23C69640DF265990E91E01053D9A9DA5A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84188.jpg" />
 </div>
 
 
@@ -328,7 +402,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84190.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ Autodesk AutoCAD 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84191.jpg" />
 </div>
 
 
@@ -378,7 +452,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84193.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ magnet:?xt=urn:btih:E82BEC584018AA93083A3CBA0612E1C7064DF3AE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84194.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ magnet:?xt=urn:btih:08E65D0442CA3CD6367BD6A96985DBD591609D94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84195.jpg" />
 </div>
 
 
@@ -475,7 +549,7 @@ magnet:?xt=urn:btih:EEF247917539E9DDA910A2B7D0666D75498823CB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84197.jpg" />
 </div>
 
 
@@ -499,7 +573,7 @@ magnet:?xt=urn:btih:2C5A0831190F490B62CCD9A0FB56209E37CA5705
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84199.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ magnet:?xt=urn:btih:2C5A0831190F490B62CCD9A0FB56209E37CA5705
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84200.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ magnet:?xt=urn:btih:0EEF4EC0B7CD8535969AF328E4FD8DB2F4F2D0B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84201.jpg" />
 </div>
 
 
@@ -573,7 +647,7 @@ magnet:?xt=urn:btih:0EEF4EC0B7CD8535969AF328E4FD8DB2F4F2D0B0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -584,88 +658,6 @@ magnet:?xt=urn:btih:0EEF4EC0B7CD8535969AF328E4FD8DB2F4F2D0B0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472930   (84203) от 24.03.2012
-
-Бурлеск / Burlesque (2010) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Али — молодая амбициозная девушка из маленького городка с чудесным голосом, совсем недавно потеряла своих родителей. Теперь никому не нужная, она отправляется в большой город Лос-Анджелес, где устраивается на работу у Тесс, хозяйки ночного клуба «Бурлеск». За короткое время она находит друзей, поклонников и любовь всей своей жизни. Но может ли сказка длиться вечно? (   Читать дальше...   )Жанр: мюзикл, драма, мелодрамаРежиссер: Стив ЭнтинАктеры: Шер (Cher), Кристина Агилера (Christina Aguilera), Эрик Дэйн (Eric Dane), Кэм Жиганде (Cam Gigandet), Джулианна Хаф (Julianne Hough), Алан Камминг (Alan Cumming), Питер Галлахер (Peter Gallagher), Кристен Белл (Kristen Bell), Стенли Туччи (Stanley Tucci), Дианна Агрон (Dianna Agron), Глинн Тёрмен (Glynn Turman), Дэвид Уолтон (David Walton), Терренс Дженкинс (Terrence (   Читать дальше...   )Перевод: Профессиональный (дублированный)Продолжительность: 01:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EE540B8CDD8968E49B5E00F2439AACE93072F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472616   (84204) от 24.03.2012
-
-Autodesk AutoCAD 2013 (x86) (Английский)
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84204.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD наиболее распространенная программа для автоматизации проектных работ, применяемая для 3D моделирования, архитектурного проектирования и подготовки рабочей документации. Благодаря использованию программы миллионами специалистов всего мира, формат DWG, родной для AutoCAD, стал стандартом для обмена документацией. Обмен документацией в данном формате производится между специалистами различных отраслей, независимо от используемых ими систем автоматизированного проектирования.
-Компания Autodesk впервые выпустила систему AutoCAD в конце 1982 года, таким образом опыт применения, развития и совершенствования продукта начался более 28 лет назад. Первые версии программы были призваны заменить распространенные тогда кульманы и состояли из базовых, простейших команд и примитивов, таких как отрезок, окружность, полилиния, текст. Современные версии AutoCAD помогают проектировщикам не только на этапе оформления чертежной документации, но и выступают как инструмент анализа, как платформа экспериментирования и поиска (   Читать дальше...   )Название программы: Autodesk AutoCAD 2013 (x86)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471866   (84206) от 24.03.2012
-
-VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP3|320 кб/с]<Dance/Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1
-Продолжительность: 03:27:05
-1. 666 - Bomba
-2. Aqua - Roses Are Red
-3. ATC - Around the World
-4. Atischa Feat. Blue System - Secret Of The Night
-5. Babe - Oh My Little Baby Boy
-6. B-Cap - Send Me An Angel (Radio Version)
-7. Bellini - Samba De Janeiro
-8. Bizz Nizz Feat. G.Arrendell - Dabadabiaboo (Ragga Edit)(   Читать дальше...   )2012Жанр: Dance/PopПродолжительность: 06:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849AF0FA8696DB5BE3CE112782E4F787C414D7C0
 ```
 
 

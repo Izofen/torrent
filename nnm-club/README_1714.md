@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44919.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44920.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BF1E2B6E53346BDAF25552091D57EF72332E0F8F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44921.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Advanced Renamer 4.01 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44922.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0B9C6B631177F87028686618184E27DD64EE2314
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44923.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44924.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ PotPlayer 240827 (1.7.22318) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44925.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Frogun Encore (2024) [Multi] (0.915) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44926.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8C1876A14C7A30F3B89A5D64D9A53FBF9716B65A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44927.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - compilation part 116 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44928.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ K-Lite Codec Pack Update 18.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44929.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Bulk Image Downloader 6.49.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44930.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6A28BAA231020D6BF06019EEE9D3841077ECBF41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44931.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44932.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:0DBF6FDB6FB40CD24A213FC1E2D03ADBC00191E8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44933.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - A State Of Trance, Ibiza 2024 (Mixed by Armin van Buuren) (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44934.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:9FBD432362BB81F4CF8773836952AA420FAB9337
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44935.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44936.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A253D9BB19896D68004116AD71DDF196AEE26D8E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44937.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Icecream PDF Editor Pro 3.26 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44938.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A6759FB0487956D45176A94A843AC776E517BBE9
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44939.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Starlink может предоставить бесплатную экстрен
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44940.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Starlink может предоставить бесплатную экстрен
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44941.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:677F459EFCECE2965F4C811BCA107A37C9A6799E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44942.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:06C0C86FF002955B805B1DA38F342A726B6EBAA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44943.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ NASA сократило экипаж SpaceX до двух человек — н�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44944.jpg" />
 </div>
 
 

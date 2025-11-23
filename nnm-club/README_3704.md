@@ -1,3 +1,78 @@
+###  Публикация: 1701942   (115986) от 23.02.2024
+
+OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент супердекомпрессии, поддерживает распаковку RAR, 7Z, ZIP, TAR, GZIP и более 100 форматов файловТип издания: macOS SoftwareРелиз состоялся: 22.02.2034Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27193A857203F42377580EB6F3272DFAA5C3A59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702001   (115987) от 23.02.2024
+
+Ace Frehley - 10,000 Volts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10,000 Volts
+02. Walkin' On The Moon
+03. Cosmic Heart
+04. Cherry Medicine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEDB458E7072927135C3EDAC7937939DAE54DC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701906   (115988) от 23.02.2024
+
+TinkerTool System 7 v.7.98 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115988.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3325496CE73B744D23D9CB6E8514F8DCCF2700D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701909   (115989) от 23.02.2024
 
 Iridient Developer for Mac 4.2.1 [En]
@@ -6,7 +81,7 @@ Iridient Developer for Mac 4.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115989.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115990.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115991.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115992.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115993.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115994.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115995.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Boulevard - Into the Street (1990) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115996.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ Amaranthe - The Catalyst (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115997.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ Metalite - 4 Albums, 1 Live, 5 Singles (2017-2024) [MP3|320 Kbps] <Modern Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115998.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ magnet:?xt=urn:btih:3E17CEC2CCDF96C8D9F27031232A043D80B6CCB8
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115999.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116000.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:FB701EA40BE9AADB03001ED29E7A5A126E57FDFF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116001.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:5A49E0B087A74A38C7A762601B59EFA4484DC65C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116002.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ magnet:?xt=urn:btih:5DDFFE74E0C317A818B92062F8E5F341DE373A67
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116003.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Emurasoft EmEditor Professional 23.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116004.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116005.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116006.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:30CCBB1F4549D00B94D6FAA232E531DBD02A7FBD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116007.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ magnet:?xt=urn:btih:610822FF3538511DD9665F13412246E00AF38EC7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116008.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:12EA10A6E5F4F77223FAA6D1E2EA9D9206FA38B7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116009.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ Master of Typing 3 - Practice 15.14.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116010.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ magnet:?xt=urn:btih:B984B66F62EABE5970A396A921EF1390E6C5F966
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116011.jpg" />
 </div>
 
 
@@ -582,87 +657,6 @@ magnet:?xt=urn:btih:B984B66F62EABE5970A396A921EF1390E6C5F966
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C9508D7DABE3E8A747C5E4129902EB0D5F67AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701844   (116012) от 23.02.2024
-
-VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila x Lostly - The Unknown (Extended Mix) [6:09]
-02. Paul Denton - Recoil (Extended Mix) [6:50]
-03. Ferry Tayle x Cris Grey - Echoes Of The Nile (Extended Mix) [7:35]
-04. Stoneface & Terminal - North Cape (Asteroid Extended Remix) [8:08](   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C492E3926C079DFFA97BE92362FE0E201D752B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701677   (116013) от 23.02.2024
-
-VA - Trance Winter 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ArcanuM - Aeternum (AFTERUS Extended Remix) [5:38]
-02. Primestate Project - Terraform (Original Mix) [6:15]
-03. Master Beat Projekt - Ocean Wave (Extended Mix) [6:16]
-04. Mazeev - Quintessence (Original Mix) [5:28](   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCFB166B4F3EC93FDC3DB670535E55B40B6DC73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701935   (116014) от 23.02.2024
-
-Группа товарищей - Тараканы в твоей голове (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тараканы в твоей голове
-2. Проснись! (Открой глаза)
-3. Ты уходишь
-4. Память сердца(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA82404B03B3EAF816F0A248BF6E7B5F3944BF5
 ```
 
 

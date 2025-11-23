@@ -1,3 +1,79 @@
+###  Публикация: 1711503   (112502) от 30.03.2024
+
+AudFree Audio Capture for Mac 3.1.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для записи звука без потерь для Mac, позволяющее записывать любой звук, воспроизводимый на компьютерах MacOS, например песни, аудиокниги, подкасты, игры, фильмы, потоковое аудио и другие источники звука, с сохранением 100% качества звука без потерь.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: ©2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A9F7FDD5C0BE2CA22A5EB290B880EA11B9938B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711520   (112503) от 30.03.2024
+
+The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112503.jpg" />
+</div>
+
+
+###  Подробнее
+
+First Jem album from long time NJ rocker's The Cynz featuring the dynamic lead singler Cyndi Dawson and guitarits Henry Seiz. Famous for their live performances, Grip Weed's Kurt Reil captured the exciting lead singer's voice and Henry's unique guitar lines. With Smitereen's guitarist Jim Babjack on a cover of their "Room With A View." Add in their cover (   Читать дальше...   )01. Crow-Haired Boys
+02. You Would Not Miss Me
+03. Little Miss Lost
+04. When We Were In Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BF37D1C094CD5F625BCED932CF413F97F72A7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711534   (112504) от 30.03.2024
+
+Emurasoft EmEditor Professional 24.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112504.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33298EC7A2E94DBFB3EB70CFA5E92CEB6FF98184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711266   (112505) от 30.03.2024
 
 Камеди Клаб / Комеди Клаб / Comedy Club (29.03.2024) IPTVRip [H.264] (сезон 20, выпуск 5)
@@ -6,7 +82,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112505.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Заро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112506.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112507.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:681876336EDEAC1226DB26521A23B71424C20AB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112508.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:153B1153FB6622B820BF2C7970086883DD3A5CF3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112509.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112510.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112511.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ magnet:?xt=urn:btih:425B8C1A937A6BA62048AD75B92557B1B0B16D21
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112512.jpg" />
 </div>
 
 
@@ -208,7 +284,7 @@ magnet:?xt=urn:btih:FCB313D11279CA4454B5F20EF89B993B57688872
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112513.jpg" />
 </div>
 
 
@@ -232,7 +308,7 @@ Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112514.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112515.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ magnet:?xt=urn:btih:0FE7B6DF05553FB1493FCF926CE427141E8A4C0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112516.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ Sante DICOM Editor 10.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112517.jpg" />
 </div>
 
 
@@ -332,7 +408,7 @@ magnet:?xt=urn:btih:D39993E4AA8AD89BBF1FE4399DDBA6696036A151
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112518.jpg" />
 </div>
 
 
@@ -356,7 +432,7 @@ magnet:?xt=urn:btih:118AD7B39A54A98FCDB656C843295B75348BFC4A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112519.jpg" />
 </div>
 
 
@@ -380,7 +456,7 @@ Cycling'74 Max 8.6.2 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112520.jpg" />
 </div>
 
 
@@ -404,7 +480,7 @@ magnet:?xt=urn:btih:B114A9171672EEA87671DB003297707239231EEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112521.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ magnet:?xt=urn:btih:B114A9171672EEA87671DB003297707239231EEE
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112522.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ Skype 8.115.0.217 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112523.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ magnet:?xt=urn:btih:249F1B309607708B22B28DD37963A6BEF14559DA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112524.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ Togu Audio Line - TAL-Pha 1.1.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112525.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:ACD92F70798E3BBA9225C13B250DB74775C6FFDB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112526.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ magnet:?xt=urn:btih:DB5355F4544DBD5E740A8253C74A5DC7903A0B8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112527.jpg" />
 </div>
 
 
@@ -560,85 +636,6 @@ magnet:?xt=urn:btih:DB5355F4544DBD5E740A8253C74A5DC7903A0B8B
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711310   (112528) от 29.03.2024
-
-StaxRip 2.37.4 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112528.jpg" />
-</div>
-
-
-###  Подробнее
-
-StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
-Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908E9931692F10C615EDB90F97D5E604F23C5063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711325   (112529) от 29.03.2024
-
-GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & GOODBOYS - This Feeling (ID Remix)
-02. The Prodigy - Voodoo People (Josh Samuel Edit)
-03. Opus III vs. Skrillex & Fred Again.. & Flowdan - It's A Fine Day vs. Rumble (
-04. GOODBOYS & Biscits & Max Mylo - The Loop(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711345   (112530) от 29.03.2024
-
-Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything
-02. Too Forever
-03. Chicken Shack
-04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
 ```
 
 

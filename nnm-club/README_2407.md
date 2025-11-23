@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62947.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A666D6FF88025747B90E5F1CB7D39BE4E2452952
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62948.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Linkin Park - Lost Demos (2023) [MP3|320 Kbps] <Alternative Rock, Rap Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62949.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F70229D38E65526EC71AEE8A5150F90FDAB38DF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62950.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62951.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Sleipnir 6.5.5.4000 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62952.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Audio Hijack 4.3.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62953.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CFD4019E855F6E337F24556B018DF9313D3F5156
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62954.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62955.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Plus Messenger (Telegram+) v10.9.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62956.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62957.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9BB88FA384F3D17264DB9EC57819C081C0E22593
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62958.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A3F4FA3E56C5C02BE8DA5FCF72D24519283A8F2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62959.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Telegram Desktop 4.15.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62960.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62961.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62962.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:365863E24F200EBAC73CCFDD4A18F25CDF4F75DF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62963.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fort Firewall 3.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62964.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Calibre 7.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62965.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ CopyQ 8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62966.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:016B2BC908792DF437A3098D47745CD9CF750D6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62967.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E999C7C327551AA1E49641258853FBE33E454256
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62968.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62969.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62970.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62971.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ BoltAI 1.15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62972.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116908.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116997.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117018.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117021.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117027.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117029.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - After Hours Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117032.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tinlicker - Cold Enough For Snow (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117040.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Bass Music Grooves 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117043.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Elektrikill - Propaganarchy! (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117047.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117055.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Celldweller - Celldweller (2003) Definitive Edition, 2024, FiXT [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117063.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Subtronics - Tesseract (2024) [FLAC|Lossless|WEB-DL|tracks] <Dirty Dubstep, Trap
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117071.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Boris Blank(Yello) - Resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, El
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117078.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117153.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117175.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - 10 Years Of Suanda Music - Eximinds (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117184.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - The Best of 2023 from Sounemot Labels Group (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117194.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5AB665CECE0CCC69BD4F2C053B63CE29221D1D2B
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117198.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117205.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Black Hole House Music 02-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117206.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117210.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Pet Shop Boys - Actually (1987) Holland Press [APE|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117221.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:D8C0BCDF35B819BF238164B66B1492B6D1738F57
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117225.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117240.jpg" />
 </div>
 
 

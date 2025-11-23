@@ -6,7 +6,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111606.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asomvel - Born To Rock 'n' Roll (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111613.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111640.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brainslug - Brainslug (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111656.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sebastian Hardie - Four Moments (1975) Reissue, Remastered, 2004, Polydor [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111670.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Oceans of Night - Mindstorm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111671.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111672.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Santana - Santana (1969) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111713.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ White Dog - Double Dog Dare (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111717.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111721.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111729.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ The Black Keys - Ohio Players (2024) [FLAC|Lossless|image + .cue] <Garage Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111744.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Caravan - All Over You And You Too (2012) 2 x CD, Compilation, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111748.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Rush - A Farewell To Kings (1977) 40th Anniversary Deluxe Edition, 2017, Island 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111749.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111750.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111751.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111753.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111754.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111755.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111756.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111757.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ David Cross - Crossing the Tracks (2018) [FLAC|Lossless|image + .cue] <Art Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111758.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Acid Mammoth - Supersonic Megafuana Collision (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111760.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2DEC9427459C80713899D8FBF177FD4FC82E4B1F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111767.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111777.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Papriks - Kiss'ЛЯ'тина (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111779.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Compilation Part 161 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:559265D01402F5459677C7EDA618D8B8D56DEAA4
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18421.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0F3FBCF26233F19694C36D7554814E775296DB1A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18422.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18423.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chi. Chikyuu no Undou ni Tsuite | Orb: On the Movements of the Earth | О дви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18424.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A63C0901D31790A9164FE626A020C6E6848C941B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18425.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ George Cuhaj | Unusual World Coins. 6th Edition (2011) [PDF] [EN]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18426.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Black Salt Audio - Telos Drums 1.0.3 VST 3, AAX RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18427.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:49ABE12605B309C1E26392B3B1F8C5DD70D252E3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18428.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jigsawscapes® - Пазлы v3.8.11 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18429.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:789CFD1D79FF1EF266FA420347AA726F20ACEF07
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18430.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9CB008C0374ABDDD5B599039C8F22D84D62C2DAB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18431.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3C5A4EA6CF219F0FC66F8962B788E5F1E3F76004
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18432.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18433.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EAA638DC2EE486CC74BFC56A104DB0D5744645F9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18434.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vanced Tube v5.3.81.191 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18435.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:BCF1B3341A7659D8FF53EBA702B0953A39DD962C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18436.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Toon Boom Storyboard Pro 7 17.10.0 Build 15295 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18437.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AA97697624059FF839E72C57DF9BF496E8E546A1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18438.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0EFEC45B668A4DB081DE2BBD9FDB57FF16E3EEA2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18439.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Fort Firewall 3.17.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18440.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F5A5F264F9A67F62BC06251266AE15052FAE757C
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18441.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:77120BED478EEDA9ABD47999BFD09853B9F45930
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18442.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F6A82A292330DAFDDB4D03B107F2B3E905B9E2A6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18443.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C2F3D04F306E3E376989BBE174725185B30094A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18444.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:DAAC0FB8F9070AB6524DAF9097BDD1259CF13B6D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18445.jpg" />
 </div>
 
 

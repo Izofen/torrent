@@ -6,7 +6,7 @@ u-he - MFM2 2.5.1 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TONSTURM - SpinTracer 1.2.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blender 3.6.17 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40305.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Spectrasonics Omnisphere Software 2.8.7c, Patch Library 2.8.3c Update (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40397.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ DxO PhotoLab 9.1.0 Build 488 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40972.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Three Body Tech - SpecCraft 1.0.0 VST, VST 3, AAX (x64) RePack by SEnki  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41369.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Blackmagic Design Fusion Studio 19.0.2 Build 4 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41481.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Video Thumbnails Maker Platinum 22.0.0.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41926.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ LANDR - LANDR Guitar 1.1.5 VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42630.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Kid3 3.9.6 Audio Tagger Portable (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42713.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43158.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wave Alchemy - Triaz 1.1.1 VSTi 3, AAX + Full Content (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43186.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cradle - The God Particle 1.2.4 VST 3, AAX (x64) RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43456.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ iZotope - Plasma 1.0.1 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43807.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ IK Multimedia - AmpliTube 5 MAX V2 5.8.2 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43922.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ u-he - Diva 1.4.8 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44070.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ u-he - Hive 2.1.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44078.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ u-he - ACE 1.4.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44093.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ IK Multimedia - TONEX MAX 1.7.5 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44106.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Topaz Photo AI 3.2.0 Portable by conservator [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44147.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Blackmagic Design Fusion Studio 19.0.1 Build 5 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44294.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Adobe Illustrator 2024 28.7.1.142 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44479.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Kazrog - True Dynamics 1.2.3 VST, VST3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44532.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44612.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Topaz Photo AI 3.2.0 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44646.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ JRiver Media Center 33.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44767.jpg" />
 </div>
 
 

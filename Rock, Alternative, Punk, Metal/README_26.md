@@ -6,7 +6,7 @@ Redbone - Ten songs for you (2024) [MP3|320 Kbps] <Pop Rock, Singer & Songwriter
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36558.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saturday Night Satan - All Things Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36562.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TRUST X - На краю вечности (2011) [FLAC|Lossless|image + .cue] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36563.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wrecked - Sleeping with Knives (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36564.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Xandria - Universal Tales (2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36591.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Emotional Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36593.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Marilyn Manson - One Assassination Under God: Chapter 1 (2024) [MP3|320kbps] <In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36602.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Queen - Queen I (1973) 2xCD, SHM-CD, Japanese Edition, Reissue, Remastered, 2024
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36603.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rainbow - Colour Collection (2007) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36617.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rainbow - Star Collection (2010) 4CD Boxset[MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36618.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rainbow - Ballads & Instrumentals (1995) [Rem.2014] [FLAC|Lossless]<Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36646.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rainbow – 11 альбомов (1975-1995) Remastered Japanese Edition, Box-Set
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36647.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rainbow - Forever Gold  2CD (1999) [APE|Lossless]<Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36656.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Carnal Savagery - Graveworms, Cadavers, Coffins And Bones (2024) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36658.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sandy Hall - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36660.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Carnal Savagery - Into The Abysmal Void (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36662.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Impellitteri - War Machine (2024) [FLAC|Lossless|tracks + .cue] <Heavy, Power, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36681.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jackie DeShannon - The Sherry Lee Show (2023) [MP3|320 Kbps] <Country, Soft>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36682.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grand Funk Railroad - Grand Funk (1969) Reissue, 2002, Toshiba [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36755.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0E32232CFA7DC1B82F5CBC538010E01B6BBA145E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36765.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36858.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1D347C7ADB6FC68BC818238C056D0952350EB30D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36873.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:0DB5A65FAAF9BA83BDF4DCBA3C861869072B2A8D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36960.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:689C3115D0829C2976DD7CF0B2E8964D7918B08A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36972.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:87C871878006A417433E056A75E1E226FA564A7B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36978.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:6ED5C49556BD522E10C05D836F8955421E43C154
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37077.jpg" />
 </div>
 
 

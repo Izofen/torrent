@@ -1,3 +1,77 @@
+###  Публикация: 1693190   (121628) от 22.01.2024
+
+Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеттинг стимпанка в Sovereign Syndicate показывает историю, происходящую на улочках викторианского Лондона. Геймерам предстоит погрузиться в ролевую адвенчуру, где необходимо управлять персонажем, передвигаясь по изометрической карте с видом сверху. Игроки на старте будут выбирать одного персонажа, за которого получится пройти сюжетную кампанию. Приходится прокачивать (   Читать дальше...   )Тип издания: SceneРазработчик: Crimson Herring StudiosЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693881   (121629) от 22.01.2024
+
+Саша Токсик | Фотограф СССР (Книга 1). Стоп. Снято!  (2024) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из гламурных двухтысячных в солнечный 1978-й. Из глянцевого журнала в сельскую районку. Надои… Покосы… Доски почета… Но хороший фотограф нигде не пропадет. «Зиночка, хотите сняться в стиле „ню“? Не знаете, что это?! Садитесь поближе, я сейчас расскажу!»Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8E814FAF50EF3CB75BCBAB3B392B79450BE3C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693742   (121630) от 22.01.2024
+
+PurpleSchool | Прохождение собеседования (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы помогаем решить основные проблемы, которые возникают на вашем карьерном пути. В базовом тарифе за счёт текстовых и видео-материалов изучите дополнительные навыки для прохождения собеседований.
+
+А уже при работе с наставником вы получаете детальную обратную связь по резюме и доработаете его вместе с HR, проработаете психологические вопросы и улучшите soft skills (   Читать дальше...   )Производство: PurpleSchoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:50:33Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483129   (121631) от 22.01.2024
 
 Сокровища Тутанхамона / Tut's Treasures: Hidden Secrets (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +80,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121631.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121632.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121633.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:E756A862BD8F8226F43090DFEE51CA0DD74A515E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121634.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:AAA91FC5883653F6179210BE961D9EB392A4802A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121635.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ Merchant of the Skies (2019) [Ru/Multi] (1.6.7) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121636.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121637.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ magnet:?xt=urn:btih:534CC61E55506E5D84C5E340009221A6EB8D91C1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121638.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:9746B237C7237B3F9947CA733A854C20CED823D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121639.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121641.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ Northgard (2018) [Ru/Multi] (3.3.16.36098/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121642.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:1BA0818F016173B5F8EBE41A09FC84059B0E7156
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121643.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121644.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ Minecraft Legends (2023) [Ru/Multi] (1.18.14350) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121645.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:751FE2404BDE8572EA223C66CBC6E3B26A04AF86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121646.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ magnet:?xt=urn:btih:2D65906E71D1C3047E775390ECFE04D919FF9B33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121647.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:83E5149AA640ABC297DBA327996A36A072CEE50E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121648.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ magnet:?xt=urn:btih:83E5149AA640ABC297DBA327996A36A072CEE50E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121649.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121650.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121651.jpg" />
 </div>
 
 
@@ -513,7 +587,7 @@ magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121652.jpg" />
 </div>
 
 
@@ -537,7 +611,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121653.jpg" />
 </div>
 
 
@@ -548,78 +622,6 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561502   (121654) от 22.01.2024
-
-День независимости / Independence Day (1996) BDRip [H.264/1080p-LQ] [Remastered] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121654.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Земле принимается сигнал, посланный источником явно неземного происхождения. Источник этот приближается, и на «уши» поднимается вся планета. Никто, правда, не ожидал, что инопланетяне окажутся такими огромными и в таком количестве.Производство: США / Twentieth Century Fox, Centropolis EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Роланд ЭммерихАктеры: Уилл Смит, Джефф Голдблюм, Билл Пуллман, Мэри МакДоннелл, Джадд Хёрш, Роберт Лоджа, Рэнди Куэйд, Маргарет Колин, Джеймс Ребхорн, Харви ФайерстинПеревод: Многоголосый профессиональный (Bluray CEE, НТВ+, Карусель)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 02:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2212DA6DB0CDE498BFF3BEB9D5144CDF26688153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693835   (121655) от 22.01.2024
-
-Капитан Марвел 2 / The Marvels (2023) WEBRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английские (forced, full, SDH)Продолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A5A089E06D5C2746491297F254ECC9AC2AEE8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693811   (121656) от 22.01.2024
-
-Капитан Марвел 2 / The Marvels (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (неофициальный) - Red Head SoundЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH)Продолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C10EBDCCD2CAA3DCB01A318C07BE1DDA22E611D
 ```
 
 

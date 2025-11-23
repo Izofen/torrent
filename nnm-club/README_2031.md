@@ -6,7 +6,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53172.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9EFF7711E7BF1560E153254E10201BCAFBC4F8DD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53173.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C047D23439BDFAC44DB1966E72CF967624CC7A02
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53174.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53175.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1AAA8E99B3FA3DA91B32A664EE084A83C2E86927
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53176.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6E6553E3869E9EE17DAFD287A92A0EF4FD3BE1A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53177.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E31D12B29D18229EE973ACCD1E65CDD58022393D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53178.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:CD35AE7E5C015D4F5BC6CD95177C34F59A54C2A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53179.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:EE441D862408DD1350376112FE453A354EAF450C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53180.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DNS-резолверы – новая линия фронта: Google, Cloudflar
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53181.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DNS-резолверы – новая линия фронта: Google, Cloudflar
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:474E9EA6110D9313B3E41A2947D02CFEF4492E5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53183.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53184.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C684885C72AE97BA74334C25678AB662F798A184
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53185.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:255495838D10BE742078F76F71AD64CD6667482C
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53186.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Process Lasso Pro 14.1.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53187.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D57D9939B6A71F8423F09AA3716EA4B9092BF8E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53188.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:169A571C31806A30485549E7160D5BCA9D12CEEA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53189.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:304D6CB125DF66852477ABA711047D771E05F691
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53190.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:F2BE7B45B035601A41D83997CDB2A5553FDEB92C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53191.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ CherryTree 1.1.3.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53192.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53193.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53194.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53195.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53196.jpg" />
 </div>
 
 

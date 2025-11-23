@@ -6,7 +6,7 @@ QOwnNotes 25.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70913.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerDirector – Video Editor v14.8.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70918.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Soft Organizer Pro 10.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70924.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ XnView MP 1.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70925.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PrivaZer Pro 4.0.98 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70927.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Soft Organizer Pro 10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70932.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Photo Lab PRO v3.13.48 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70934.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ YT Downloader 9.11.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71019.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Firefox Browser ESR 128.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71021.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Happy Color® – игра раскраска v2.17.7 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71028.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Firefox Browser 135.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71029.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sante DICOM Editor 10.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71031.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sante DICOM Viewer Pro 14.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71033.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Topaz Gigapixel AI Pro 8.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71034.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser ESR 115.20.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71035.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ EF Commander 25.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71036.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Smart AudioBook Player Pro v11.2.0 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71072.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ File & Image Uploader 8.5.0 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71073.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ GeoGebra 6.0.874.1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71075.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Daff Moon Phase (Фазы Луны) v3.43 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71078.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MusicBrainz Picard 2.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71082.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ventusky: Прогноз погоды v40.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71091.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Vivaldi 7.1.3570.47 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71092.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Desktop Calendar 3.21.221.6970 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71094.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Magic Eraser / Магический ластик v2.18.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71097.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks] <Progressive Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71099.jpg" />
 </div>
 
 

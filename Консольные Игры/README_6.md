@@ -6,7 +6,7 @@ DC League of Super-Pets: The Adventures of Krypto and Ace (2022) [PS4] [USA] 9.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mortal Kombat 1 Premium Edition (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Scars Above (2023) [PS4] [USA] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173306.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174015.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174015.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175450.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175450.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176202.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176202.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Sonic Frontiers (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.40 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177208.jpg" />
 </div>
 
 
@@ -170,6 +170,30 @@ magnet:?xt=urn:btih:E3491C31FE8FA31E6467019D028860F15EB6EEA4
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331094   (178471) от 05.10.2023
+
+The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [License / 4.04a] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178471.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ведьмак 3: Дикая Охота» - приключенческая игра, действие которой разворачивается в открытом фэнтезийном мире. Вы будете играть ведьмаком Геральтом из Ривии и заниматься охотой на чудовищ. Игра получила более 250 наград «Лучшая игра года». Вооружитесь острыми мечами и бесшумными арбалетами, а на помощь призовите смертоносную алхимию и мощную боевую магию. Отправляйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT RED, Saber InteractiveЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Русский, Английский, ПольскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380FDF9BBF5D5C67C808B760D04F0CA7EE3F4680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666457   (178647) от 05.10.2023
 
 Street Fighter 6 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
@@ -178,7 +202,7 @@ Street Fighter 6 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178647.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178647.jpg" />
 </div>
 
 
@@ -194,6 +218,30 @@ magnet:?xt=urn:btih:977469E94AEB0A2005F9D2F421D2B9F890D8C7C0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413683   (179137) от 04.10.2023
+
+The Elder Scrolls V: Skyrim (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя Тамриэла находится на грани падения. Король Скайрима убит. Претенденты на трон объединяются в союзы. В разгар конфликта пробуждается гораздо более опасное, древнее зло. Драконы, долгое время не появлявшиеся в летописях, вернулись в Тамриэл. Будущее Скайрима и всей Империи висит на волоске, все ждут предсказанного Драконорожденного, героя с силой Голоса, единственного, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4FC70553FD808724FAF48D858757252941298A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590955   (182793) от 23.11.2022
 
 Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
@@ -202,7 +250,7 @@ Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182793.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182793.jpg" />
 </div>
 
 
@@ -228,7 +276,7 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3] [EU
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189546.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189546.jpg" />
 </div>
 
 
@@ -252,7 +300,7 @@ Fullmetal Alchemist 2: Curse of the Crimson Elixir (2005) [PS2] [NTSC] [Unoffici
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189867.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189867.jpg" />
 </div>
 
 
@@ -276,7 +324,7 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191179.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191179.jpg" />
 </div>
 
 
@@ -300,7 +348,7 @@ Factorio (2022) [Switch] [US] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192202.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192202.jpg" />
 </div>
 
 
@@ -324,7 +372,7 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192442.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192442.jpg" />
 </div>
 
 
@@ -348,7 +396,7 @@ Bayonetta 2 (2014) [WiiU] [EUR] 5.3.2 / WUP Installer [Repack] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192497.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192497.jpg" />
 </div>
 
 
@@ -372,7 +420,7 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193050.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193050.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ LEGO Brawls (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193111.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193111.jpg" />
 </div>
 
 
@@ -420,7 +468,7 @@ Earthworm Jim HD (2010) [PS3] [EUR] HEN 4.88 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194787.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194787.jpg" />
 </div>
 
 
@@ -444,7 +492,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Lice
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196223.jpg" />
 </div>
 
 
@@ -468,7 +516,7 @@ magnet:?xt=urn:btih:2DC5754C16517B248DE6487BEC526864A252E01F
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196969.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196969.jpg" />
 </div>
 
 
@@ -492,7 +540,7 @@ Rango: The video game (2011) [PS3] [EUR] 3.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197818.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197818.jpg" />
 </div>
 
 
@@ -516,7 +564,7 @@ Assassin's Creed II: Game of the Year Edition (2010) [PS3] [EUR] 3.15 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198684.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198684.jpg" />
 </div>
 
 
@@ -540,7 +588,7 @@ Angry Birds Star Wars (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198708.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198708.jpg" />
 </div>
 
 
@@ -564,7 +612,7 @@ My Little Pony A Maretime Bay Adventure (2022) [PS4] [EUR] [5.05] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199139.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199139.jpg" />
 </div>
 
 
@@ -575,54 +623,6 @@ My Little Pony A Maretime Bay Adventure (2022) [PS4] [EUR] [5.05] [License / 1.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66CDB6813806A740679AAAA3A2737EE8E939FD04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629034   (199232) от 26.04.2023
-
-FATAL FRAME: Mask of the Lunar Eclipse (2023) [PS4] [ASIA] 5.05 [HEN] [License] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199232.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROJECT ZERO: Mask of the Lunar Eclipse была выпущена в Японии в 2008 году. Это четвертая игра серииТип издания: LicenseРазработчик: Koei Tecmo GamesЖанр: Survival horrorЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Японский и другиеЯзык интерфейса: Русский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9610E0056B3865A1E629603E1540564C2A5CB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622659   (200202) от 06.04.2023
-
-Metal Gear Solid HD Edition (2011) [PS3] [JAP] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License / 01.01] [Jp/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal Gear Solid 3: Snake Eater — одна из самых популярных игр шпионского сериала. События ее разворачиваются в 1964 году — эру холодной войны. Американский спецагент Нейкед Снейк заброшен на территорию СССР с заданием разыскать и вывезти в Штаты гениального русского ученого, который занимается разработкой уникального оружия невероятной разрушительной силы.Тип издания: LicenseРазработчик: Kojima ProductionsЖанр: Tactical Espionage Action, StealthЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3F6C8F58EB95E4DDA1FA8EFD22C616F315FFDE
 ```
 
 

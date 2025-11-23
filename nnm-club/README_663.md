@@ -6,7 +6,7 @@ Smart AudioBook Player Pro v11.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0D7B145EECDDB9AAE149B5FA8FEB14CE06E25C7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EA2BDF760E301D3876C85BF726CE978EC6D3F59F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17557.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17558.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:478B0DFD616C99764916D205C1FE9B2BC1FADAFB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17559.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:93F3600517953CD43CECE28F598B2679E0F792CB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17560.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Groove Armada - Black Light 15th Anniversary (2010) 2025 15th Anniversary Deluxe
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17561.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17562.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17562.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:CBFB2B912F0B602211C775A98AE65E2F7C01699F
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17563.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Dizzy Gillespie - Jambo Caribe (1964) 1998, Verve Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17564.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4F6570EC2DF98CFE7DDA6A4A63583562890AA0B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17565.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Obús - Vamos Muy Bien (2006) 2 x CD, Compilation, Reissue, 2007, Sony BMG Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17566.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:536C60F0C31492759DDB69E437F9C0489B8E0E69
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17567.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:EA4BBE59ED713EAA8B5C27C185F6B5E4091A78CB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17568.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:CFEF4BC5A29C99ED062232E3E430160EA00F6F08
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17569.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Translate AI - Camera & Voice v2.0.5 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17570.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17571.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17572.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17573.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17574.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Yofukashi no Uta | Call of the Night | Песнь Ночных Сов [2022, TV,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17575.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Any Video Downloader Pro 9.2.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17576.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:EB9754F381B47E82A9A143890ECC844FC297D094
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17577.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumenta
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17578.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17579.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5771449F094C8FBCB17A575F20CAF755CDEDA43F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17580.jpg" />
 </div>
 
 

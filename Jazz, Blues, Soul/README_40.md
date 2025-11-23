@@ -6,7 +6,7 @@ Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70382.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70421.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70422.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70423.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70424.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70426.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 2) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70429.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70433.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70439.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70454.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70456.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tape Five - Best of ... Swing Edition (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70460.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70479.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70481.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70482.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70483.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ping Rose - Conjure Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70484.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Murray Kinsley - Eye Of The Storm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70485.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70488.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Joe Pass - Virtuoso #3 (1977) 1992, Universal [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70490.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Art Farmer - The Best Of Art Farmer (1990) Epic Associated [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70491.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Joe Pass - Live At Elder Hall, Adelaide (1990) 1995, ABC [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70492.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Smoothies - The Last Goodbye (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70494.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bubba Coon - Dream Weaver Studio the First 100 Years (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70498.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Flickering Alley - Midnight Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70499.jpg" />
 </div>
 
 

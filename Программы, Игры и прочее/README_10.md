@@ -6,7 +6,7 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Follow the meaning v1.1.39 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19267.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cuphead v1.60 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19278.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19286.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19594.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19688.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stellarium Plus - Star Map v1.14.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19689.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Crashlands 2 v100.1.407 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19699.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19699.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Mountain Legends 5 v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19706.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19706.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.St
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19725.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19959.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19959.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:083A3B86815E774EBDC608A904517277C6925C13
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20085.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20110.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20490.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20509.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Total War: EMPIRE v1.6.4RC3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20547.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20547.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Prince of Persia: Lost Crown v1.0.0f [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20571.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20584.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20584.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ GRID™ Legends: Deluxe Edition v1.1.4RC7 (arm64-v8a) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20653.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20807.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ RAR for Android v7.11 build 127 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20923.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ SoundHound ∞ - Music Discovery v10.4.8 Paid by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21248.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21350.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21350.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ tTorrent Pro  v1.8.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21356.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21622.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21622.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21652.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CyberLink PowerDirector 2024 Ultimate 22.3.2727.1 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61174.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:565AA84BF29D09DA083B3E47A034298320FECFAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61178.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v16 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61211.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chiyu Mahou no Machigatta Tsukaika | Как (не) стоит использов
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61235.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ CrystalMark Retro 1.0.0 RC3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61286.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Notepad++ 8.6.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61298.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Topaz Photo AI 2.4.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61307.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ThisIsMyFile 4.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61311.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D1ED7BEDF639A22FF08FD00185158A41D4A0FE3A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61372.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Opera One 109.0.5097.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61376.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OpenNumismat 1.9.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61382.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Exif Pilot 6.23.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61392.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Excite Audio - Bloom Drum Breaks 1.0.1 STANTALONE, VSTi, VSTi 3, AAX (x86/x64) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61394.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61404.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Native Instruments - Kontakt 7.9.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61406.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Topaz Gigapixel AI 7.0.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61412.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Wondershare PDFelement 10.3.5.2707 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61413.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ KMPlayer 2024.3.28.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61415.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Acrobat Reader 2024.001.20629.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61431.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Adobe Acrobat Pro 2024.001.20629 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61434.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ uTorrent Pro 3.6.0 Build 47044 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61446.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Microsoft  Visual C++ Runtimes AIO v0.80.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61453.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AnyDesk 8.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61478.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Avidemux 2.8.2 Nightly(r240316) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61482.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:D1F892A55B2B6AF0D1232247C8A8A0D4C9358AF4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61483.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46089.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46090.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Jazz & Blues Smooth Mix for Warm Summer Nights (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46091.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Röyksopp (Royksopp) - Profound Mysteries III (2022) [FLAC 24/44.1|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46092.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:D12A4A5B52E11A1FAE7BBDFDE287864E25604922
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46093.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - The Best Of Remixes 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46094.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:227A46D1AB88251CA25D5EF850DF55CA43961340
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46095.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:F1CD8E400B765DD65CB713F67FE190DDC0A5FE7D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46096.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:7602F4C25942383292AB1511258C6319316E7A22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46097.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Angela Mosley & the Blu Elements - Away From The Blues (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46098.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Black Coffee: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46099.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Tokyo Blade - Night of the Blade ...The Night Before (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46100.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46101.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46102.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B5B8CB093D3A85D33B283BBE786E30DBD100350E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46103.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ ZZ Top - Fandango! (1975) Reissue, Remastered, 2006, Warner Bros. Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46104.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:98485C27C541EDA3776EFE5BE8474C171181B12B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46105.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:E5A89F5E10F0AAA86311A078AB56C13757FE0BA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46106.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:5BC4BE66BA591011A0CB8A25AC6685B4784DDFAC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46107.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:CBF26061285DF15F331AA776606EC43FF2B97333
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46108.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:9B2BAA5046045E012569BC9EE5EFC3A0E8070B91
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46109.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ FastStone Capture 10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46110.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F32A2AAA5989834831C914F6ED976789AF29127B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46111.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D914E3A19B2244F39E6FB17B85E3329129798302
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46112.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:318EC122B2280F4D2D2CC734DFF4B4FF23B52F84
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46113.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:FAE9FDE8760348E78BF090D9B9DFB35A80F0E83C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46114.jpg" />
 </div>
 
 

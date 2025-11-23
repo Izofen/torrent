@@ -6,7 +6,7 @@ Square One - Supersonic (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121689.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Death Level - The Era of Religion's Demise (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121693.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Al Harlow - Now! (2023) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121694.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sam Millar - More Cheese Please (2023) [FLAC|Lossless|image + .cue] <Arena Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121695.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cadacross - So pale is the Light (2001) Reissued 2005 [APE|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121696.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cartesian Ghost - Lux Arcana (2023) [MP3|320 Kbps] <Heavy Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121702.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cartesian Ghost - Lux Arcana (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121712.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bloodlost - Evil Origins (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121713.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soledriver - Return Me To Light (2023) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121716.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121725.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A1A97029DDA709446FE81A2761745BB3E9E56AE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121730.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Animarum - The Gaian Mind (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121820.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Misery - Out Of My Hands (1994) Remaster, 2023, Eonian Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121821.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:3D51598640CFBD0676BCD948FB441386DFA7225A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121823.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121826.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eddie James - Soft (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121828.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121830.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121836.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Abysmal Grief - Narcissistic Necrophiles (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121840.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C26F9E93A083A92F97DD2F05B55EB77603B5F4E7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121853.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Eddie James - 'Ard (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121854.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121862.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121868.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:86A92F53F93764EC77FC30157922E4B27C12A35B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121879.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:AFC750E63F050878BE728E175CC2941B6D4C240A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121981.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121982.jpg" />
 </div>
 
 

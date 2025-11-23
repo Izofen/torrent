@@ -6,7 +6,7 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.2.75454/dlc) Repack Decepticon [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21393.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21393.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21511.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Field of Glory II (2): Medieval (2021) [Multi] (1.05.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21580.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.9) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21612.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Astrea: Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21614.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21615.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21615.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21623.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21623.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21662.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21854.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21854.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21886.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21905.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22082.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.5.5/dlc) Repack Wanterlude [Supporter Pac
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23118.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23239.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nordhold (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23266.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23279.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24220.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24399.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24510.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24533.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24533.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Combat Mission: Fortress Italy (2023) [Multi] (2.20.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24683.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Combat Mission: Cold War (2021) [Multi] (1.07.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24684.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24721.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24798.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24850.jpg" />
 </div>
 
 

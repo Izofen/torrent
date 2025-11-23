@@ -6,7 +6,7 @@ Opera GX 112.0.5197.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:04A4E6885DAB6D9CA26B7637F40073C8EDE29327
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44738.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FanControl V200 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44739.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:5291F19CFC08F24CD2B77965AC58769F4FC727E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44740.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:6E7BA5C3EC69877FA9D5F8860EA46ED0DA5EF8CC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44741.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Downtempo Gems 2024: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44742.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:50632F724463D03987369AADC47D29F1ECE1D235
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44743.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Ништяк, браток! (Лучшее и новое) (2005) [MP3|320 Kb
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44744.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:F8F09C69BAC23FAA5A84CB0E03A7E590CEABCB60
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44745.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4340AFB4507DA50AC65CFC7F0248B66D27787B61
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44746.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:7032D2169AA4DC8100D2CDC26BD9B43A37BB64BC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44747.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:50C9BA4B09F4CE037173014F09250033B674C67B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44748.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:77B28263955EE855AFD211DE3FD6C46FB57F6D0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44749.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Google Chrome 128.0.6613.120 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44750.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1C0B0F42DBDF1152DF770DC2D028338AF018BC97
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44751.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:FF7487D278F8AC3CA3F4C1C6323477E1BEA0DB62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44752.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:FF7487D278F8AC3CA3F4C1C6323477E1BEA0DB62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44753.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ K-Lite Codec Pack Update 18.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44754.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44755.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Bandicam 7.1.4.2458 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44756.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8E856E34441F7956E4C5667F11585F69EC66C7A7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44757.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:C2DBE28676D2A3E92B5B6839B02D97EF40DE71F9
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44758.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:13E325BE28D6BAB0FD456976F038FF1D3F5EBABD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44759.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:13E325BE28D6BAB0FD456976F038FF1D3F5EBABD
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44760.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:2F4CB191865CD41FE093FB36623E3283DB3DBA64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44761.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Wise Care 365 Pro 7.0.2.682 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44762.jpg" />
 </div>
 
 

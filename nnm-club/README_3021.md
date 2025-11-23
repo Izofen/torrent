@@ -1,3 +1,101 @@
+###  Публикация: 450784   (93317) от 13.02.2012
+
+VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sismo - Dooble Trooble 07:43
+ 02. Psypheric - Vortex torsion (Psypheric rmx) 08:39
+ 03. Spectral Cosmos - Solar Future 07:05
+ 04. K.O.T.A - Ingenioren 08:02
+ 05. Yum Kaax - Paranormal vision 07:44
+ 06. Mind paradise vs. Two faces - 12 08:18
+ 07. Luminexia - Jungle Book 07:36
+ 08. Universcience - Trance Mission 07:10
+ 09. Neon - Complex Transmission Path 06:09
+ 10. Cosmic Replicant - Ultraviolet (UV) 07:062012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84956709E6980D8305AA93F3594491B25557D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451696   (93319) от 13.02.2012
+
+Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foolish Prayer (1:59)
+02. Lucille (2:35)
+03. Blues In Trouble (2:51)
+04. Two Little Girls (2:34)
+05. One Fine Gal (2:25)
+06. Don`t Tell Me Now (3:03)
+07. Corn Whiskey (2:14)
+08. The Day Is Dawning (3:01)
+09. Jay`s Blues - Part 1 (2:37)
+10. Jay`s Blues - Part 2 (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451453   (93320) от 13.02.2012
+
+Cyklones - Paris By Night (2011) [MP3|320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aerobeat 07:41
+ 02. Red Nose (Remix) 06:49
+ 03. Early Birds 06:41
+ 04. Absolut Exception 06:45
+ 05. Paris By Night 07:20
+ 06. The Vicious 07:42
+ 07. Black Sheep 07:00
+ 08. Aristocrat 07:12
+ 09. Something Else 07:462011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3DBD0F3867138FC5CAA05F5326F74695E55A97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451716   (93342) от 13.02.2012
 
 MC L.E. - Illegal (2006) [FLAC|Lossless]<Rap>
@@ -6,7 +104,7 @@ MC L.E. - Illegal (2006) [FLAC|Lossless]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93342.jpg" />
 </div>
 
 
@@ -39,7 +137,7 @@ VA - 538 Dance Smash 2012 Vol.1 (2012) [MP3|320 kbps]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93361.jpg" />
 </div>
 
 
@@ -72,7 +170,7 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93363.jpg" />
 </div>
 
 
@@ -105,7 +203,7 @@ Broken Mirrors - The Universal Disease (2012) [MP3|260-320 kbps]<Melodic Death M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93385.jpg" />
 </div>
 
 
@@ -138,7 +236,7 @@ magnet:?xt=urn:btih:F41790036C370571AE865C80AFD0AE66629460D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93407.jpg" />
 </div>
 
 
@@ -162,7 +260,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93408.jpg" />
 </div>
 
 
@@ -194,7 +292,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93421.jpg" />
 </div>
 
 
@@ -218,7 +316,7 @@ magnet:?xt=urn:btih:580CAF1FF873EDF1164CBA5221F637C0330BE30D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93422.jpg" />
 </div>
 
 
@@ -242,7 +340,7 @@ Doctor Butcher -  (1994-2005/2006) [MP3|320 kbps]<Progressive Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93425.jpg" />
 </div>
 
 
@@ -266,7 +364,7 @@ magnet:?xt=urn:btih:B5F87EA0ECC839949768CCFD710DDEB2E3DFAEB0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93427.jpg" />
 </div>
 
 
@@ -290,7 +388,7 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93428.jpg" />
 </div>
 
 
@@ -323,7 +421,7 @@ Ulf Wakenius - Vagabond (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop, Ethn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93434.jpg" />
 </div>
 
 
@@ -356,7 +454,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93441.jpg" />
 </div>
 
 
@@ -389,7 +487,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93443.jpg" />
 </div>
 
 
@@ -415,7 +513,7 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93453.jpg" />
 </div>
 
 
@@ -448,7 +546,7 @@ Trisquel GNU/Linux 5.0 (LXDE&NetInstall) [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93489.jpg" />
 </div>
 
 
@@ -472,7 +570,7 @@ Gravediggaz - 6 Feet Deep (Niggamortis) (1994) [MP3|320 kbps]<East Coast Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93492.jpg" />
 </div>
 
 
@@ -505,7 +603,7 @@ Various Artists - Rap Против наркотиков (2002) [MP3|320 kbps]<Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93496.jpg" />
 </div>
 
 
@@ -538,7 +636,7 @@ magnet:?xt=urn:btih:587F9FE9EC89FA2577D1D1AC49A3525DB868BD32
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93502.jpg" />
 </div>
 
 
@@ -564,7 +662,7 @@ Trisquel GNU/Linux 5.0 (GNOME) [i686 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93514.jpg" />
 </div>
 
 
@@ -588,7 +686,7 @@ IntroWert - Progressive Reason Episode 071 [13.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93516.jpg" />
 </div>
 
 
@@ -621,7 +719,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93517.jpg" />
 </div>
 
 
@@ -654,7 +752,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93522.jpg" />
 </div>
 
 
@@ -665,90 +763,6 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BF468FD32C594CD2C885DC4DAFB363A7E8E24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453277   (93524) от 16.02.2012
-
-Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't See For Lookin' (9:29)
-02. Soon (6:57)
-03. Blackout (8:56)
-04. Castle Rock (9:45)1996Жанр: JazzПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452798   (93531) от 16.02.2012
-
-VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cal Tjader - Morning (2:59)
-02.Dusty Springfield - Breakfast In Bed (2:54)
-03.Astrud Gilberto - Champagne And Caviar (3:23)
-04.John Scofield - Green Tea (5:12)
-05.Incognito - Smiling Faces (5:10)
-06.Curtis Stigers - My Babe (4:48)
-07.Stan Getz & Joao Gilberto - Doralice (2:47)
-08.Stephane Grapelli - Hot Lips (2:51)
-09.Hildegard Knef - Coffee Song (1:59)
-10.De-Phazz - Rise And Shine (5:00)(   Читать дальше...   )2009Жанр: Vocal Jazz, BopПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453355   (93537) от 16.02.2012
-
-Газета | Сад, огород – кормилец и лекарь №2 (январь 2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93537.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
 ```
 
 

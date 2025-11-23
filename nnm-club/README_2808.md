@@ -1,3 +1,75 @@
+###  Публикация: 464108   (80719) от 07.03.2012
+
+Д. Селиверстова | Рисование. Первые шаги [2005] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуйте советам, этого увлекательного пособия, - и вы быстро научитесь рисовать как подвижных веселых рыбок, так и мощные космические корабли. В книге приведены схемы, по которым вы легко поймете, как создается тот или иной понравившийся вам рисунок. Внимательно рассмотрите инструкции и принимайтесь за дело!Жанр: Рисование, Обучающая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48F1343B2548349080EDB80C5AFFED1BF3994E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464006   (80720) от 07.03.2012
+
+Игра Престолов / Game Of Thrones (1 сезон, полный) (2011) [1080p] BDRemux
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80720.jpg" />
+</div>
+
+
+###  Подробнее
+
+К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Вокруг средоточия власти Семи королевств, Железного трона, зреет заговор, и в это непростое время король решает искать поддержки у друга юности Эддарда Старка. В мире, где все — от короля до наемника — рвутся к власти, плетут интриги и готовы вонзить нож в спину, есть место и (   Читать дальше...   )Жанр: фентези, драмаРежиссер: Алан Тейлор, Брайан Кирк, Даниэль МинаханАктеры: Шон Бин, Николай Костер-Вальдау, Лина Хиди, Айэйн Глен, Питер Динклэйдж, Эмилия Кларк, Мишель Фэйрли, Эйден Гиллен, Кит Харингтон, Марк Эдди и др.Перевод: Дублированный, Многоголосый закадровыйСубтитры: Русские (forced)*, Русские (DeadMan совместно с 7Kingdoms.ru), Русские (Dara, Opel при участии сайта Цитадель Детей Света), Украинские (Serpanok), Английские, ФранцузскиеПродолжительность: ~ 00:60:00 x 1-10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463903   (80730) от 07.03.2012
+
+Windows 7 Ultimate x86 v.03.2012 (Иваново) Чистая без программ v.03.2012 [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образа ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.  Интегрирован загрузчик boot.wim от Core-2. Как написано в "шапке" это чистая сборка без программ, изменен внешний вид сборки, заменены все иконки, темы виндовс, а также добавлены свои темы и обои, звуки входа - выхода заменены на "Привет - Пока", система пропатчена для посторонних тем, добавлены дополнительные гаджеты, "танцы" с реестром не производилось, отключен контроль учетных записей, установлены все полезные обновления по 06.03.2012 г.Название программы: Windows 7 Ultimate x86 v.03.2012 (Иваново) Чистая без программЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463990   (80733) от 07.03.2012
 
 Декстер / Dexter (1 сезон, 1-12 серия из 12) (2006) [720p] BDRip [NovaFilm]
@@ -6,7 +78,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80733.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80736.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:05F9CDC925C313794BAAEC5643EEF4D285B5A2BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80737.jpg" />
 </div>
 
 
@@ -89,7 +161,7 @@ magnet:?xt=urn:btih:485B0B3BA7E3D0822AEF47EF308D29317EA523B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80745.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Whispers / Шепот (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80746.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ Badfinger - No Dice (1970) [FLAC|Lossless]<Rock, pop, power pop, pop rock, hard 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80747.jpg" />
 </div>
 
 
@@ -171,7 +243,7 @@ Badfinger - No Dice (1970) [FLAC|Lossless]<Rock, pop, power pop, pop rock, hard 
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80748.jpg" />
 </div>
 
 
@@ -195,7 +267,7 @@ The Last Remnant Original Soundtrack (2008) [MP3|~245 kbps]<GameSoundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80751.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ Various Artists - Twisted Metal (2012) [MP3|192 кб/с]<Soundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80756.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:D0C8FC5B1C696EDFA59C3292F653E01232F55B3C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80757.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:4764F6590F2E4964CC9070415BB01FDEEF82884C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80758.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:20DD456B94B405BF7A159926320356DB761CFBB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80763.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:A4BB5DE216C216FC2797156632D47CCB30787479
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80764.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:83C0B85259BD0F0E4719382311E8BEA24EEB1B15
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80769.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:741728C33AE39C2177FFAB3B12613987FF78A2A2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80774.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ magnet:?xt=urn:btih:474177289C6B8AE8A7EB7FA319872AE5F05FA5C3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80777.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:1A8C0D32122064E0C43F4F7618B4D58807CABF5C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80779.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ VA - Музыка и ритмы народов мира - Пакистан и А
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80784.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ Windows 7 Codec Pack 4.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80785.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ Windows 7 Codec Pack - мощный набор кодеков, который с
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80787.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Cliff Lin - This Is War (2012) [MP3|192 кб/с]<Alternative rock/Industrial Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80794.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ magnet:?xt=urn:btih:A31017EB44417F159C67C0B744C738E76CA0C7DC
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80795.jpg" />
 </div>
 
 
@@ -590,7 +662,7 @@ magnet:?xt=urn:btih:10A083E7697B488A1F9DAD6A80ED3B2CB9A89973
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80800.jpg" />
 </div>
 
 
@@ -602,83 +674,6 @@ magnet:?xt=urn:btih:10A083E7697B488A1F9DAD6A80ED3B2CB9A89973
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB477AD4E089A52A4B801D45E0198AEA70BBAD0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464460   (80801) от 08.03.2012
-
-Журнал | Авторевю [Россия] №5 [март  2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233F5E65F481A2F6D2C0D425AFD74EA37CA22C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464753   (80803) от 08.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 25
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80803.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 25
-Название: Sexy Girl Wallpapers Pack 25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1600х1200 до 5000х2000
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D0A78DF7795B2343F5472BF08F2E7A7B108925
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462552   (80804) от 08.03.2012
-
-[Клипарт] Фото знаменитости/Анастасия Заворотнюк
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80804.jpg" />
-</div>
-
-
-###  Подробнее
-
-фотки Анастасии Заворотнюк
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9B7E5AA97695F097A981D4F0C694B0ACBB751
 ```
 
 

@@ -6,7 +6,7 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gumroad, Dan Kenton | Revolver Texturing Tutorial (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63052.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F898F7591FC68727B726D64764872373D8D7A69D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63053.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Reg Organizer 9.41 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63054.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63055.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63056.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ TechTool Pro 19 v.19.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63057.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:9E7CA8A5DD61F5E98306F8C68EE4A0952A4A8C17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63058.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:046DC08A4099322BB6FADCFA2FE92A7F423207E0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63059.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BDE8AB034C6F63419CA72AAA19F53ED0B132E7FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63060.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MEmu 9.1.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63061.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:50C6290B19A4C0935AB8099F3E7B7975F0AE9CCD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63062.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:1FE3AA4867EEE7923D8AAF2B1C8A1802D98796F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63063.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EC4BF5D1427FB2976FC5231B609CA8454BCBD118
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63064.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:8D5BC673B80E598ED969B73ADAF9FA2F84468E99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63065.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Connected Hearts 4: Cost of Beauty / Связанные сердца 4: Цена
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63066.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:2FE1FB59713659FF1A2AC6414A81E978588B1F3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63067.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:8AA2C9A24A76B7DF465B004CD78A8176A65080D2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63068.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ XYplorer 25.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63069.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:521640D68758B7E2A8AAF7AAA1B2BA5D0992854A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63070.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ StartAllBack 3.7.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ StartAllBack 3.7.6 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63072.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:290C95699DE6A2A87AD4C05F556D72DFE8516AB9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63073.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63074.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9A6B637844237DE43FBA8711223ACC4C62A6899D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63075.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Big Adventure: Trip to Europe 7 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63076.jpg" />
 </div>
 
 

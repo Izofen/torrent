@@ -1,3 +1,149 @@
+###  Публикация: 1088449   (140073) от 30.12.2016
+
+Андерс Эрикссон, Роберт Пул | Максимум. Как достичь личного совершенства с помощью современных научных открытий (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стать специалистом высочайшего уровня – вопрос не только и не столько природных способностей к тому или иному виду деятельности. Мы привыкли рассуждать о врожденном таланте скрипача, математика, теннисиста, нас интригует умение запоминать длинные тексты и перемножать в уме огромные числа. Андерс Эрикссон, шведский психолог с мировым именем, профессор Университета (   Читать дальше...   )Жанр: Зарубежная психология, Личностный рост, Самосовершенствование, Популярная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667D69E424B6A8ED1D6FB108127F196A3E9CDB9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579462   (140075) от 30.12.2013
+
+Клуб Винкс / Школа волшебниц /Winx Club (2012) WEBDLRip (Cезон 5, Серии 1-26 из 26)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключение команды Винкс! Феи отправляются в Гардению на поиски магического цветка - Лило. По неприятному стечению обстоятельств, мистическую силу цветка забирают себе давние враги Винкс - Трикс! Так начинается новое приключение многими любимых фей! Их ждут тернистые испытания судьбы, волшебные встречи и большие разочарования!Жанр: Мультсериал, Анимация, Приключения, ФэнтезиПеревод: Дублированный (Русский дубляж, СТС)Продолжительность: Каждая серия ~ 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCEAB496B5AC0ACCD8334B21AA7E83A94B43483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679196   (140076) от 24.11.2023
+
+Ричард Осман | Выстрел мимо цели (2023) [MP3, Наталья Гребенкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нераскрытое дело десятилетней давности — звучит как вызов для Клуба убийств по четвергам! А если добавить, что исчезнувшую Бетани Уэйтс, восходящую звезду местного телевидения, так и не обнаружили, то получится загадка, мимо которой Элизабет, Джойс, Ибрагим и Рон просто не могут пройти. Успешно начавшиеся поиски омрачает внезапное появление врага Элизабет, который (   Читать дальше...   )Жанр: детектив, триллерИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 12:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA0908FE0F4748B88FF1A351972020F011033A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349065   (140077) от 30.12.2019
+
+PullTube 1.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F491D0DA99F99B3E24C9B2E0387335952C70E3C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435719   (140078) от 29.12.2020
+
+Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frontend-разработчик создаёт интерфейсы, с которыми будут взаимодействовать пользователи, верстает сайты по современным стандартам, виртуозно владеет JavaScript, HTML, CSS.
+
+Это востребованная и высокооплачиваемая профессия, которая включает технические и творческие компоненты. На позиции frontend-разработчика можно делать интернет лучше и удобнее.Производство: GeekbrainsЖанр: Веб-разработка.Продолжительность: 16:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B79A1180984C30DC6C599F37D9F5E9F24984D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970546   (140079) от 30.12.2015
+
+Павел Воля. Большой Stand-Up / Камеди Клаб / Комеди Клаб / Comedy Club (30.12.2015) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раз в год и палка стреляет, а Павел Воля даёт большой сольный концерт в столичном Crocus City Hall! Ни в коем случае не пропустите его телеверсию: следующего сольного Волю придётся ждать ещё год.Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C643C789E8A3BA01A051D065FA655DA50EEEA8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088452   (140080) от 30.12.2016
 
 Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
@@ -6,7 +152,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140080.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140083.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ magnet:?xt=urn:btih:0A266AE57169D1D9C32140F79EB8330F065AC292
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140084.jpg" />
 </div>
 
 
@@ -78,7 +224,7 @@ magnet:?xt=urn:btih:3DFD231F22C49586771FDF11CD313958458C8CEF
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140085.jpg" />
 </div>
 
 
@@ -102,7 +248,7 @@ magnet:?xt=urn:btih:10AECA187BCD86C039D8D3D43DF01CED575F023D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140086.jpg" />
 </div>
 
 
@@ -126,7 +272,7 @@ magnet:?xt=urn:btih:07EAE49101E10FE0F567F279C472226B496625AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140087.jpg" />
 </div>
 
 
@@ -150,7 +296,7 @@ Win7codecs 3.9.2 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140090.jpg" />
 </div>
 
 
@@ -176,7 +322,7 @@ Win7codecs - пакет кодеков для установки в операц
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140091.jpg" />
 </div>
 
 
@@ -200,7 +346,7 @@ Download Master 6.15.1.1585 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140092.jpg" />
 </div>
 
 
@@ -224,7 +370,7 @@ magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140093.jpg" />
 </div>
 
 
@@ -248,7 +394,7 @@ magnet:?xt=urn:btih:FF85FDB76B76BC28BB7816A61EB9116BA13FDFC7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140094.jpg" />
 </div>
 
 
@@ -272,7 +418,7 @@ magnet:?xt=urn:btih:E98BC539F704653135968829636CDB18A543EB92
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140095.jpg" />
 </div>
 
 
@@ -296,7 +442,7 @@ In Tormentata Quiete - 4 Albums (2005-2017) [FLAC|Lossless|image + .cue] <Folk R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140096.jpg" />
 </div>
 
 
@@ -323,7 +469,7 @@ Sebastian Bach - Give 'Em Hell (2014) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140097.jpg" />
 </div>
 
 
@@ -350,7 +496,7 @@ Scanner - The Signal Of A Signal Of A Signal (2019) Touched Music [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140099.jpg" />
 </div>
 
 
@@ -377,7 +523,7 @@ magnet:?xt=urn:btih:674EA64AA45D2463612B97D932E8AC0AFFCD7148
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140101.jpg" />
 </div>
 
 
@@ -401,7 +547,7 @@ magnet:?xt=urn:btih:4A5F26F8AB0CD632280F002B7D8FD17EE2E8E645
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140102.jpg" />
 </div>
 
 
@@ -425,7 +571,7 @@ Daum PotPlayer 1.7.16291 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140103.jpg" />
 </div>
 
 
@@ -449,7 +595,7 @@ magnet:?xt=urn:btih:B29969539CE2D5457EA308AAD3959A2B4A68E800
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140104.jpg" />
 </div>
 
 
@@ -473,7 +619,7 @@ magnet:?xt=urn:btih:E66AB457ED69B7AFD264861D61719116773F759C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140105.jpg" />
 </div>
 
 
@@ -485,159 +631,6 @@ magnet:?xt=urn:btih:E66AB457ED69B7AFD264861D61719116773F759C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E6537375D94B4210172882987D0CEEB30A3ECD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348958   (140106) от 30.12.2019
-
-Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Freja's Choice
-02 Varangian
-03 Forged In Iron - Crowned In Steel
-04 Born For Battle (Black Dog Of Brocéliande)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435184   (140109) от 29.12.2020
-
-Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/1080p] [MVO] [IMAX Edition]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Многоголосый любительский (DuoWave)Субтитры: Русские, английскиеПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740DC97192474B46804D87AFDF583D1A63ED91C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678928   (140111) от 24.11.2023
-
-VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soultrend Orchestra - About Love (Instrumental) (4:00)
-02. Zerosospiro - Diamonds Are Forever (Instrumental) (4:19)
-03. Bluedots - Behind The Clouds (2:31)
-04. Soulstance - Sweet Sorrow (5:58)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D6BB6C58D8A0B725CF5283F12C8B5BB11638C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087953   (140112) от 30.12.2016
-
-Проекты - VideoHive - 50 Modern Titles - 17047191 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140112.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 Modern Titles - 50 текстовых анимированных элементов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702452EA3D6EE61869356B083306F70D40725616
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520612   (140113) от 29.12.2021
-
-Виктор Тюрин | Ангел с железными крыльями (Книга 1) (2021) [MP3, Константин Корольков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сознание умирающего юноши переносится в тело потерявшего память поручика-артиллериста. Идет 1915 год. Вначале герой воспринимает новое тело как подарок судьбы, ведь, пролежав большую часть жизни на больничной койке, он получил в свое распоряжение целый мир и теперь ему надо наверстать все, что было упущено в той жизни. Герою придется схватиться с уголовным миром (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DD8CCE7F5F050DDFEBFB68901B6E2851ECAABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349071   (140115) от 30.12.2019
-
-Yate 5 v5.0.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686E5C3CF65D13B657ED17DEEA566E471A310FD9
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1827412   (186095) от 21.10.2025
+
+v2rayN 7.15.4 portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186095.jpg" />
+</div>
+
+
+###  Подробнее
+
+v2rayN — это универсальный инструмент VPN и прокси, разработанный для устройств Windows. Позволяет пользователям обходить интернет-ограничения, шифровать свои данные и с легкостью получать доступ к контенту ограниченному регионом.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC21C08BFA6D654C1574789142D44E5709070BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827410   (186097) от 21.10.2025
+
+UltraSearch Professional 4.8.3.1183 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186097.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A72DAC03BAA0216FA9CA179F3F8F29E313C4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827389   (186104) от 21.10.2025
+
+Flyoobe 1.40 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
+После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571051FCF02CD2D056333B1929F039B5A49DDF6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827351   (186121) от 21.10.2025
 
 Notepad++ 8.8.7 Final + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ Notepad++ 8.8.7 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186121.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:CABCDCCB787DAE0FE5EBD4AA8B16FBED5BE867B0
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186161.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ IObit Uninstaller Pro 13.1.0.3 [Multi/Ru] (акция Comss)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186394.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186394.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ FontCreator Professional Edition 14.0.0.2888 Portable by AlexYar [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187075.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187075.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ WinPing 2.56 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187323.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187323.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187688.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ Chromium 141.0.7390.123 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187860.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187863.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187863.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ RAM Saver Professional 25.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187873.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Office Installer & Office Installer+ 1.30 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187880.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187880.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r27 Portable by Ratiborus [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187881.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187881.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187900.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Typora 1.12.2 (x64) Portable by IDE`a [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187931.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187931.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ YT Downloader 9.17.10 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187963.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187963.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ Display Driver Uninstaller 18.1.3.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187987.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ MyLanViewer 6.6.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188029.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188029.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Ant Download Manager 2.16.1 Build 91718 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188030.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188030.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188415.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188415.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ Pale Moon 33.9.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188792.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188792.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ Mailbird Pro 2.9.68.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189252.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ GPXSee 13.8 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190038.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ WinUtilities Professional 15.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190397.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by zeka.k [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190798.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190798.jpg" />
 </div>
 
 
@@ -555,78 +628,6 @@ CPUID HWMonitor - утилита предназначена для монито�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECDBA4CAD0D9854B311238FEA7C00F89CCE9AB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658648   (191060) от 08.09.2023
-
-Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы — геймер, то наверняка задумывались о том, как проще всего сохранить прохождение любимой игры на видео и поделиться им с товарищами и соперниками. Используйте Movavi Gecata – приложение для съемки игрового процесса без лагов и почти без потери fps. Сохраните эпичные битвы в World of Warcraft или захватывающие матчи в Counter Strike!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5493DA365188A1F39AFF932C24036FE38FBD49CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587111   (191190) от 05.11.2022
-
-Discord Web-Portable by DVLZ 1.2
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discord - мессенджер для текстовой, голосовой и видеосвязи, в основном ориентированный на геймеров.Язык интерфейса: Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588546   (191192) от 05.11.2022
-
-uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191192.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```
 
 

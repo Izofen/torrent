@@ -6,7 +6,7 @@ Ahnenstahl - Zwischen Tod und Leben (2006) [FLAC|Lossless|image + .cue] <Epic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39466.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:654BF5605802FF932203C2C9CEB4098B5E40BA13
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39598.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC|Lossless|image + .cue] <Progressive, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39644.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Showaddywaddy - 20 Greatest Hits (1992) [FLAC|Lossless|image + .cue] <Rock, Pop,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39645.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Europica - Part Two (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39646.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nasty Savage - Jeopardy Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39647.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39648.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wind Rose - Trollslayer (2024) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39650.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|image + .cue] <Melodic Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39651.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Die Gesellschaft der Grauen Herren - Imagines Itineris (2014) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39652.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hazael - Thor (1993) Reissue, 2014, Dark Descent Records [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39653.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jon Anderson & The Band Geeks - True (2024) Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39753.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Find Me - Nightbound (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39759.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:B84B60AC944EEBC16E37119BDE8AAD4EB998387E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39764.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Within Temptation - 9 Albums + 6 Live + 1 Demo + 11 EP'S + 28 Singles + 1 Compil
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39822.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Константин Ступин. Трибьют. Часть 3 (2024) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39950.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:358A0C39D1D224E9F89D4AD90F9D147626FD70E1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39956.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:27E414FB0190B7E4BBA2B8CC56D6CAC08B178C3D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39957.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Little Richard - The Best Songs of Little Richard (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39965.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39990.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Nationwide - Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40058.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [MP3|320 Kbps] <Southern Rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40066.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Chesterfield Kings - We're Still All The Same (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40068.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40072.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Cocinando Con Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40091.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40092.jpg" />
 </div>
 
 

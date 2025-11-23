@@ -1,3 +1,77 @@
+###  Публикация: 592464   (135840) от 21.12.2012
+
+CCleaner 3.26.1888 + Portable [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135840.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, eMule, Kazaa, Google Toolbar, Netscape, Office XP, Nero, Alcohol 120, Adobe Acrobat, WinRAR, WinAce, WinZip, GetRight, Morpheus, Download Accelerator Plus, VirtualDub, ZoneAlarm и многих других.
+
+(   Читать дальше...   )Название программы: CCleanerЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592244   (135842) от 21.12.2012
+
+Подборка маразмов (20.12.12)
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка маразмов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E6AC2851008E6F9060EBAD4C54E08B6DAFE085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592077   (135843) от 21.12.2012
+
+Русификатор WinX HD Video Converter Deluxe 3.12.5 b.20121210 by Kopejkin
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русификатор - программа, предназначенная для добавления русского языка или замены, в данном случае, английского языка интерфейса на русский в программе WinX HD Video Converter Deluxe 3.12.5 b.20121210Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592000   (135844) от 21.12.2012
 
 USB Disk Security 6.2.0.18 DC 20.12.2012 [MULTi / Русский]
@@ -6,7 +80,7 @@ USB Disk Security 6.2.0.18 DC 20.12.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135844.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135844.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ Mежиздательская серия | Бестселлер года (32 т�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135845.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ WebcamMax 7.6.8.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135850.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135850.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135851.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:23FBA38C9C1FEED27C44B0FBBFA8848BE83CA005
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135854.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135854.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:23FBA38C9C1FEED27C44B0FBBFA8848BE83CA005
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135857.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ Placebo - B3 (E.P.) (2012) [FLAC (tracks+.cue)|Lossless]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135858.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135858.jpg" />
 </div>
 
 
@@ -185,7 +259,7 @@ Placebo - B3 (E.P.) (2012) [FLAC (tracks+.cue)|Lossless]<Alternative Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135863.jpg" />
 </div>
 
 
@@ -209,7 +283,7 @@ magnet:?xt=urn:btih:E67E6FA841A520EAC367AD81607EBDDD914A9C27
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135864.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:CBB6118D61F45151B1C83D3BFC4E631148B281C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135867.jpg" />
 </div>
 
 
@@ -257,7 +331,7 @@ magnet:?xt=urn:btih:74E58033F6A879BDC23B38B55434A7F9019B059B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135872.jpg" />
 </div>
 
 
@@ -281,7 +355,7 @@ magnet:?xt=urn:btih:96DD0B9FE86E30EFA976FDA2866138EDF20702FB
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135873.jpg" />
 </div>
 
 
@@ -305,7 +379,7 @@ magnet:?xt=urn:btih:D57E67042D111169A5E143DE60370C10FF741733
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135878.jpg" />
 </div>
 
 
@@ -329,7 +403,7 @@ magnet:?xt=urn:btih:2FEA771A4400F11CAB42AB34A9D5C1375EFF38B8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135879.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ magnet:?xt=urn:btih:73701C520888EA35331A575E37341C1B85E047FD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135882.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ AnyDVD HD 7.1.3.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135883.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135883.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135884.jpg" />
 </div>
 
 
@@ -427,7 +501,7 @@ magnet:?xt=urn:btih:D1FF42356F9C6FCEA14CE99BCF534CE8E03011CC
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135885.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ magnet:?xt=urn:btih:4813CEAA65B829F023720ED91684E2FBC7A5BCC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135887.jpg" />
 </div>
 
 
@@ -475,7 +549,7 @@ magnet:?xt=urn:btih:EB1C7B23B61A8FE0E6D18AB3E4E39865260B64D8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135890.jpg" />
 </div>
 
 
@@ -499,7 +573,7 @@ magnet:?xt=urn:btih:EB1C7B23B61A8FE0E6D18AB3E4E39865260B64D8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135892.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ magnet:?xt=urn:btih:D4E361F9662AC78528C2B5ED157EEAE2D16841C2
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135894.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ magnet:?xt=urn:btih:D91EC09112E7599F06F67FD3B1A25A6DE78FEEAF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135897.jpg" />
 </div>
 
 
@@ -559,96 +633,6 @@ magnet:?xt=urn:btih:D91EC09112E7599F06F67FD3B1A25A6DE78FEEAF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4F3D9E9B15178B136B5D6E0DCFBB681793C50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592327   (135901) от 21.12.2012
-
-Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Always Get What You Want - Luther Allison
-02. Tumblin' Dice - Johnny Copeland
-03. (I Can't Get No) Satisfaction - Junior Wells
-04. Wild Horses - Otis Clay
-05. Honky Tonk Women - Taj Mahal
-06. Sway - Alvin 'Youngblood' Hart
-07. Ventilator Blues - Clarence 'Gatemouth' Brown
-08. Beast Of Burden - The Holmes Brothers
-09. Under My Thumb - Lucky Peterson
-10. It's All Over Now - Bobby Womack(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591098   (135905) от 21.12.2012
-
-VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для  NoNaMe Club PokerTourПродолжительность: 01:02:52
-
-1. Seven Smiles - City Light (3:19)
- 2. DJ Coltsilvers - After The Party (3:50)
- 3. Zaia - Bugle Sound (3:59)
- 4. Brenda Wilson - What A Differenc E A Day Makes (4:59)
- 5. Michel Leca - Los Colores De La Rosa (4:02)
- 6. John T'man Taylor - Don't Wanna Sleep (5:27)
- 7. Liza Everson Feat. Alvin S - Le Freak (4:46)
- 8. Nicco - One Day In July (3:21)(   Читать дальше...   )Жанр: Lounge, JazzyПродолжительность: 03:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58CC7DB12E9B0C27B9FE1C61EB3BBDC425EDF38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592345   (135906) от 21.12.2012
-
-Граница (2005) SATRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озинки — посёлок городского типа, административный центр, крупнейший населённый пункт Озинского района Саратовской области и одноимённая железнодорожная станция Приволжской железной дороги на стык с КТЖ. Будни одной погранзаставы на границе между Россией и Казахстаном, самой длинной сухопутной границе в мире. Некогда затерянный в заволжской степи районный поселок Озинки стал форпостом России на границе с Казахстаном. Но насколько легко провести разделительную линию на карте, настолько сложно разорвать сложившиеся традиции, человеческие связи. Однако у тех, кто по долгу службы обязан охранять российское государство, нет права на сантименты – они обязаны исполнять закон.Жанр: ДокументальныйРежиссер: М. СеливановаПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF52D970E3E627974823442081C443C09998DDF7
 ```
 
 

@@ -6,7 +6,7 @@ Ensiferum - Winter Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Folk Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40095.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40173.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - XX. Трибьют группе Артерия (2024) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40189.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stage of Reality - Digital God (2024) [MP3|320 Kbps] <Melodic Progressive Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40256.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40267.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kozoria - The Source (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40359.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Infornal FuckЪ - Музыка Категории Бэ (2024) [MP3|320 Kbps] <Pa
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40467.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40469.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Angra - Acoustic - Live At Ópera De Arame (2024) 2CD[FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40475.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - A Tribute To Rammstein (2023) [MP3|320 Kbps] <Industrial Metal, Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40666.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4377F34074F8C7E5D2DDEAC42863A0BF62A777F0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40676.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:364333D34BAD28FC7A93F88E8A2F44AF526C15F2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40678.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0AD450E94CDC6379340054E597DD9544E59C8F23
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40681.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Okean Elzy (Океан Эльзи) - Той день (2024) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40700.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - A Tribute To Rammstein (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40703.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Offspring - Supercharged (2024) [MP3|320 Kbps] <Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40704.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Coldplay - 15 альбомов, 2 EP (2000 - 2024) 18 CD [FLAC|Lossless|image+.c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40755.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dream Theater - Night Terror (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40778.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CEB59927E9DBCFC4DEA0C6279D31339F829F6199
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40782.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Okean Elzy (Океан Эльзи) - Lighthouse (2024) [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40825.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:F5A104890B0259D485C4E1535221E2E9A1FD05D4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40850.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Paul McCartney & Wings - Wild Life (1971) Archive Collection, Remaster, 2018, Pa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40861.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40874.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40896.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Robert Plant With Suzi Dian - Saving Grace (2025) Japanese Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40949.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40949.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Rob Zombie - Halloween Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41261.jpg" />
 </div>
 
 

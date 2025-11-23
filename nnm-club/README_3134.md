@@ -1,3 +1,82 @@
+###  Публикация: 1769812   (100587) от 30.12.2024
+
+Ф. Гутман, Л. Лайонс | Органические полупроводники (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга известных австралийских ученых Ф. Гутмана и Л. Лайонса является первым зарубежным изданием, в котором собраны и обработаны результаты исследований органических полупроводников, выполненных в нескольких тысячах оригинальных работ.
+В книге большое внимание уделено различным теоретическим подходам к изучению физики органических (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769773   (100588) от 30.12.2024
+
+VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Mirage
+02. Akmalov - Living is Beautiful
+03. Azimov - Leave Me
+04. Jumanov - Fight for Life(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769724   (100589) от 30.12.2024
+
+VA - Рождественский романс (2015) [MP3|320 Kbps] <Романсы>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Юрий Визбор - Милая моя [00:02:03]
+02 - Елена Фролова - Сегодня таяло, сегодня… [00:03:14]
+03 - Тамара Гвердцители - Элегия [00:04:24]
+04 - Марина Капуро, группа Яблоко - Однозвучно гремит колокольчик [00:03:58](   Читать дальше...   )Жанр: РомансыПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770109   (100590) от 30.12.2024
 
 Гарольд и Кумар уходят в отрыв / Harold & Kumar Go to White Castle (2004) BDRip [H.264/720p]
@@ -6,7 +85,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100590.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100590.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100591.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100592.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100593.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ magnet:?xt=urn:btih:31CD21F5A1ED39AC18FCC0802CB229D784A22A9B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100594.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100594.jpg" />
 </div>
 
 
@@ -129,7 +208,7 @@ magnet:?xt=urn:btih:94D2A764F204FD170DFFFC09D9F8CE684E0AB29B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100595.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100595.jpg" />
 </div>
 
 
@@ -153,7 +232,7 @@ magnet:?xt=urn:btih:CF6C369DC5FB8227AFCA05F9BD66BBB20D5FBED6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100596.jpg" />
 </div>
 
 
@@ -177,7 +256,7 @@ magnet:?xt=urn:btih:23345CDC7F7E8A1215368C632EC387020548CB34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100597.jpg" />
 </div>
 
 
@@ -201,7 +280,7 @@ magnet:?xt=urn:btih:CB79D2993AF43C7879C1654AF0FF5C17AF19F11D
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100598.jpg" />
 </div>
 
 
@@ -228,7 +307,7 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100599.jpg" />
 </div>
 
 
@@ -255,7 +334,7 @@ magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100600.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100600.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100601.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ magnet:?xt=urn:btih:64C8EEEAA3AD051A153039FD81DA92379B9E72D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100602.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100603.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ magnet:?xt=urn:btih:40F0B326F7307390B0BB9874930251BB4FCFE3B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100604.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100605.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ magnet:?xt=urn:btih:BA2224F5476FF801E248A6EC77A980745D8D2F3C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100606.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100606.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wilden
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100607.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ Natalia Lafourcade - Natalia Lafourcade Live at Carnegie Hall 2022 (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100608.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100609.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ magnet:?xt=urn:btih:B40DBF9C821435F27C5BE584DEF5C7801DABFB9B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100610.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ magnet:?xt=urn:btih:72EE4E7ED41A571252890E3764DF2667F6FE9BA4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100611.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_100611.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ magnet:?xt=urn:btih:3CE68444E7BCE9A63EEA909D3ABF03A85F379EE3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100612.jpg" />
 </div>
 
 
@@ -572,78 +651,6 @@ magnet:?xt=urn:btih:3CE68444E7BCE9A63EEA909D3ABF03A85F379EE3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A1C33A3BC03804705E7CBAFDC1DB99F7080F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769684   (100613) от 29.12.2024
-
-Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 11 класса (базовый уровень) (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник — основной элемент информационно-образовательной среды учебно-методического комплекта по химии для 11 класса. В учебнике систематизированы сведения по основам общей и неорганической химии, а также химической технологии. Материал учебника организован в соответствии с разными формами учебной деятельности, что даёт возможность отрабатывать широкий спектр (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D285C0D367B73FFBCE87F108159EB3C962FEC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769613   (100614) от 29.12.2024
-
-Экстрасенсы. Реванш (28.12.2024) WEBRip [H.264/1080p] (сезон 2, выпуск 17) (Финал)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96020B2C8FF56C10D8438D0CCB0ABAADC228809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769700   (100615) от 29.12.2024
-
-Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драконы, ведьмы, тролли. Никому не совладать с Анной. Получить свое ей помогают телекинез, нестандартный подход к использованию инструментов для пыток, умение импровизировать и таинственная лиса. Она общается с мертвыми, мешает местной таверне получить партию пива и добивается того, чтобы старушка попала за решетку.Впервые на мониторах - мир Дейна Крамса! Но не обманывайтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793101AB6AE173CC648158F061993982EAA52F33
 ```
 
 

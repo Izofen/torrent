@@ -1,3 +1,78 @@
+###  Публикация: 1712449   (112190) от 02.04.2024
+
+Рудольф Распэ, Эрнст Теодор Амадей Гофман и др. | Сказки немецких писателей. Барон Мюнхгаузен (2013) [MP3, Татьяна Телегина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детям.
+Послушайте замечательные сказки Рудольфа Распэ, Новалиса, Эрнста Теодора Амадея Гофмана, Братьев Гримм, Вильгельма Гауфа и других немецких писателей.
+В оформлении использована музыка средневековья и раннего барокко.
+Издается без сокращений.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, рассказИздательство: Студия «АРДИС»Продолжительность: 08:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B436DF8C8F0539F57B84D7D509822C695E964CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712485   (112191) от 02.04.2024
+
+PowerDirector – Video Editor v13.4.0 b2404021 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.04.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F0B5CCAC1856751C50605F74A084AFB8FA998A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712204   (112192) от 02.04.2024
+
+Вкус греха / A Taste of Sin (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера, прощение, искупление и надежда. Два пастора, полярно отличающиеся друг от друга, борются с соблазнами: одного искушают деньги, а другого - страсть.Производство: Гана, Dominion TV, Sami's MediaЖанр: драмаРежиссер: Фрэнк Раджа АрасеАктеры: Такиваа Дансо Аджей, Кофи Аджорлоло, Акосуа Агьепонг, Марк Йебоа Акото, Абена Акуаба, Джеки Аппиа, Пол Аца, Блэкмор Айвор, Кейшейра Баффо, Экоу БланксонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 02:01:33Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C2C5514C754B000ED2825B5B82AD6D11AE1D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712492   (112193) от 02.04.2024
 
 VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
@@ -6,7 +81,7 @@ VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112193.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ VA - Fiji Golden Sunrise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112194.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:EE7D1E94545CAE742C29538F06241694FE2279F2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112195.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:592920F4DEBA4864AE8D39A74FD033E76D662B34
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112196.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ MarsEdit 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112197.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:A4D82BB1A78FA6F215D01E38FA4E642194CA94EF
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112198.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:89B1D27C868CFF2D8D030B4A423AD7E90A2F4944
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112199.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Sigil 2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112200.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ Firefox Browser 124.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112201.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:87D4DEFDA893C906ED0AB40501263A9D23049D0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112202.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:87D4DEFDA893C906ED0AB40501263A9D23049D0A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112203.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:7FE191E4F9C56B80C93F31191A6927A2C8B5F654
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112204.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ magnet:?xt=urn:btih:2567D9B4EEE7DC8DDFF6AAEA0A26CEADA6E3B977
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112205.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:80AF3F6215CE568597028E5F2E6141456BD2926C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112206.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ PageEdit 2.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112207.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ NonVisual Desktop Access (NVDA) 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112208.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ magnet:?xt=urn:btih:C205FFBF4B63ED3BDE24D48DE85439DECD78261F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112209.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:7E0BEA56DC9D9D21CA547F74BD19C46D9B35F428
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112210.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:BA2CF42508A6F0C2F42D6A744B2D2B5F1BCBF376
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112211.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ magnet:?xt=urn:btih:B07CD8A1DB65DDDEC874EB1B14D5FC7C05948DE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112212.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112212.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ Telegram Desktop 4.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112213.jpg" />
 </div>
 
 
@@ -520,7 +595,7 @@ FreeFileSync 13.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112214.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112215.jpg" />
 </div>
 
 
@@ -558,81 +633,6 @@ VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6855DCEEE337D069E619C9FCE31A97999503A321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712456   (112216) от 02.04.2024
-
-Грубая сила / Brute Force (1914) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из первых попыток кинематографа показать жизнь наших далеких предков. Пра-пра-прапредков. Короч, пещерных людей каменного века. И вот почему же общее развитие человеческой цивилизацииПроизводство: США, Biograph CompanyЖанр: короткометражный, фантазия, приключения, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Роберт Херрон, Мэй Марш, Уильям Дж. Батлер, Уилфред Лукас, Edwin Curglot, Альфред Пегит, Дженни Ли, Гарри Кэри, Джон Т. Диллон, Фрэнк ЭвансПеревод: немой с интертитрами (В. Сачков)Субтитры: итальянские (интертитры), русские отдельным файломПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9A110BD5C56EA6CC64FE0A729F545334407614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712290   (112217) от 02.04.2024
-
-LocalSend for Mac 1.14.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112217.jpg" />
-</div>
-
-
-###  Подробнее
-
-LocalSend — это кроссплатформенное бесплатное приложение, которое обеспечивает безопасную связь между устройствами через REST API и шифрование HTTPS. В отличие от других приложений для обмена сообщениями, использующих внешние серверы, LocalSend не требует подключения к Интернету или сторонних серверов, что делает его быстрым и надежным решением для локальной связи.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2022 - 2024 Tien Do Nam and LocalSend Contributors.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E3B97819C8D3F4615D4F26BA3F78052AAB42C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712186   (112218) от 02.04.2024
-
-VA - Music News vol.359 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lil Kate - Капли (02:04)
- 002. A Boogie Wit Da Hoodie - Steppas (03:21)
- 003. Agunda - Последний Закат (02:50)
- 004. Alex Warren - Before You Leave Me (02:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F18138B9EAB381EFA4459A39ED5CBC69CBE264E
 ```
 
 

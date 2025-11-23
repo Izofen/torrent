@@ -6,7 +6,7 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169986.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Funke and The Two Tone Baby - Reacclimate (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170429.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stay Design - Moirai (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170577.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Action/Adventure - Imposter Syndrome (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170598.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cold War Kids - New Age Norms 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170839.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171061.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171221.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173466.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173975.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174549.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174549.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174589.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174740.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175107.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175631.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175697.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175701.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176092.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176283.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176325.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -538,6 +538,60 @@ magnet:?xt=urn:btih:C2D2A8500D59874CA1A2E30E81A5F4353CE33000
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429201   (177658) от 05.12.2020
+
+Texas - Ricks Road (1993) Vertigo 518 252-2 [FLAC|Lossless|image + .cue]< Adult Alternative Pop/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Called Friend (3:42)
+ 02. Fade Away (3:06)
+ 03. Listen to Me (5:04)
+ 04. You Owe It All to Me (3:43)(   Читать дальше...   )Жанр: Adult Alternative Pop/RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4265B4C03D20FC4E1DAF4091605A5760252147D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071251   (177894) от 06.10.2023
+
+The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный студийный альбом английской альтернативной инди-рок группы The Heavy, выпущенный 17 сентября 2007 года в Великобритании и 8 апреля 2008 года в Соединённых Штатах, просто "порвал" публику. Хотя сначала он, пожалуй, разрушил все жанровые стандарты, представления о музыкальных стилях и т.д. Потому как за современным, порой легким звучанием выступает (   Читать дальше...   )Список альбомов:
+2007 - Great Vengeance And Furious Fire
+2009 - The House That Dirt Built
+2012 - The Glorious DeadЖанр: Alternative, IndieПродолжительность: 06:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEC27AE197B77DFC2E5829B06CD29C2564DF826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594475   (178218) от 01.12.2022
 
 Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
@@ -546,7 +600,7 @@ Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178218.jpg" />
 </div>
 
 
@@ -565,6 +619,33 @@ magnet:?xt=urn:btih:DE2F0349063D749F68781A770D74B3A5EEE714AD
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428905   (178323) от 04.12.2020
+
+Hollywood Undead - New Empire, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medicate (3:10)
+ 02. Comin' Thru The Stereo (feat. Hyro The Hero) (3:27)
+ 03. Ghost Out (2:44)
+ 04. Gonna Be OK (2:55)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD04EEF20FF80F69F862494DD6BDCFF26493265C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594057   (178826) от 30.11.2022
 
 Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
@@ -573,7 +654,7 @@ Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178826.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179416.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:973ED2063C4E2636F88E2A3FC5146FE3C30539BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666412   (179644) от 04.10.2023
-
-The Veer Union - Covers Collection Vol.1-2 (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightmare [00:03:55]
-02. I'm so Sick [00:03:05]
-03. White Noise [00:04:24]
-04. Nihilist Blues [00:04:48](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 01:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57571A35E6E56CD74E1B86182AAE1CB9A1989B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593757   (180026) от 28.11.2022
-
-Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Council
-2. Born From Blood FT. Danillo Visser
-3. Lachesis
-4. Redemption of the Ghoul(   Читать дальше...   )Жанр: Metalcore / DeathcoreПродолжительность: 00:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FA8F1E8C6FF78526432D5229D41936A055C71C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593619   (180450) от 27.11.2022
-
-Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleak [00:05:11]
-02. Retribution [00:05:44]
-03. Seclusion [00:06:45]
-04. To Be Alike [00:05:25](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A46DA73525BEFF434A77F24EA6D4A30E033B197
 ```
 
 

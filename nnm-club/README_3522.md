@@ -1,3 +1,75 @@
+###  Публикация: 1717350   (111254) от 19.04.2024
+
+Mozilla Thunderbird 115.10.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758610A933BC8CEE7EB2A92D3A6EFBDD7329D59B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717338   (111255) от 19.04.2024
+
+Calibre 7.9.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A699245288934DB04983549DF76BE2751665F4F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717184   (111256) от 19.04.2024
+
+Глеб Кащеев | Мастер реальности (2018) [MP3, Илья Веселов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван лишился родителей в младенчестве и проживает в школе-интернате. Каждую ночь ему снится одна и та же девушка. Однажды учитель выдает ему странный прибор, а Иван, несмотря на предостережение друга, нажимает на нем кнопку и оказывается в мире Нави. Поскитавшись по улицам, он находит новых друзей, выясняет, что вся история его детства – ложь и он, скорее всего, (   Читать дальше...   )Жанр: мистика, книги для подростковИздательство: ЛитРесПродолжительность: 12:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4FABB5F3C5ACF1E7576D235484B6B936498647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717216   (111257) от 19.04.2024
 
 Malwarebytes Windows Firewall Control 6.9.9.9 [Multi/Ru]
@@ -6,7 +78,7 @@ Malwarebytes Windows Firewall Control 6.9.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111257.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:DE4F6C326840546D6DFB4BC47C182A807518D002
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111258.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ YT Downloader 9.7.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111259.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:4F0FE19DC7E9A5CDC76FE847D2068ED3186D95DE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111260.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:C05D491D5724AB85CC4BC644E5DD1EA5CC67E652
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111261.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:BA4F81309F0412F8ED2BDBB128D1C85F3578BC8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111262.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Blank & Jones - Sunset Coffee (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111263.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111264.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111265.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ VA - Rooftop Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111266.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Brave Browser 1.65.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111267.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:BFD677945F8A0B0FDC07B8F1A4EBEE423D384B65
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111268.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111269.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111270.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ Walter Wanderley - Rain Forest (1966) 1990, Polydor [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111271.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:8D591FF513EB8D186DE7D0D053C7D3797A28DD33
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111272.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ DVNE - Voidkind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Metal, Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111273.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111274.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ Soul Twin Messiah - Soul Twin Messiah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111275.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ Anita O'Day - Live In Person (1976) 1993, Star Line Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111276.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ DVNE - Voidkind (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111277.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ Neal Francis - Francis Comes Alive (2023) Deluxe Edition, 2023, ATO Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111278.jpg" />
 </div>
 
 
@@ -579,7 +651,7 @@ Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111279.jpg" />
 </div>
 
 
@@ -593,83 +665,6 @@ Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991350FF2B92A5513DC94FE0001D527AB0295A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717182   (111280) от 18.04.2024
-
-PicWish: AI Photo Editor v1.6.10 Mod by derrin [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
-PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.04.2024Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716545   (111281) от 18.04.2024
-
-Лёша Закон (Алексей Глухов) - ''Нет Предела Беспредела'' (2024) [MP3|320 Kbps] <Acoustic, Punk, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Intro [00:01:42]
-02-Нет предела Беспредела [00:02:35]
-03-Разъебу [00:02:12]
-04-Православные Кресты [00:03:53](   Читать дальше...   )Жанр: Acoustic, Punk, ChansonПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B90A164C6BF34A07B2EDC5FE961A969C3A7791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717088   (111282) от 18.04.2024
-
-Q-Dir 11.55 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A627441F389EC0316C98AB77B3CC22B949F4B457
 ```
 
 

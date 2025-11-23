@@ -1,3 +1,76 @@
+###  Публикация: 1600748   (155342) от 28.12.2022
+
+RadioMaximus 2.31 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C211AE1A879E5848A54960BAC3C31154DFC9D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600650   (155346) от 28.12.2022
+
+4K Downloader 4.40.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155346.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD.
+Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4839EEB34D4DCDC1E37C7269013914F76AEF4456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518247   (155349) от 19.12.2021
+
+Wise Disk Cleaner 10.8.2.802 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7701EA10F5D8C4ADE8C7DF4BA5EFE3E843A0C882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194363   (155350) от 25.12.2017
 
 Бобслей. Кубок мира 2017-2018. 5-й Этап и Чемпионат Европы 2018. Инсбрук (Австрия). Мужчины-Четверки. 1-я попытка (17.12.2017) WEB-DL [H.264/720p-LQ] [EN]
@@ -6,7 +79,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155350.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ LDPlayer 9.0.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155351.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ magnet:?xt=urn:btih:1753954D20E1FA5F717BAAAD9D499F7C49CE839C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155356.jpg" />
 </div>
 
 
@@ -85,7 +158,7 @@ ISO Workshop 12.4 Pro RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155358.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Cкелетон. Кубок мира 2017-2018. 5-й Этап и Чемпион�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155361.jpg" />
 </div>
 
 
@@ -136,7 +209,7 @@ FFmpeg Batch AV Converter 3.0.1 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155365.jpg" />
 </div>
 
 
@@ -161,7 +234,7 @@ Edraw Max Pro 8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155368.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:D88588D29E1F9A9351DC512CA5A248398AA2D906
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155371.jpg" />
 </div>
 
 
@@ -212,7 +285,7 @@ Allegorithmic Substance Painter 2019.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155376.jpg" />
 </div>
 
 
@@ -236,7 +309,7 @@ magnet:?xt=urn:btih:7B4C1ED4FA01FF0129E739F67278CEE2087485D5
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155378.jpg" />
 </div>
 
 
@@ -260,7 +333,7 @@ Total Commander 11.02 (11.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155381.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ XYplorer 23.90.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155385.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ iZotope - RX 9 Audio Editor Advanced v9.2.0 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155388.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ Malwarebytes Windows Firewall Control 6.9.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155390.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Path Finder 9.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155391.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ Zubrowska - Zubrowska Are Dead (2010) [MP3|192 кб/с]<Brutal Death / Mathcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155392.jpg" />
 </div>
 
 
@@ -414,7 +487,7 @@ magnet:?xt=urn:btih:16C65D91776F58386CF47EAF1C011656897A9216
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155394.jpg" />
 </div>
 
 
@@ -438,7 +511,7 @@ VBT - Just The Tip (2012) [MP3|320 кб/с]<Death Grind>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155399.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ Macrium Reflect v 7.2.3954 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155400.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Aiseesoft Data Recovery 1.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155410.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ Dehumanized - Controlled Elite (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155418.jpg" />
 </div>
 
 
@@ -555,7 +628,7 @@ magnet:?xt=urn:btih:C7D5067B0A2807DD0867579B4F54A3C839989DBD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155419.jpg" />
 </div>
 
 
@@ -582,7 +655,7 @@ magnet:?xt=urn:btih:9D710B687CBD9B8D51B69A0E5A228D84E1126957
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155432.jpg" />
 </div>
 
 
@@ -593,80 +666,6 @@ magnet:?xt=urn:btih:9D710B687CBD9B8D51B69A0E5A228D84E1126957
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E646BEADEFAEB3EE43C2353CED9035724BC5EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968379   (155443) от 23.12.2015
-
-Red Giant Magic Bullet Suite 12.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Bullet Suite представляет собой набор из восьми инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion и Avid Media Composer. В пакет включены - Cosmo, Colorista, Denoiser, MisFire, Mojo, Magic Bullet Film (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 декабря 2015Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013C6EFB75E7210D27BCE3C3759E9B5B40CEC6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676693   (155444) от 14.11.2023
-
-BiglyBT 3.5.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vuze (изначально называвшегося Azureus) создали новый продукт на его основе и опубликовали как Open Source — BiglyBT.
-Azureus — свободный BitTorrent-клиент, созданный в 2003 году на базе Standard Widget Toolkit от Eclipse и ставший одним из самых популярных клиентов в мире. Позже его оригинальные разработчики выпустили проприетарную редакцию приложения Vuze под крылом (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A4CDA0C0758225C59F2A37A60976387E5AC3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433646   (155445) от 21.12.2020
-
-Movavi Screen Recorder 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Screen Recorder - программа для захвата видео с экрана монитора и создания скриншотов всего экрана, выбранного окна или части окна.
-Готовые ролики можно конвертировать в форматы, поддерживаемые более чем 180 мобильными устройствами. В процессе записи видео присутствует возможность записывать программные звуки или свой собственный голос. Программа имеет возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122A38C39A2FCC0B1DB8254AFA305408C522FEF1
 ```
 
 

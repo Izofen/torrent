@@ -6,7 +6,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83183.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87054.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88721.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Toy Soldiers + 2 DLC [En] (RePack) 2012 | Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102114.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Arsenal: Taste the Power [Ru] (RePack) 1996 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102518.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102518.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102536.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114749.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116625.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Hearts of Iron / День Победы (2002-2009) [Ru] (1.06c/1.3b/1.3a/1.2/1.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116975.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116991.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ General Strategic Simulations Inc. Anthology (1994-2000) [En] License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118027.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119387.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124456.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124991.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125674.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Company of Heroes 3 (2023) [Ru/Multi] (1.4.2.21612/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127184.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130488.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130490.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ SGS Taipings (2023) [Ru/Multi] (23.07.21) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131301.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Demigod / Demigod. Битвы богов [Ru/En] (RePack/1.30.154) 2009 | R.G. �
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131765.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134407.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136919.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.7.1/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136921.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137416.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wargame. Anthology / Wargame. Антология (2012-2014) [Ru/Multi] (17.08.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139398.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Champions of Anteria (2016) [Multi] (1.7.499537.X/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147475.jpg" />
 </div>
 
 

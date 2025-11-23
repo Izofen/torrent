@@ -6,7 +6,7 @@ Triangle Square - Compilation (2025) [MP3|320 Kbps] <Electronic, Deep House Remi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - National Pop Dance Music Vol.103 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67937.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67971.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68011.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Vesna [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Nu Disco, Funky House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68037.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Night [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68038.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Vodoley [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68039.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68040.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68160.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Spatial Vox - Collection (2025) [MP3|320 Kbps] <Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68185.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68234.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Energy Of Calm Sound Currents (2025) [MP3|320 Kbps] <Chillout, Ambient, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68612.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Vino Amaro - Big Canzone Italiana (2019) [MP3|320 Kbps] <Canzone Italiana>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68669.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Aries Beats - Collection (2023) [MP3|320 Kbps] <Synthwave, Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68800.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Rodle - Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68868.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Compilation Part 149 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68890.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69747.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Magical Mind (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69944.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Compilation part 145 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69946.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Gamma Ray - Compilation (1990-2021) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70028.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Trance In Motion. Vol.386 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70065.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Compilation  part 144 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70217.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70219.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70222.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Electronic Lyrics (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70286.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ blur - Compilation (1991-2023) [MP3|320 Kbps] <Britpop, Indie rock, Art rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70447.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31762.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B0602135474CDC5C93109E87158006AFD03AEC0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31763.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6184A5A7EF25AB34C76481863930C2AB6424A129
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31764.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:50413C11E86F4435861D9B581052B6B318B6204E
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31765.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Surf | Flutter-разработчик - практический онлайн-к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31766.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:91DC870717DC9C39F676A5274BCF8D41B617359B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31767.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack R.G. Freedom
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31768.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A410239AAEA44C768144740FCA36BA063BFCB930
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31769.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip 3D [H.
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31770.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ XRecode 3 1.161 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31771.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:415C5A4FFAFCA305D02B88ECB708ACBC9D712586
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31772.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Advanced Renamer 4.07 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31773.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F9A5E210A6F50C6A32980FC9059236BEC73BDE0D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31774.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31775.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F9E50B7DA7DEDC4C0F042B96EDE946D7307D5440
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31776.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Bluetana | In Love We Dive (2025) [PDF] [EN]
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31777.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:7B009A0658ADA6ABC0DFC98E5CEB00F465751D1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31778.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:CCB1F7E38509691D87FD857523F13194FE3B877B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31779.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D693412389C79657A77A3A101484297222C61832
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31780.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9A24A541E011CDD9F9BF1210B6FC9FC79B7699F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31781.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31782.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31783.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:B5C771CBBF3BD3DF73127C863301C2A88C8E8D2E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31784.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Draw.io 26.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31785.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:B8A1F03191AD5309C12C15BF2858479105982F3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31786.jpg" />
 </div>
 
 

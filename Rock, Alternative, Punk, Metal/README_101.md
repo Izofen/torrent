@@ -6,7 +6,7 @@ Entering Polaris - Myths In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103456.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103481.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103486.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103494.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103496.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103497.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103499.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103500.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103501.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103506.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103533.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103567.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103582.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103583.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103584.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103585.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103589.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hydra - Rehydration (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103610.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Eclipse - Megalomanium II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103631.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) EP [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103632.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103638.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103640.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gabrielle De Val and The Dragonlords - Tiger (2024) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103642.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Enchanted Duo - Werifesteria (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103646.jpg" />
 </div>
 
 

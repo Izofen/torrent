@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BA82A440EEE7E4D524C4783869E0DD91E524EBCF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55486.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8E1E429A4FCF5A33D9E33136B625D3E5BBDE4D70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55487.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55488.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55489.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wondershare Filmora 13.3.12.7152 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55490.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wondershare Filmora 13.3.12.7152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55491.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5D5F872B95404D824071B97DA957419E328A2EC9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55492.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ DDR6 может предложить скорость до 21 Гбит/с. JEDEC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55493.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DDR6 может предложить скорость до 21 Гбит/с. JEDEC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55494.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Topaz Photo AI 3.0.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55495.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FastStone Capture 10.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55496.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fast Video Cutter Joiner 4.8.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55497.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:F206CFEC038250B716B16D99B2489D60BCC44CE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55498.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Serif Affinity Photo 2.5.0.2471 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55499.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Music News vol.380 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55500.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E33F2EBF37C72AA2A2C06F974E40859B31158465
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55501.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Vit Registry Fix Pro 14.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55502.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:2348966F43DF471A40D046F27A7EBA4A8A496CBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55503.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A25B1F88B9E637BF731B269654A8EAE5ED359F64
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55504.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:581CF598E9E7FEDF9584022C1CE3E5971E628C5A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55505.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:864E8F5B582AD8F656C491A4B001322763BFD80B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55506.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Topaz Gigapixel AI 7.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55507.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Serif Affinity Photo 2.5.0.2471 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55508.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55509.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:E78CEBCF8350393680B1035087DCDCFD9979DA7A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55510.jpg" />
 </div>
 
 

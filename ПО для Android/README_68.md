@@ -1,3 +1,77 @@
+###  Публикация: 1589086   (195587) от 16.07.2023
+
+PictureThis - Plant Identification v3.58 [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: ModРелиз состоялся: 13.07.2023Разработчик: Glority LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595239   (195614) от 15.07.2023
+
+ПУЭ-7 v2.14 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильная версия ПРАВИЛ УСТРОЙСТВА ЭЛЕКТРОУСТАНОВОК - седьмое издание.
+
+"ПРАВИЛА УСТРОЙСТВА ЭЛЕКТРОУСТАНОВОК (ПУЭ) Издание седьмое". УТВЕРЖДЕНЫ Приказом Минэнерго России от 08.07.2002 № 204. В книге приведены требования к устройству электрической части освещения зданий, помещений и сооружений различного назначения, открытых пространств и улиц, а также требования (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 08.07.2023Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A088AAE5E90A6FA8AB0B16E36ABEF4D91301CF39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647173   (195629) от 17.07.2023
+
+Chronus Home & Lock Widget / Информационные виджеты Chronus 22.7.6 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chronus Home & Lock Widget - отличное приложение, что является набором виджетов для рабочего стола или экрана блокировки. При этом стоит отметить тот факт, что каждый из них обладает очень гибкой системой настройки. Что обеспечивает пользователей собственным редактором. Потребуется немного труда и усилий, чтобы получить именно то, что требуется человеку желающему (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.06.2023Разработчик: DvTonderПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575568   (195642) от 15.07.2023
 
 Антирадар ContraCam v3.7.01-Google [Ru/En]
@@ -6,7 +80,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195642.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195642.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195648.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195648.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195746.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195746.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195849.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195849.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Moon+ Reader Pro v8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196064.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196196.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196196.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ Tone Generator PRO v3.36 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196264.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196264.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ WiFi Analyzer v3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196270.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196270.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ ByVoice v3.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196355.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196355.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Call Recorder - SKVALEX 3.6.0 Mod by 5mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196378.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Kaspersky для Android 11.99.4.9878 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196552.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Cx Проводник / Cx File Explorer 2.0.0 Mod by guf1990 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196554.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ SmartDriver: АнтиРадар ГИБДД v1.15.0.36616 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196573.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196573.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ Adobe Acrobat Reader для PDF 23.6.0.28101.Beta Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196578.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196578.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ Reface v3.40.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196597.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196597.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ Filmic Pro 7.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196623.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196623.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ Psiphon Pro 382 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196668.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196668.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196692.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196692.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ Carista OBD2 v7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196698.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196698.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:76FA508A5906A553CF01F52CB29C432C749C92CF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196902.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196902.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:802DD6D04C880B803A36F31802851BBA174B24B8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196994.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196994.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:B0B5897490DC7B57BF4A7B2447E845DED2A8DCCA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197042.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197042.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:F10FD93CB4E809328D27FE6A616213845EF1DF23
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197121.jpg" />
 </div>
 
 
@@ -552,78 +626,6 @@ uTorrent - официальное приложение на Андроид. Бл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5995C9716ED8743D8B10ABC28D55FD70F808E297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638840   (197296) от 10.06.2023
-
-Фитнес тренер FitProSport v4.100 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с персональным фитнес тренером «FitProSport» Ваши занятия станут максимально эффективными!Тип издания: Full с МаркетаРелиз состоялся: 01.06.2023Разработчик: FitProSportПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B93F3CA3BA1F58A24D9A0CBBAF3B549C3F7230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637516   (197499) от 05.06.2023
-
-Калькулятор самогонщика v1.13 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение представляет собой калькулятор, с помощью которого можно рассчитать необходимое количество сырья, воды и дрожжей для изготовления самогона. Есть возможность расчёта для самогона из: сахара, зерна, фруктов. Также есть функция "разбавление самогона", которая поможет Вам рассчитать какое количество воды необходимо добавить чтобы разбавить спирт (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 17.01.2022Разработчик: User_01Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637465   (197568) от 04.06.2023
-
-Сервисная книжка автомобиля v4.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживайте все свои расходы на автомобиль с помощью этого приложения для учета расходов на автомобиль!Тип издания: FullРелиз состоялся: 07.04.2023Разработчик: Mikheev AlekseyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
 ```
 
 

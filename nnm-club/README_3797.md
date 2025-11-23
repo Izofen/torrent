@@ -1,3 +1,81 @@
+###  Публикация: 1698438   (118404) от 09.02.2024
+
+Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Wound Up (3:29)
+02. Life Is Calling (3:31)
+03. Best of Me (2:46)
+04. You and I (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773725AB7E364E7B25E2F906DD287F4C24E833FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698507   (118405) от 09.02.2024
+
+Middle for Mac 1.8.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2024 Ryan HansonПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEED28118349335ABE952C142C212DB4AA365ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698495   (118406) от 09.02.2024
+
+Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .cue] <African Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Lightning [14:28]
+02. Little Boy [8:31]
+03. Black and Brown Cherries [7:26]
+04. Ntyilo Ntyilo [4:54](   Читать дальше...   )Жанр: African Jazz, Post-BopПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B8FC624FE4785FD2DA2B4EBE3D3A13E75B9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698571   (118407) от 09.02.2024
 
 Sticky Notes: Easy Note Taking 2.2 [Multi]
@@ -6,7 +84,7 @@ Sticky Notes: Easy Note Taking 2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118407.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Tinderbox 9 v.9.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118408.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118409.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Bolt Action and the Misfires - Chasin' Down the Rats (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118410.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Voodoo Walters - How to Be Happy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118411.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ IIWishIV - A Guiding Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118412.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Znora - Znora (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118413.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118414.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ No More Cries - Social Despair (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118415.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Sonic Storm - Keys to Your Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118416.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ magnet:?xt=urn:btih:D8E546B429FB1CDC3952CBC74C0F703EBD52967A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118417.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Perfectly Clear WorkBench 4.6.0.2638 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118418.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Skype 8.112.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118419.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Fort Firewall 3.11.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118420.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ magnet:?xt=urn:btih:8B48958BA06E958C1D387C3B8F0BCB815016AA4E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118421.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ K-Lite Codec Pack Update 18.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118422.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ magnet:?xt=urn:btih:BE3FEFAF9C19310E619103E7F0CD68A3C89EE97D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118423.jpg" />
 </div>
 
 
@@ -442,7 +520,7 @@ magnet:?xt=urn:btih:38146A7C5F01D96F179D8A8526A2DF4DB0275B3D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118424.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ ff-Works for Mac 4.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118425.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ QOwnNotes 24.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118426.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ magnet:?xt=urn:btih:0A0164CD30DC98B2E5B1B04EF6E96A26B5377EB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118427.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ CrossOver 24.0-b2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118428.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ PhotoRoom v4.8.4 b1280 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118429.jpg" />
 </div>
 
 
@@ -575,82 +653,6 @@ PhotoRoom v4.8.4 b1280 Mod by Mixroot [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D67C673455A5DECCBD9E2BBC26F05F9AF7D571C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698542   (118430) от 09.02.2024
-
-Н. В. Парахин,  И. В. Кобозев и др. | Кормопроизводство (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены биологические и экологические основы лугового и полевого кормопроизводства. Приведены классификация и характеристика природных кормовых угодий. Рассмотрены ресурсосберегающие технологии со­здания и использования высокопродуктивных сенокосов и пастбищ, заго­товки и хранения различных видов кормов. Уделено особое внимание основам семеноводства кормовых культур. (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC612225DEFC52469ED6435E4BFF15980387A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698513   (118431) от 09.02.2024
-
-Клиффорд Саймак | Театр теней (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118431.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В 30 веке человечество приблизилось к открытию методов создания разумных живых организмов с заданными параметрами. Но насколько сильны культурные предубеждения, даже среди ученых... и человеческих существ в телах чудовищ можно теперь плодить в лабораториях?
- Чтобы исследования продвигались максимально продуктивно, группа из девяти ученых работает в изоляции (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49963D46DE49DBECDE6838C434F65E6F38867750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698422   (118432) от 09.02.2024
-
-Плейлист Венкова - Русская депрессия (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118432.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Русская депрессия
-2. Тоска
-3. Doomer
-4. Спальные районы(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97EA0060E4F5017A553040DCD05803F8868388F
 ```
 
 

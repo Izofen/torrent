@@ -6,7 +6,7 @@ Good Charlotte - Motel Du Cap (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16692.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Rock Klassiker (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16699.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Hard Rock Covers (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16704.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sueños Medievales - Sueños Medievales (2025) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16714.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Halestorm - Everest (2025) [FLAC|Lossless|WEB-DL|tracks] < Hard Rock, Alt. Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16716.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Scarecrow NWA - IX (2025) [MP3|320 Kbps] <Progressive, Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16755.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16755.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Red Vinter - Lumbering Menace (2025) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16782.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Primalfrost - Path of Resilience (2025) [MP3|320 Kbps] <Melodic Death, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16783.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16814.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Without Love Metal Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16826.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:348C6E155B34C3161FEC03DC8DAD2C76B6939163
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16841.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Grave Intentions - Call of the Void (2025) [MP3|320 Kbps] <Melodic Death, Thrash
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16893.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lude - Eternal Womb of Celestial Decay (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16894.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Olive - The Awaking (2005) [MP3|320 Kbps] <Atmospheric Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16896.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Elysia - Numinous (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16898.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Deliberalize - The Allure of Deceit (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16919.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Disembodiment - Spiral Crypts (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16920.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Death - Leprosy (1988) 2XCD, Reissue, Remastered, 2014, Relapse Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16943.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Disembodiment - Spiral Crypts (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17088.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:36B4CDF6FFDB883F78EDACFA0CEDE89D1238F8ED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17105.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tómarúm - Beyond Obsidian Euphoria (2025) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17175.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17175.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F7458B588F214FE3ED34AD54AC7AFA1426029639
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17237.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ John Lennon - Acoustic (2004) Compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17245.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Stay Away - Культ отсутствия личности (2025) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17260.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Crungus - Hollow (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17266.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:58367B3359568EC39C92CDEFEB0CFF7C6230E238
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17361.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1692508   (121862) от 20.01.2024
+
+In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind Space (Live 2022)
+02. Scorn (Live 2022)
+03. Only For The Weak (Live 2022)
+04. Take This Life (Live 2022)(   Читать дальше...   )Жанр: Melodic Death Metal, Alternative RockПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0B61F237A047B0645B45A2A5396707AF42C691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693228   (121863) от 20.01.2024
+
+VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicent Ballester, The Nurk & Dave Baron - Thinking About You (Moe Turk Remix) (05:35)
+02. Hiss Band & U.R.A. - Let It Shine (Ballester Remix) (03:34)
+03. Soulshade, Jaytor & Elodia - Touch The Sky (Sharapov Remix) (05:02)
+04. Sharapov - Story (Alexander Hristov Remix) (04:59)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693279   (121864) от 20.01.2024
+
+Журнал | The Woodworker & Good Woodworking №02 (февраль 2024) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номер.Жанр: Столярное делоЯзык: АнглийскийИздательство: MyTimeMedia Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973E953798F77DFE9F6C78E53F3750184AC2679E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693245   (121865) от 20.01.2024
 
 Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
@@ -6,7 +84,7 @@ Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121865.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121866.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121867.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121868.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Icecream Slideshow Maker PRO 5.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121869.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121870.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121871.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121872.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121873.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Topaz Video AI for Mac 4.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121874.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ PhotoRoom v4.8.2 b1243 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121875.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Weather Dock 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121876.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121877.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ PDF Expert 3.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121878.jpg" />
 </div>
 
 
@@ -365,7 +443,7 @@ magnet:?xt=urn:btih:30A2E22409BAC981ADD9A0B3151D9C844F7560B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121879.jpg" />
 </div>
 
 
@@ -392,7 +470,7 @@ Capture One 23 Enterprise 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121880.jpg" />
 </div>
 
 
@@ -417,7 +495,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambien
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121882.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121883.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ magnet:?xt=urn:btih:5972D5AB7E0E093EC9F6C7B75265D314D8D55EB2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121884.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ magnet:?xt=urn:btih:410D9086BC95134717DCFA70731E43F368FCEE10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121885.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ magnet:?xt=urn:btih:E52B792D053335C80C8D6DD728B690A914ED5DDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121886.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ IceCream Ebook Reader Pro 6.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121887.jpg" />
 </div>
 
 
@@ -580,83 +658,6 @@ IceCream Ebook Reader Pro 6.45 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:269A3AD10E0D85A026C6D24B6D4716B47F42AE8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690347   (121888) от 20.01.2024
-
-A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoundrel Days (4:02)
-02. The Swing Of Things (4:14)
-03. I’ve Been Losing You (4:23)
-04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693259   (121889) от 20.01.2024
-
-Дмитрий Дашко | Непроходимые миры (2024) [MP3, Илья Кочетков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121889.jpg" />
-</div>
-
-
-###  Подробнее
-
-На родине его звали Артёмом. А потом он попал… в прямом смысле. В новом мире у него новое имя и новые навыки, которые так нужны в жестокой схватке с адептами запретной магии.
-
-Наш человек в мире волшебства и паропанка.Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8852133B6D07FFAEBBD9A57E35C7D69412F392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693356   (121890) от 20.01.2024
-
-Алекс Рудин | Дорога на Родас (Книга 2). Галактика на ладони (2024) [MP3, Вадим Балашов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалист по инопланетным контактам – прекрасная профессия! А моя любимая девушка – лучший пилот на всём курсе.Вот только на работу нас не берут. Об этом позаботился декан академии – самодовольный господин Флостус.Но декан не знает, на что способны уроженцы Местрии. Мы непременно выкрутимся, да ещё как!Жанр: ФантастикаИздательство: ЛитРес: чтецПродолжительность: 06:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D91DFC39F7DF5A6A37DDC5E2FBBFB15B9918B6F
 ```
 
 

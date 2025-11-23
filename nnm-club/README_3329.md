@@ -1,3 +1,76 @@
+###  Публикация: 1738882   (106236) от 25.07.2024
+
+А.Н. Лялин | Охота на медведей в Сибири с лайками (1911) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга сборник рассказов знаменитого в прошлом сибирского охотника-медвежатника Александра Николаевича Лялина, который скончался в 1926 году, сделав 21 статью достоянием общественности.
+В издание вошел цикл Лялина «Охота в Сибири на медведей с лайками», принесший ему славу и признание. Эти очерки публиковались в журнале «Природа и Охота» в 1901-1911 гг., и здесь собраны (   Читать дальше...   )Жанр: Документальная прозаИздательство: Императорское общество размножения охотничьих и промысловых животных и правильной охотыФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBCEB7A5782E15D286F3B2B77CA4A35BC7E2457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738843   (106237) от 25.07.2024
+
+IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B25A49F420BCEB554E77CAB1C5CACCD6B408A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738840   (106238) от 25.07.2024
+
+KeepStreams 1.2.3.0 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106238.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeepStreams — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. KeepStreams поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью KeepStreams пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FB015CC7531628E61443C8300967AB18494212
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738904   (106239) от 25.07.2024
 
 Memento Database + ключ активации 5.4.3 [Ru/Multi]
@@ -6,7 +79,7 @@ Memento Database + ключ активации 5.4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106239.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:2ABA71CA2522DACBA9B5789230A58B7C1D676A15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106240.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106241.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Nick Charles - Further Down the Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106242.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Romi Mayes - Small Victories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106243.jpg" />
 </div>
 
 
@@ -132,7 +205,7 @@ Inner Strength - Daydreaming In Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106244.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Eden Brent - Getaway Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106245.jpg" />
 </div>
 
 
@@ -186,7 +259,7 @@ Gary Harvey - Outta My Head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106246.jpg" />
 </div>
 
 
@@ -213,7 +286,7 @@ Johnny Pallari - Second Coming (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106247.jpg" />
 </div>
 
 
@@ -240,7 +313,7 @@ Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106248.jpg" />
 </div>
 
 
@@ -267,7 +340,7 @@ Powersection - Losing My Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106249.jpg" />
 </div>
 
 
@@ -294,7 +367,7 @@ magnet:?xt=urn:btih:6232EFC600D6EE7CF4F21BB26140AABB2516C520
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106250.jpg" />
 </div>
 
 
@@ -318,7 +391,7 @@ Mr Tchang Bluz Explosion - Time To Move (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106251.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ Federico Verteramo - In My Own Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106252.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ Mean Old Fireman - Rescue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106253.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Neil Sadler - Past to Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106254.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ Incantation - Sect Of Vile Divinities (2020) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106255.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ Voidlung - Maledictus Rex (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106256.jpg" />
 </div>
 
 
@@ -480,7 +553,7 @@ Sandboxie 5.69.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106257.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ IObit Smart Defrag Pro 10.0.0.374 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106258.jpg" />
 </div>
 
 
@@ -528,7 +601,7 @@ Feddy on Guitar - Give Me One More Chance (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106259.jpg" />
 </div>
 
 
@@ -555,7 +628,7 @@ Perfectly Clear WorkBench 4.6.1.2679 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106260.jpg" />
 </div>
 
 
@@ -580,7 +653,7 @@ magnet:?xt=urn:btih:28B45F534D9445D6370ADDF6E7F0A320DFBA4BD7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106261.jpg" />
 </div>
 
 
@@ -592,83 +665,6 @@ magnet:?xt=urn:btih:28B45F534D9445D6370ADDF6E7F0A320DFBA4BD7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09691C3EC9534673C2518DEB415954068F1A4F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738767   (106262) от 24.07.2024
-
-Сельма Лагерлёф | Чудесное путешествие Нильса с дикими гусями (1996) [MP3, Клара Румянова, и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир детства.
-Сельма Лагерлёф (1858–1940) – шведская писательница, лауреат Нобелевской премии по литературе – известна в нашей стране как автор сказки «Чудесное путешествие Нильса с дикими гусями».
-Радиопостановка по страницам романа шведской писательницы Сельмы Оттилия Ловиза Лагерлёф – «Удивительное путешествие Нильса Хольгерссона с дикими гусями по (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Rec RecordsПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226320DABCA22DCC2624A0CCA762E9E22B8523EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738765   (106263) от 24.07.2024
-
-Сельма Лагерлёф | Чудесное путешествие Нильса с дикими гусями (2006) [MP3, Маргарита Корабельникова, Валентина Сперантова и  др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям.
-«Чудесное путешествие Нильса с дикими гусями» – самая знаменитая и популярная повесть-сказка Сельмы Лагерлёф (1858–1940), признанная одним из классических произведений мировой детской литературы и переведенная на многие языки. Удивительные приключения главного героя – мальчика Нильса, превращенного гномом в крошечного человечка, опасности (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3890C8501533469C5C28E6AB6DB989BA9A449E77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738764   (106264) от 24.07.2024
-
-Сельма Лагерлёф | Путешествие Нильса с дикими гусями (2006) [MP3, Александр Белявский, Наталия Крачковская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Живая сказка.
-Сельма Лагерлёф (1858–1940) – шведская писательница, лауреат Нобелевской премии по литературе – известна в нашей стране как автор сказки «Чудесное путешествие Нильса с дикими гусями».
-Эта сказка об удивительном превращении мальчика Нильса в крошечного человечка. Путешествуя с дикими гусями по Швеции, с ним происходят различные захватывающие (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Два Жирафа, Мост-ВПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7771CB25493B320B41BA81DF32F99380A5FC2DD
 ```
 
 

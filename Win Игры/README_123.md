@@ -6,7 +6,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16557524/dlc) Repack Decepticon [20th Anniv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35199.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35226.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35239.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35257.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.25849S/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35263.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35269.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Left 4 Dead (2008) [Ru/Multi] (1.0.4.5) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35276.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35282.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35291.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Repack FitGirl [Frontline-59 Editi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35343.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35346.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35376.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35378.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35381.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35401.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Shredders (2022) [Ru/Multi] (Glacier Update/dlc) Repack FitGirl [540INDY Edition
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35454.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35465.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35474.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Scene Rune [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35476.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35481.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Automobilista 2 (2020) [Multi] (1.6.3.0/dlc) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35488.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0-45746.11849/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35492.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35530.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35544.jpg" />
 </div>
 
 

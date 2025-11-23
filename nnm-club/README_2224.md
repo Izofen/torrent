@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7C8BF06BB95A40F30BBF37D677EA227FC0EDE44D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58190.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7C8BF06BB95A40F30BBF37D677EA227FC0EDE44D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58191.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58192.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5D137846872A9CC1F7ED6F7E5AB0D3130C50BE38
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58193.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:00DB8A415EF915809AB9FE950BAF1BC0AEE79DE3
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58194.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D76864E7A417D94F343CAFA47307955B9BCBEB84
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58195.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6C5104A9433251439C17207812042B99ABBCDBAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58196.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58197.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:983DBE4FBAD922B91C596506171DC38C46D86919
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58198.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B58FAD99B01764D8EC100589493A7D8AE86F58E3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58199.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:47BDBE5C07B5B422723D8AAADC6A1684701C70F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58200.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:47BDBE5C07B5B422723D8AAADC6A1684701C70F8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58201.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:E26B9A6EAB66FC5B812A92EE01717489C98AC3B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58202.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2BD1E72FD2E05D2635FF4A001F34DF5BB5C89368
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58203.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B6C9A919E7435A062B3E7ACC41F7BDD1C5659793
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58204.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:5CA7DDC87D48D15D3E72D5D067C0694C3851AA0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58205.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:9C3EFEA1CF8FAB343912CFEA908C985B6E8EEEE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58206.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0644396A1D1ED68C79403D070C99EF05911DAE92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58207.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B8D48949C1EBBDD46F2FE791E4E7EF5BC84E42A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58208.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:8F6DC3592D8F722E6BC51AC26E5BF10C6625357F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58209.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:66F2B54987027F2B45F4543B2BE7FC45C58B14E0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58210.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Repack FitGirl [Game of the Year Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58211.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Dmdev, Dzianis Matveyenka | Docker (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58212.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ System Shock (2023) [Ru/Multi] (1.2.18887) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58213.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:D44BD63A54A56EFA7D58B314F8D04046824DDCF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58214.jpg" />
 </div>
 
 

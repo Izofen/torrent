@@ -6,7 +6,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1716.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1744.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1920.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2096.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2200.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2226.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2227.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2228.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2239.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2255.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2260.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2512.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2540.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2551.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8479.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8615.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11112.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11800.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12229.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12614.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12819.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12997.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12999.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13172.jpg" />
 </div>
 
 

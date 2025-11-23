@@ -6,7 +6,7 @@ Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70039.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Andrei Kondakov-Victor Dvoskin Project - Deserted Park (1993) 2024, Apollon & Ev
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70040.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:781BFB0F20B302516B534C18D666A025E3627361
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70041.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:8E47CD4023A0B40CB14F44B2AB80EDCC74CD6C93
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70042.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70043.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:EE6F8190CDCCF97E865CF87D4BA80CB2F29DAFCA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70044.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70045.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:265AED870E39A3F5B9EA58F04404D618F44271E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70046.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:EB7BE868C20D8BCD2A16966AB8985EFA932DCD4E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70047.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:4182AE92C52EE8E0F397ED814BB8F1269E46732C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70048.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F39881B6505A1BA87ECAC9A5E202A97593F93269
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70049.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:5220DC3E05B7471133ECD5BCE132E4DC7A65AEAC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70050.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Virgin Steele - Virgin Steele I (The Anniversary Edition) (1982) Remixed, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70051.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bill Evans - BD Jazz (1955 - 1962) 2CD, 2017, BDMusic [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70052.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70053.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:D5CE52685BB64BF429D2262D0B96633E1CB286A6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70054.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70055.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70056.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Stan Getz - BD Jazz (1948 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70057.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70058.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70059.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70060.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9B28426C47796019107A6046B49F6AA7E58EC42B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70061.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:33CF3277CBD166BFFCB72711EE390F2E028725CA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70062.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70063.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65150.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Latin Jazz House Summer Mix (Poolside Cocktails & Sunset Grooves) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65151.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E7E2BE443A4A9F18C16BE2F561415787C4F43878
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65152.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65153.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ashes Of Ares - New Messiahs (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65154.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Happy & Jazzy Summer Instrumentals, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65155.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65156.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Net-Ruiner - Prototype (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65157.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65158.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D8CCDBE9BB7EFD08EFC47A91E3513B7CDCDF676F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65159.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65160.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Relligary - Hearts and Minds (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65161.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65162.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Paul Bartolome - Fake Hollywood (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65163.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65164.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65165.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Crystal Skull - Arcane Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65166.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Спринт (19.07.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65167.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Horace Silver - Kind Of Silver (1952 - 1965) 10CD, 2010, House Of Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65168.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65169.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Humble Rebel & the Guesthouse - Sweet Morning (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65170.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Manejando con Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65171.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:350AF4276D5F1E293FA36ED40A1EA811A6979A30
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65172.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:DF49AFC38FD954B7013B9BC35B1D5B55669C0478
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65173.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - If I Don't Care_ Rock Hits Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65174.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:DE0DAA377D28922F6E6BEE93943150636ABCAF8B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65175.jpg" />
 </div>
 
 

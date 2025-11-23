@@ -6,7 +6,7 @@ Steinberg - SpectraLayers Pro 12 12.0.0.421 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fort Firewall 3.18.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TechSmith Camtasia 25.1.3 Build 10258 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12661.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YT Downloader 9.12.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12662.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AnyDesk 9.5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12673.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C9BA5017FBB77DF77C94A3EC4952D628B0E7672D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12690.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C9BA5017FBB77DF77C94A3EC4952D628B0E7672D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12698.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12708.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12722.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12731.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Glary Utilities Pro 6.28.0.32 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12756.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ XMedia Recode 3.6.1.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12758.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Speedtest от Ookla v6.2.0 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12759.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Telegram Desktop 5.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12761.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Taskito v1.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12764.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ IPTV Pro v9.0.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12778.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ RUTUBE - видео, шоу, трансляции 30.3.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12780.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Google Chrome 138.0.7204.97 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12789.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:EC89BE338F6167486480A65A7F04F19554BC508B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12800.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Proton VPN 5.12.26.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12802.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ByeByeDPI v1.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12803.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12813.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Google Chrome 138.0.7204.97 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12835.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ O&O DiskImage Professional 21.1.177 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12838.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12839.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Wise Care 365 Pro 7.2.6.705 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12841.jpg" />
 </div>
 
 

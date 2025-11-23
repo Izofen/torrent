@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29473.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:273D24BF6170351FF288D7EDE444C2214340392F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29474.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:46EC6C3D1A2277AB368061098A95575375DC6CA5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29475.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B83565667D5BF69975AF4D2E96C90641A190F981
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29476.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EE1F6F481D5BBD9EC0C293EBF1D03F7BF3F98621
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29477.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4E23F87CA90C9586BDA5160E013B84872E9CC210
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29478.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F44C50AB4EA8023C4D4C037319AB648258D12FEB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29479.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:CC620E5A6DB83AC464136C41B9A3AEC2416684B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29480.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5E4511B05DA7CAE52F1247AB212A5A3803B04D86
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29481.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Draw.io 26.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29482.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:6AD6500961977022EF263E13924F0C54E5B854E8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29483.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29483.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:431D2C149BA3FFDB3283D4521A6DA0C20B54E50A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29484.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4952B5AF2F2BA3E610013DA4A517465750C25616
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29485.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Subtitle Edit 4.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29486.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:FC20D4518ED5B891BC9EDB23658C70E3E2DA21F9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29487.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29488.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PotPlayer 250124 (1.7.22412) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29489.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29489.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29490.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29491.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29491.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:E218AD6B3992E4DC6F79BCB3415535EC49F38070
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29492.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ PDF-XChange Editor Plus 10.5.0.393 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29493.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A96B617677FB28347330AA4149FE849B99D4577C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29494.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29494.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Opera One 116.0.5366.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29495.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Fast Video Cutter Joiner 6.4.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29496.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ NoMachine 8.16.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29497.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Notepad++ 8.7.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29498.jpg" />
 </div>
 
 

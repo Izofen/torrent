@@ -6,7 +6,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105822.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105823.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105892.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Big Steel Train - #BST24 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105893.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jan Wouter Oostenrijk - Maghreb Jazz Guitar (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105894.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bria Skonberg - What It Means (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105895.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Immanuel Trio - Divinity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105896.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Emaginario - Interlude of the Duende (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105897.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HPM & Vega - Game On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105899.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Connor Sablan - Hot Pot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105900.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Armin Van Buuren - Live at Tomorrowland Winter 2024 (Mainstage) [Highlights] (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105905.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adrian Iaies - Cada mañana te trae (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105908.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Erin Stevenson - Cover Girl Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105912.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jeff Coffin - Only the Horizon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105914.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Gun - Hombres (2024) Damaged Edition [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105916.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Villano Antillano - Miss Misogyny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105921.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Train - Live At Royal Albert Hall (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105922.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105924.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105956.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105962.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105986.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Art Sherrod Jr - Feels So Good (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105996.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106014.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106016.jpg" />
 </div>
 
 

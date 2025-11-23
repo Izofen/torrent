@@ -1,3 +1,75 @@
+###  Публикация: 1696203   (119886) от 01.02.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчел и не распространяется о своей прошлой жизни. Пожилая соседка рада, что в их край приехал заинтересованный человек, улучшающий природу и экологию. Пасечник часто общается с милой миссис Паркер, которая однажды становится жертвой финансовых мошенников. Аферисты похищают деньги со всех счетов женщины, и (   Читать дальше...   )Производство: США, Великобритания / Cedar Park Entertainment, Miramax FilmsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рэвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филисия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F8B757AD98CA4EF3586A1A8207F5A071B615B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696187   (119887) от 01.02.2024
+
+День благодарения / Thanksgiving (2023) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плимут, штат Массачусетс. Давка в торговом центре в Чёрную пятницу, совпавшую с Днём благодарения — празднике, зародившемся в этом городке, — унесла жизни нескольких человек. Год спустя, надев маску первого местного губернатора Джона Карвера и украв из музея его топор, неизвестный начинает охоту на виновных в той трагедии.Производство: США, Канада, Австралия / Cream Productions, Ethereal Visage Productions, Spyglass Media GroupЖанр: УжасыРежиссер: Элай РотАктеры: Нелл Верлак, Патрик Демпси, Гэбриел Дэвенпорт, Джейлен Томас Брукс, Майло Манхейм, Дженна Уоррен, Рик Хоффман, Карен Клише, Эддисон Рэй, Тай ОлссонПеревод: Многоголосый профессиональный (TVShows, NewStudio 18+), Авторский (А. Пронин)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH, Comm)Продолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FFA7BF5368F32273C9015A1205DED83FB65BED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696262   (119888) от 01.02.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчел и не распространяется о своей прошлой жизни. Пожилая соседка рада, что в их край приехал заинтересованный человек, улучшающий природу и экологию. Пасечник часто общается с милой миссис Паркер, которая однажды становится жертвой финансовых мошенников. Аферисты похищают деньги со всех счетов женщины, и (   Читать дальше...   )Производство: Великобритания, США / Miramax, Cedar Park Entertainment, Punch Palace ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: русские, английские (full, SDH) - отдельноПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0A8FEAB3A2DC347A22AC4B6E790E6C1DDFEBEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634930   (119889) от 01.02.2024
 
 Чужие против Хищника: Реквием / AVPR: Aliens vs Predator - Requiem (2007) BDRip [H.265/2160p] [hand made Upscale AI] [Extended Edition]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119889.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Steinberg - Cubase Pro 13 13.0.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119890.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:6994EC4797ACE6F9F41CCBE080B090850B6B53FE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119892.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:4BD8F3BC8C3B124C40CE4C2807C11ADA6C117704
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119893.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:E5556681432A2CB1E25AC92D21B4672ADE6A1467
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119894.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Microsoft  Visual C++ Runtimes AIO v0.78.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119895.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (01.2024) [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119896.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119897.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:3A06F0A3F948B2CB69FF08907DEAD9843C9AD6D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119898.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Factorio  v.1.1.104 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119899.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:903F8F885474D008556369DA8234C81C83129BE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119900.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:46A4966CAFBDAD388519E157D85F7ADE25AC6B17
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119901.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119902.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119903.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:7B3C3661B17E00B8FB928FC250B86BC970D3C4C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119904.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:76674A3D2FA1393C0828FEACB184424285FE4A83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119905.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:D28CE8184802C929B3FC9A05E101535D6B219E7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119906.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:2EE37244B74ED342187D7EDA85FB3FC46833F86F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119907.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:4A95EB81BFF59C13497F4C885A365B3528981386
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119908.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:33C86C4D74DA9860A9098EB11016C602F5377462
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119909.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:934EBFE6CE5F7C3A28AFF34E5476133E64CCC708
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119910.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:59CB99C7FE8BA48D9D2FBE31A022157335B4F5B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119911.jpg" />
 </div>
 
 
@@ -553,81 +625,6 @@ magnet:?xt=urn:btih:59CB99C7FE8BA48D9D2FBE31A022157335B4F5B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6CD197A628B150C27DEDBD97F2D44286D0E5D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695919   (119912) от 01.02.2024
-
-Самой передовой стране Европы срочно требуются спецы по MS-DOS и Windows 3.11. На них работает железнодорожная сеть.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия остро нуждается в системных администраторах, владеющих MS-DOS и Windows 3.11. Эти операционные системы морально устарели 30 лет назад, но все еще используются в работе немецкой сети железных дорог. Поиск специалистов осложняется тем, что многие современные администраторы еще не родились, когда Windows 3.11 и тем более MS-DOS были в ходу. Те, кто умеет с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398473   (119913) от 01.02.2024
-
-Lynch Mob - 12 Albums, 3 EP (1990 - 2023) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lynch Mob - хард-рок группа из США, образованная в 1989 году бывшим участником легендарного хард-рок коллектива Dokken гитаристом Джорджем Линчем (George Lynch). Джордж Линч, известный и талантливый гитарист, отличавшийся своеобразной техникой игры, пришел в Dokken в 1979 году. С ним группа записала ряд успешных “платиновых” альбомов, таких как Under Lock and Key, (   Читать дальше...   )Список альбомов:
-Wicked Sensation (1990)
-Lynch Mob (1992)
-Syzygy (1998)Жанр: Hard RockПродолжительность: 16:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01C78B16CE0AE3056C90CDF6B1F932C57590C2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663101   (119914) от 01.02.2024
-
-Маскарад / Mascarade (2022) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адриен, танцор, прервал карьеру из-за аварии. С этого момента он праздно проводит время на Лазурном берегу, используя поддержку бывшей киноактрисы Марты. Жизнь Адриена меняется после встречи с Марго — красивой девушкой, добывающей деньги с помощью мошенничеств и связей с богатыми мужчинами. Молодые люди придумывают дьявольский план, чтобы обеспечить себя.Производство: Франция / Les Films du Kiosque, Pathé, Orange StudioЖанр: Драма, криминалРежиссер: Николя БедосАктеры: Пьер Нинэ, Изабель Аджани, Франсуа Клюзе, Марина Вакт, Эммануэль Дево, Лаура Моранте, Шарль Берлен, Джеймс Уилби, Николя Бриансон, Мари ФабрПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, французскийСубтитры: Русские, английские, французскиеПродолжительность: 02:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEA9B0864042179F472AADA89178EF64BCB487E
 ```
 
 

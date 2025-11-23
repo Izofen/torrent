@@ -1,3 +1,81 @@
+###  Публикация: 1750849   (104129) от 22.09.2024
+
+Nicky Elisabeth - The Way Of Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, House, Dance, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shape Of Me [00:01:26]
+02 - The Way Of Love [00:03:15]
+03 - The Lights [00:03:45]
+04 - Dreams Of Reality [00:03:01](   Читать дальше...   )Жанр: Downtempo, House, Dance, ElectronicПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2178DB475EB4DADA643B44DAC70525170213BD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750803   (104130) от 22.09.2024
+
+Big Mel - Blue Rose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Rose (1:14)
+02. When The Smoke Clears (3:32)
+03. Leave You Alone (3:30)
+04. Nothing But You (4:03)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D848556B02718361C4EB44CA694FAB8214B59C17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750939   (104131) от 22.09.2024
+
+Астрал. Шёпот мёртвых 2 / Yeogo goedam yeoseotbeonjjae iyagi: mogyo / Whispering Corridors 6 The Humming (2021) WEB-DLRip [Line] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_104131.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Ын-хи нет воспоминаний о школьных годах, но когда она устраивается работать в школу, где когда-то училась, и там начинают происходить странные события, память постепенно возвращается.Производство: Корея Южная / Cine2000Жанр: ужасыРежиссер: Ли Ми-ёнАктеры: Ким Со-хён, Ким Хён-су, Чхве Ри, Квон Хэ-хё, Чан Вон-хён, Пак Сэ-хён, Чхэ Вон-бин, Ха Мин, Ли Джи-вон, Ли Джу-щильПеревод: Дублированный (Moygolos) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:55Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751003   (104132) от 22.09.2024
 
 Ночной прилив / Night Tide (1961) BDRip [H.264] [EN / RU Sub]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104132.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ VA - Trance Fusion Vol. 06 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104133.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Nicky Elisabeth - The Way Of Love (2024) [MP3|320 Kbps] <Downtempo, House, Dance
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104134.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:510035E8993F8137AC426CE6599CF8B829CF037E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104135.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104136.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104137.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104138.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104139.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:7D1B8C303BFD49EFDC551D1F69BD70111483FC24
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104140.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104141.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ magnet:?xt=urn:btih:62630C88046E8D593AB7587207A3C642A463FA60
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104142.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Гон
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104143.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ magnet:?xt=urn:btih:615FC6088AC6E64F0CBA14568FFCADA692A86B0E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104144.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ magnet:?xt=urn:btih:30220816AD5E1AFC3000146668C3211CFA29BED3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104145.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ magnet:?xt=urn:btih:007B7C9341C23565BFE648D7BDE30733E93CA05E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104146.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ Alastair Greene, Eric Johanson & Katarina Pejak - Blues Caravan 2024 (Blues Cara
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104147.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ Jessica Ackerley - All Of the Colours Are Singing (2024) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104148.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ Lucinda Williams - Lucinda Williams (1988) Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104149.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ magnet:?xt=urn:btih:8B480B570961275EA1EFA46DD7CCD1469CC2A55D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104150.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ magnet:?xt=urn:btih:E9D9F32804789F694F0EF7F075F4F5EE711B09A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104151.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ magnet:?xt=urn:btih:55C422E1F5C57C47BAE783333E74CF8CA5B82277
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104152.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Ква
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104153.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ magnet:?xt=urn:btih:2F1B62D95B98704BB47E9EFED932C728ACC237C3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104154.jpg" />
 </div>
 
 
@@ -575,87 +653,6 @@ magnet:?xt=urn:btih:2F1B62D95B98704BB47E9EFED932C728ACC237C3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B866CAE5396AA7AB4FD97D8894BF53CFCF8B429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750590   (104155) от 21.09.2024
-
-Jumaane Smith - Come On Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know (3:03)
-02. Come On Home (5:17)
-03. Chief (5:35)
-04. I'm Gone (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39D6247A697EC519058C614C291F20DE9435BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750583   (104156) от 21.09.2024
-
-JD Simo & Luther Dickinson - Do The Rump! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street People (3:11)
-02. Right Down There (4:03)
-03. Lonesome Road (4:46)
-04. Come and Go With Me (4:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907E67FD2F44C0564304E660AA0778BBF2E2BD80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750797   (104157) от 21.09.2024
-
-Alyssa Galvan - Darling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guilty By Design (4:12)
-02. Turning Blue (3:34)
-03. Good Feeling (3:58)
-04. Want It Bad (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66540C4859B757CE276FE09F511F4E344ED41E3F
 ```
 
 

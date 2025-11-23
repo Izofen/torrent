@@ -1,3 +1,78 @@
+###  Публикация: 1695155   (120302) от 29.01.2024
+
+Наутилус Помпилиус (Nautilus Pompilius) - Чужая Земля (1992) 1st Press [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монгольская Степь (05:08)
+02. Эти Реки (03:03)
+03. Иван Человеков (04:34)
+04. Чистый Бес (04:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E01D4124D36D703A7C55CF01FB706D05C8687BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695402   (120303) от 29.01.2024
+
+Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Милвертона (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Ms. Holmes. Шарлотта Холмс всегда гордилась тем, что пошла по стопам своего знаменитого дяди. Однако в одной из газет появилась статья, поставившая под сомнение ее репутацию! Таинственный информатор утверждает, что располагает доказательствами того, что великий Шерлок Холмс на самом деле был преступником-мошенником. Неужели он и (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515E0A98D93C9DF62E44A3852553E8900AFA6E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693828   (120304) от 29.01.2024
+
+Ограбление перед Рождеством / The Heist Before Christmas (2023) WEB-DLRip [H.264/720p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатилетний Майки Коллинз, ненавидящий Рождество, находит в лесу двух Санта-Клаусов. Один только что совершил ограбление банка и скрывается с деньгами, другой Санта утверждает, что выпал из саней. У Майки нет времени на  второго парня – он уже давно не верит ни в какие джингбелсы, ерунду, вызывающую дух праздника, даже несмотря на то, что его младший брат Шон (   Читать дальше...   )Производство: Великобритания / Calico Pictures, Studio Hamburg UK, Studio HamburgЖанр: драма, комедияРежиссер: Эдвард ХоллАктеры: Тимоти Сполл, Джеймс Несбитт, Лаура Доннелли, Bamber Todd, Joshua McLees, Брона Во, Ллойд Хатчинсон, Пэт Шорт, Cameron Tharma, Дэниэл Ламонт и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:48Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D117019BFDD50711A17FF17518BC3ACA4394F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695154   (120305) от 29.01.2024
 
 Depeche Mode - Speak & Spell (1981) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
@@ -6,7 +81,7 @@ Depeche Mode - Speak & Spell (1981) 1st German Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120305.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120306.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ f.lux v4.131 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120307.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Lacey Free Music & Video Downloader 2.92 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120308.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Typora for Mac 1.8.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120309.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120310.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:0CB019057DBB21BE329A0A47EC24FA3C5F9D7187
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120311.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ VA - Compilation Electronic part 48 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120312.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ HiBit Uninstaller 3.1.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120313.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ FileZilla Server 1.8.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120314.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:46CAED01B07EF094C08ECD08791BC8EDCAC1E699
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120315.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:DE43A6568BFE1D2B7F10BE3026D6F0DA908F9FAF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120316.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ PIDKey Lite 1.64.4 b37 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120317.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:318FCAF6DB1860294AB0F2B1C75CC140302BF780
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120318.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:55A2050A5328943D21B73E57B540A1904715586C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120319.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ CrossOver 24.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120320.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ Miss Monique - Yearmix 2023 (2024-01-26) [MP3|320 Kbps] <Progressive House, Melo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120321.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ magnet:?xt=urn:btih:F4AC59F1E3CC42651070AFDE41474A74572FB5A7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120322.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:4E236FF10190ABDC0D60D2F8ADAB2AA7AD051C03
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120323.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ magnet:?xt=urn:btih:508F4D40E78B058B29490000609CBB31E38DAEA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120324.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ Psiphon 3 build 181 (27.01.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120325.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ Balabolka 2.15.0.863 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120326.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:B7841CB9746DA69120218B1C185230388CFCCAD4
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120327.jpg" />
 </div>
 
 
@@ -564,80 +639,6 @@ magnet:?xt=urn:btih:B7841CB9746DA69120218B1C185230388CFCCAD4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A0D44A7C03837873A828B652F5081FC37C04B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695480   (120328) от 29.01.2024
-
-Часовня / Chapel (2024) WEB-DLRip [H.264/720p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В американской глуши из озера достают едва не утонувшего молодого человека. Откачать его удаётся, но незнакомец никак не может вспомнить ничего из прошлой жизни, даже собственного имени. Жители местного городка с подозрением, но принимают его в своё сообщество, и вот уже Коэн (такое имя дали несостоявшемуся утопленнику за его любовь к песням Леонарда Коэн) обустраивается (   Читать дальше...   )Производство: США / Yeehaw Films, 2111 PicturesЖанр: триллер, детективРежиссер: Кортни ПейджАктеры: Тэрин Мэннинг, Локлин Манро, Джереми Самптер, Шоун Стивенс, Тилки Джонс, Кортни Пейдж, Роб Даймонд, Мэдисон Бонтемпо, Мэтью Фэйхи, Эмили ЭшбиПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:55Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683818   (120329) от 29.01.2024
-
-Дневник Глумова (1923) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот коротенький фильм был частью авангардного спектакля. Примечателен тем, что это самый-самый первый фильм Эйзенштейна. Он сам появляется в кадре - удивительно молодой и задорный. Не пытайтесь найти в фильме какой-то смысл и тем более сюжет. Это советский киноавангард в стиле буфф. И этим все сказано.Производство: СССР, ГоскиноЖанр: короткометражный, немое киноРежиссер: Сергей ЭйзенштейнАктеры: Григорий Александров, Александр Антонов, Сергей Эйзенштейн, Михаил Гоморов, Джуниор Инкижинов, Вера Музыкант, Иван Пырьев, Максим Штраух, Вера Янукова, Иван ЯзыкановСубтитры: русские (интертитры)Продолжительность: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D973A5283CFD4BC35C64F363980B5CDDACB5CBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695585   (120330) от 29.01.2024
-
-Алекс Кош | Кулак Полуденной Звезды (Книга 4). Медиум на полставки (2023) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120330.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Медиум на полставки» – роман Алекса Коша, четвертая книга цикла «Кулак Полуденной Звезды», жанр боевое фэнтези, городское фэнтези, темное фэнтези.
-
-Я смог избавиться от проклятия Садако, и теперь пришло время платить по счетам: спасти тех, кто пострадал из-за меня, и убить Погонщика Трупов. Но чтобы справиться с ним, мне нужно стать сильнее, гораздо сильнее, и набраться (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиИздательство: ИДДКПродолжительность: 07:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746CAC5FC74C9DE2EF1884DFEC3F460DB7684681
 ```
 
 

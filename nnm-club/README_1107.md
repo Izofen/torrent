@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:50F589CF0A4C1C70225C9A49E8429985F81AB932
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7BD4BB3DDE14E0936A7148708DEA1421FD87E7BD
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29137.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:36C09544F23707CF45EE81905F4E9F28DAF1D254
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29138.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E065CD04FA2C73D0AA6EDB1B1D134C2B491B0BF1
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29139.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:512A5AE2235D8D71BF48F4469646D5E3E9CE0F57
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29140.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29140.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:61F32DC0A38344BEB701D3FE20115F2A061A3941
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29141.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29141.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5B9163CD904828486F516C290F2149470DB6270E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29142.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Perpetual Rage - The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29143.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29143.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E7082D41AC62EE597A42AE5791C018B89291504A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29144.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AAB07D9B4E942E0BEF5D6732F622413EDB1F7BB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29145.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29145.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4FBF4C239E94D9C3C6BF32CC65D127DED0230FAF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29146.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:2E6079547E76B94069C42061308B0D188A4DDAC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29147.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29147.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29148.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29148.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0DA6925135D5254884C9F19FF7D0DFB8496BBE6A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29149.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Lounge Obsession, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29150.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29150.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:0D02195ADF4F8581506A8BC02D0E80DEE2415A10
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29151.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29151.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:D940F57F553B34601FF8ABB26A7FEB17CF818FC1
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29152.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29152.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9EF2302F1763C54754F3AD526D023AF8A9A5FC2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29153.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B273292354F321308779D5B41F0286615E885D77
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29154.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D187A2E802FEA7F3B9123D6A7A90DD40B30F7C22
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29155.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:C6EAD7AF2D563FD375A03420971A576C597EFEC7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29156.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29156.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ R-Wipe & Clean 20.0.2493 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29157.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29157.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:7BB5353B001559A21EF0B7F93AF7FD44A59909FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29158.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:CB37B3ABFA919CB53E8291B6B208C1E4A0148D30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29159.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:BB0B5203AB7A7B459E695A4D84E85D40436A693A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29160.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29160.jpg" />
 </div>
 
 

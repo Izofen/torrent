@@ -1,3 +1,88 @@
+###  Публикация: 459432   (79123) от 29.02.2012
+
+VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (2005) [FLAC|Lossless]<Funk, Soul, Deep Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Work It - Intro (0:45)
+02.Stevie Wonder - We can work it out (3:11)
+03.Al Green - I want to hold your hand (1:59)
+04.Deidre Wildon Tabac - Get back (2:38)
+05.Harvey Averne - I feel fine (2:58)
+06.Sergio Mendes & Brasil '66 - Daytripper (3:39)
+07.The London Jazz Four - Things we said today (2:44)
+08.Ike & Tina Turner - Come Together (3:41)
+09.Byron Lee & The Dragonaires - Live & let die (2:57)
+10.Marshall Williams - Norwegian wood (2:12)(   Читать дальше...   )2005Жанр: Funk, Soul, Deep FunkПродолжительность: 01:47:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459857   (79124) от 29.02.2012
+
+Ангел неБЕС - наКРЫЛО (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бесы (5:03)
+ 2. Накрыло (0:21)
+ 3. На крыле (3:51)
+ 4. ТТ (Пожар на твоем теле) (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460274   (79130) от 29.02.2012
+
+Журнал | Esquire [Россия] №75 (март 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
+Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460201   (79132) от 29.02.2012
 
 Восстание душ: Бунт мертвецов / Shadow: Dead Riot (2006) DVDRip
@@ -6,7 +91,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79132.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79138.jpg" />
 </div>
 
 
@@ -54,7 +139,7 @@ Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79140.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79141.jpg" />
 </div>
 
 
@@ -120,7 +205,7 @@ magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79148.jpg" />
 </div>
 
 
@@ -147,7 +232,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79149.jpg" />
 </div>
 
 
@@ -180,7 +265,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79150.jpg" />
 </div>
 
 
@@ -204,7 +289,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79153.jpg" />
 </div>
 
 
@@ -228,7 +313,7 @@ Noisia - Split The Atom: Special Edition (2012) [MP3|320 кб/с]<Drum & Bass, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79171.jpg" />
 </div>
 
 
@@ -261,7 +346,7 @@ magnet:?xt=urn:btih:36108F8FCF399AA08148B3C964C7B0491048B84D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79175.jpg" />
 </div>
 
 
@@ -291,7 +376,7 @@ magnet:?xt=urn:btih:3745AB1B00B95742B7B24FA9DC201076FE08D328
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79182.jpg" />
 </div>
 
 
@@ -316,7 +401,7 @@ magnet:?xt=urn:btih:3745AB1B00B95742B7B24FA9DC201076FE08D328
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79183.jpg" />
 </div>
 
 
@@ -340,7 +425,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79184.jpg" />
 </div>
 
 
@@ -364,7 +449,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79185.jpg" />
 </div>
 
 
@@ -388,7 +473,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79191.jpg" />
 </div>
 
 
@@ -412,7 +497,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79192.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ magnet:?xt=urn:btih:4D45F26C99BD47255DF34497F7FD00DD05927B3A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79197.jpg" />
 </div>
 
 
@@ -461,7 +546,7 @@ magnet:?xt=urn:btih:8F87D7814B2C49A1304261102501673710978DCC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79205.jpg" />
 </div>
 
 
@@ -485,7 +570,7 @@ magnet:?xt=urn:btih:8F87D7814B2C49A1304261102501673710978DCC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79206.jpg" />
 </div>
 
 
@@ -509,7 +594,7 @@ magnet:?xt=urn:btih:B4CA16AB28C7C34A07DE4054BCDBC7542AE0B0F3
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79207.jpg" />
 </div>
 
 
@@ -533,7 +618,7 @@ magnet:?xt=urn:btih:BFA13380D8852DF8D8B8C058A54F537E2003B64E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79209.jpg" />
 </div>
 
 
@@ -563,7 +648,7 @@ magnet:?xt=urn:btih:AC7B6A7C3D45399A3DDC5FDF2F27CCC1A88B4FE6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79210.jpg" />
 </div>
 
 
@@ -587,7 +672,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -598,79 +683,6 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460103   (79213) от 29.02.2012
-
-Наблюдатель / The Watcher (2000) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет агент ФБР Джоел Кэмпбелл выслеживал серийного убийцу. Однако не в силах больше постигать извращенную логику маньяка, травмированный физически и морально, после долгих лет тщетных поисков он оставляет службу и переезжает в другой город. Там Кэмпбелл надеется обрести покой и зажить по-новому.
-Казалось бы, ничто не в силах помешать ему навсегда расстаться (   Читать дальше...   )Жанр: Триллер, Криминал, ДетективРежиссер: Джо ЧарбэникАктеры: Кийану Ривз, Джеймс Спэйдер, Джефф Райс, Мариса Томеи, Эрни Хадсон, Крис Эллис и др.Перевод: ДублированныйПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459942   (79218) от 29.02.2012
-
-Ключи для ESET NOD32 от 29.02.2012 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79218.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче рабочие ключи для антивируса ESET NOD32 Antivirus, ESET NOD32 Antivirus Business Edition, ESET Smart Security, ESET Smart Security Business Edition.Название программы: Ключи для ESET NOD32Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459999   (79221) от 29.02.2012
-
-Андрей Буторин | Осада рая [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79221.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Осада Рая» рассказывает историю легендарного города Полярные Зори, северной цитадели человеческой цивилизации в мире, разрушенном ядерной войной и завоеванном чудовищами… Историю тех самых Полярных Зорь, которые упомянуты в «Метро 2034», оставаясь одной из красивейших легенд «Вселенной Метро». Теперь мы откроем этот загадочный город вместе с юным героем романа «Север», (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D708EEAAEEE88E76F9939F0548C4D0242A703D1
 ```
 
 

@@ -6,7 +6,7 @@
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75173.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ flOw является необычной игрой, в которой игро�
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75565.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ SPRay [Wii] [NTSC] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75727.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Surf's Up [XBOX360] [Ru] [GOD] [Freeboot] (2007)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75769.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:ECE687F47B51F2582A8B3FA465C972631600AE4D
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75789.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B8D40AE2FA3C5B49FB4143807B54095223E74F41
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76172.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7C3BECDBFACA2D8C05D32950B7A0B5F7E07A222F
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76358.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EB1165E7BFA9DD62F9F4D3B5B94F63EB9222D956
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76395.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E384836F912A83B8B287965063C53DEDAD68FA94
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76836.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:2B60B75D8E2DB23C951372847DB96E6033E9D64F
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77124.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D5F934DA0AF5A81B2DD1454F1178191B4AB04E1C
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77253.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Child of Eden погрузит вас в самый центр сражений 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77833.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:1A20246880BAD4D0B6DF991FB60757B06ECEA97A
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78021.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F806BB39458AF1DAB5595E9A7E45377347DBBA7F
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79472.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79678.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:F6FF9F02CC5D70DC8748A3335CC6C79711E8FC79
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79844.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:7E31E47F8B4384F51D9DE9D065E4DBA800FA38DE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80071.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:5D959EBDD6BC0107AC46E4488E9CB3BC8055E10B
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81098.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:ECAF63881E37B351447E72FFEA70D565C52B1641
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81128.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A72A47295BE3BDE73120ADFF64F5B51AC321335E
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81296.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ UFC Personal Trainer: The Ultimate Fitness System [XBOX360] [ENG] (RegionFree) [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81297.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:54EEB36C056EDC1B21F6001DBB2E4DE5AF9105FB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81301.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:DFD59E435BB80A030B8242BC40FD4F38C8408D1C
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81521.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:F955412E1FA7EE8684690539196BFD675E1F890E
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81940.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:47E76C2E8973E8E3332F390B4B062DFB570B8BFE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81957.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:CFFD38326CF37E51D28677C40C0CA3377F0ED6B7
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81966.jpg" />
 </div>
 
 

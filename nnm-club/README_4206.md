@@ -1,3 +1,84 @@
+###  Публикация: 1525998   (129076) от 22.01.2022
+
+StartAllBack 3.2.2 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129076.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FEC5FFE031D740282E880ADDBC6B687CC9245E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525047   (129078) от 22.01.2022
+
+Windows 10 Enterprise LTSC 21H2 (Build 19044.1466) x64 by Brux [Ru]
+
+>>След.
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.0.19044.1288 Version 21H2 (2021 Update) (MSDN). Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8F96A8C37902CB6CD9CE41F8033FC34523A7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489005   (129079) от 27.04.2012
+
+VA - Весенняя волна хитов к празднику (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maxima - Ненавижу Любовь (3:37)
+2. Алексей Большой - Один Взгляд Назад (3:35)
+3. Влада - Я Для Тебя (3:21)
+4. Алексей Матиас И Alyosha - Песня Моря (3:44)
+5. Сергей Жуков - Hearts (4:01)
+6. T.O.T.A.L. И Антитeла - Весна-Любовь (Hard2V) (4:35)
+7. Бьянка - Без Сомнения (3:15)
+8. Dj Smash, Dj Рыжов, Chinlong - На Заре (3:38)
+9. 5sta Family - Spring Summer (2:50)
+10. Виктория Дайнеко - Я Буду Красивой Невестой (3:51)2012Жанр: PopПродолжительность: 05:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C2E87A4A1D8A4A77DA8B655C7CBDAB14F0A473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525895   (129080) от 22.01.2022
 
 Соври мне правду (2021) Blu-ray [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129080.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:B3CDC4052E727ECE60D91CFDEFFFA6C4183B353A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129082.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5266.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129084.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ magnet:?xt=urn:btih:2FAA7CFA61A3EB9B54452679C00F6AD25ADFD1A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129086.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ magnet:?xt=urn:btih:F248462702414413720DC0FEB583C6E636A08F49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129088.jpg" />
 </div>
 
 
@@ -126,7 +207,7 @@ magnet:?xt=urn:btih:0841BFE71AA02F1752342B81483C1E3A4046B0CE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129089.jpg" />
 </div>
 
 
@@ -152,7 +233,7 @@ magnet:?xt=urn:btih:BFBBF6DF02EB1F6D326E7B4365C0CE9C53FB2969
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129090.jpg" />
 </div>
 
 
@@ -176,7 +257,7 @@ magnet:?xt=urn:btih:C21EA72BA8E64DEB4C6EA255FDD48E6E76C30F1B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129091.jpg" />
 </div>
 
 
@@ -200,7 +281,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129092.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ magnet:?xt=urn:btih:D769F77459AD089A56288024BB071157C70FBD2F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129094.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ WinISO Standard 6.1.0.4499 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129096.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129098.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129101.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ Sect - 4 albums (2007-2011) [FLAC|Lossless] <Neoclassical, Martial Industrial, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129102.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129103.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129105.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ magnet:?xt=urn:btih:CBFA26418821B3E7FA00E8DD96340D6685EDDC8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129106.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129107.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129108.jpg" />
 </div>
 
 
@@ -497,7 +578,7 @@ VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129109.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ Slave To The System - Slave To The System (2006) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129110.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ Abyssus - Death Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129111.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Bartender 4 v4.1.29 beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129112.jpg" />
 </div>
 
 
@@ -590,84 +671,6 @@ Bartender - утилита для простой организации икон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BBBD7E64E55E021DB5D8669892531D34DF01A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488917   (129113) от 27.04.2012
-
-Zentimo xStorage Manager 1.6.2.1217 + RePack by elchupacabra + RePack by KpoJIuK [Мульти, есть русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525660   (129114) от 21.01.2022
-
-Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129114.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Exit:
-01. Exit [9:26]
-02. Come Sunday [7:36]
-03. Three Base Hit [4:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525622   (129116) от 21.01.2022
-
-Dive In Minds - Innocent Victims (2001) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Suffering 	05:54
-02. 	Holocaust of the Human Being 	05:43
-03. 	Innocent Victims 	04:53
-04. 	Torment 	04:31(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E3346199355662023D62FCD3D324CD97BF440D
 ```
 
 

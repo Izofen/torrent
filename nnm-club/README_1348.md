@@ -6,7 +6,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35401.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35402.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35403.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35404.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35405.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:5FC32898625C8971F31C895CE3D5EC808690D71B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35406.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:8C07D6E7874B71E15B39A251ACF89B3703204B84
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35407.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35408.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35409.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Larry Fuller Trio - Easy Walker (1998) 2003, Pony Boy Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35410.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35411.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35412.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35413.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35414.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35415.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35416.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Etta James - The Right Time (1992) CD, Album, Club Edition, BMG [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35417.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:7F54D077D5AACC410A923319ABF3DDCAFD8253B9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35418.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A9FAFC4DF17231C4FCF0759CA2F39334F7EBE275
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35419.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Beck - Mutations (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35420.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:E34BE71C7A67F83D6BAB7B2E0DDDA160FA744F8C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35421.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:5845C458C01E9C61298A392CDE9130E9FD8F598D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35422.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Magic Eraser / Магический ластик v2.15.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35423.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:27C93B18A2B3C2E824575869652CB40849040F39
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35424.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:9E09739340FA3EBB12C51966C1E3233815CE4DAC
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35425.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - Modern Power Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35426.jpg" />
 </div>
 
 

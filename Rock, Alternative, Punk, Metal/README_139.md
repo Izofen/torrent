@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109897.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anette Olzon - Rapture (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109898.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Праздник русской авиации (2001) [FLAC|Lossless|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109900.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kings Of Leon - Can We Please Have Fun (2024) [MP3|320 Kbps] <Alt.Rock, Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109917.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blaze of Perdition - Conscious Darkness (2017) [FLAC|Lossless|tracks + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109939.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shrine of Insanabilis - Vast Vortex Litanies (2019) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109940.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109942.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109945.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109948.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109951.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109953.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109957.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109958.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109960.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Deicide - Banished By Sin (2024) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109964.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109967.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Marching Band - Is It Too Sharp? (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109969.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Veer Union - Life Support 1&2 (2013-2023) (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109973.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ S.T.D. - Шум и грязь (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Punk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109979.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004-2024) (2024) Liv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109981.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Hana Vu - Romanticism (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109996.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Velveteen Queen - Consequence of the city (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109997.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kee Avil - Spine (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rock pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109998.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:44A2925FE32DAEF7550CF4628570C0F5B909A2A8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110019.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Matt Page - Apocalypse Garden (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110020.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:5CE62DF291CE9168C8919EB6EDDAFC97CD061F72
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110021.jpg" />
 </div>
 
 

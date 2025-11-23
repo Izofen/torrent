@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27648.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27649.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Illustrator 2025 29.3.0.146 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27650.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27651.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2559F3760FDDC3B07C2D5F71A485DF6FE1E22FE7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27652.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27653.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:85CE70BD4AD99DD7547712F306AE51904C456134
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27654.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:15954896EE5FD8549AAB4F46360B1AF9766C417B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27655.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5EE2B4082B21B5717AAE0E52292FFD9538D3E373
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27656.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27656.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27657.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:67E199BE46A74C9D14ECCFEBF15715085309D9C5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27658.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Deworker Pro, Дмитрий Елисеев | Способы ускорения 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27659.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27660.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe InDesign 2025 20.1.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27661.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:4A4FE86F072C5A1C1DD6B4256C7DC29CF2AFE30E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27662.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:B0D0DE90D3AE19FF707B403EF8C0A4E2EC71801D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27663.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27663.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27664.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A9E0624B2BDA9D114FD1CD664BD0CA38C1565709
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27665.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27665.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:19F0CF036638D653D54EE7A234D788C86EE485E1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27666.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27667.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:82F498CAECA85A964941E96DC25CF8C08C3A7540
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27668.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B735439D901603B4796C946D1F1B07D2000656BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27669.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27669.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B735439D901603B4796C946D1F1B07D2000656BC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27670.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:970A3953213E6E0E8DBED1649E59B8F6797DD947
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27671.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27671.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Resident Evil 2 (1999) [Multi] (1.0 HotFix 2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27672.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2AA8D289A37AEF3B0CBC451FFFB3A1192E664BF0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27673.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160242.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160264.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160268.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160284.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160285.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160291.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160292.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Protean Shield - Protean Shield (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160293.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Beyond the Flames - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160295.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hinayana - Shatter And Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160297.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kobra and The Lotus - Evolution (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160313.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Platina - Про тебе... (2010) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gama Bomb - BATS (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160321.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tarja - Dark Christmas (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160393.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tarja - Dark Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160403.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:5E55A9C4DAE753DE206C94C9BCD018E50872E5D5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160411.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Doro - Conqueress: Forever Strong And Proud (2023) 2 x CD [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160412.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ United Progressive Fraternity - Planetary Overload - Part 2: Hope (2023) 3 x CD 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160441.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Eisbrecher - Zehn Jahre Kalt (2014) [FLAC|Lossless|image + .cue] <Industrial Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160454.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Mayhem - De Mysteriis Dom Sathanas Alive (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160457.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Eisbrecher - Eiskalt (2011) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160461.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Sylosis - Cycle Of Suffering (2020) [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160462.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Eisbrecher - Eiszeit (2010) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160464.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Eisbrecher - Sunde (2008) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160465.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Battle Born - Battle Born (2020) EP [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160467.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Graven Sin - Veil of the Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160468.jpg" />
 </div>
 
 

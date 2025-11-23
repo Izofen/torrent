@@ -6,7 +6,7 @@ iZotope - Ozone 11 Advanced 11.0.1 VST 3, AAX, NKS (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53977.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:47A1872C1DBD746742D7F4DE00C0E523CC8D5058
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53978.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:00F1A895A0E5995F43455C7ED9FF5BF943E8AE31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53979.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VueScan Pro 9.8.33.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53980.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cent Browser 5.1.1130.123 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53981.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53982.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53983.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:DBD0CEE0380419E642BA9D19B7D3C1A356833BCC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53984.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ ALTF42 (2023) [Multi] (2.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53985.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C0415995ED6CD6322F5F684B0F78480CFC18B536
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53986.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ CyberLink PowerDirector 2024 Ultimate 22.5.3003.0 RePack (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53987.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9614A9497E91101F44769AE39DB5A64BB8F3E032
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53988.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A6E2149DA25DE2BD29AE85EC26FD13D20C4A8B62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53989.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:23B03C5C51025C8F775FE3EBFF7C14C2282FA139
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53990.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:11FADAA3B2E0B80BD9CDB6A59D5C962FD18AAA49
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53991.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:774351C925C8C934884BF881E3F083736E0E5CD4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53992.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Scene FairLight [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53993.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53994.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53995.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:CCDCDB6586AA206A1591AD0A7308E88E11D9EB66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53996.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53997.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:FE782D10C8486E4EFF80A21F4C37C988EB768845
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53998.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53999.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9BE451E29673438FDC3D5FBD6A681796958B3703
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54000.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:9BE451E29673438FDC3D5FBD6A681796958B3703
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54001.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:E67205FA6A503E29123304F0AB38E2D15FA7FFFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54002.jpg" />
 </div>
 
 

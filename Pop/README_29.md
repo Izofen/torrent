@@ -6,7 +6,7 @@ Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71101.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71131.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Italo Strikes Back Vol. 2 (1998) 2 CD [MP3|320 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71175.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71186.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71225.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71256.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71261.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Giorgio Moroder - Club Remixes Selection, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71286.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71309.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71313.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71371.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71374.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71376.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71406.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71408.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71415.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71419.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71420.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71426.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71427.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71434.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71445.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71476.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71478.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30364.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30364.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30371.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30386.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30392.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30398.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30401.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30447.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30458.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30460.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30473.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30474.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30475.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30477.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30478.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30486.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30488.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30498.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30499.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Skydance's BEHEMOTH (2024) [Multi] (1.0/dlc) Scene Rune [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30502.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Airhead (2024) [Ru/Multi] (0.569) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30506.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30556.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30556.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30558.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30586.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30586.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30598.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Haunting of Joni Evers (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30616.jpg" />
 </div>
 
 

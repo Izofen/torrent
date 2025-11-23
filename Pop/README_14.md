@@ -6,7 +6,7 @@ E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Euro
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42059.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42089.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42093.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ E-Rotic - Level Up (2024) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42101.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sting - Brand New Day (1999) Expanded Edition, 2024, A&M [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42214.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42261.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42297.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Lady Gaga - Harlequin (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42324.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42397.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Fantastic 80s! (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42433.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42502.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Powermix Part IV (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42506.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Powermix Vol. 001+002 (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42538.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42616.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42711.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42718.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42721.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - DJ Hits Platinum 97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42727.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Mega-Mix Dance Hits Vol. 1 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42729.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - 70s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42748.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42812.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - DJ Hits Vol. 5858 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42931.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Maite Kelly - Nur Liebe (2024) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43144.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Giorgio Moroder - Radio Edits, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43180.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - DJ Hits Vol. 2040 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43249.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43353.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1703964   (114634) от 02.03.2024
+
+Жизнь Мухомацу / Muhomatsu no issho / Muhomatsu, the Rikshaw Man (1958) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по роману Сюнсаку Иваситы «Жизнь Мацу Неприрученного»... Конец XIX - начало XX века. Жил в городе Куруме рикша по имени Мацугоро. Был он озорной, весёлый, смелый, никому ничего не уступал, не прощал никаких обид. За грубость и озорство его прозвали «Неприрученным». Все его побаивались, но и уважали за справедливость и доброту. Однажды Мацугоро увидел, как ребятишки (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: драма, комедияРежиссер: Хироси ИнагакиАктеры: Тосиро Мифунэ, Хидэко Такаминэ, Хироши Акутагава, Тисю Рю, Тёуко Иида, Харуо Танака, Дзюн Татара, Кэндзи Касахара, Каору Мацумото, Нобуо Накамура, Ичиро Аришима, Тиэко Накакита, Сэйдзи Миягути, Бокудзэн Хидари, Кокутэн КодоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (borysd и Сергей О.Яковлев), английскиеПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA2192D50FDF20D5E9E00FDA64663AA02A0B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703899   (114635) от 02.03.2024
+
+Александр Жданов - Скиф I (2000) [FLAC|Lossless|tracks + .cue] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скиф 4:37
+02. Туман и дождь 4:22
+03. Лапушка 3:49
+04. Три пустыни 5:38(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA78AA335802609022F382715852C712FB65495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704009   (114636) от 02.03.2024
+
+Живая еда с Сергеем Малозёмовым (02.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кумыс: чем хорош древний напиток из кобыльего молока и есть ли в нем алкоголь? Помогло ли кумысолечение Антону Чехову и стоит ли так лечиться сегодня?
+ Как греческое тесто фило готовят на родине и можно ли найти достойное в российских магазинах?
+ Соцсети учат плохому: на вредную еду даже смотреть вредно!
+ Даже пара банок энергетика в месяц ухудшает сон.(   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C9F0EF8BB600E9D4AED49C8CAA3E209503B88E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704015   (114637) от 02.03.2024
 
 Военная тайна с Игорем Прокопенко (02.03.2024) WEB-DL [H.264]
@@ -6,7 +84,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114637.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:C628EF57D4C55C8E6B2239AA379A5E1F1B92D3C2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114638.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ QOwnNotes 24.2.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114639.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ Liam Gallagher & John Squire - Liam Gallagher & John Squire (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114640.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:B90C1CA5E1663B40F1F8947EB463E6DC043A8AF6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114641.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:424C410541AD138B5B89CD17C77255A331EA6B2B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114642.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ magnet:?xt=urn:btih:A58C42BE0E4A93725018D262A51BB2A0E8ADC563
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114643.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ Pearl Django - Modern Times (2007) Modern Hot Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114644.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ magnet:?xt=urn:btih:D10B8E3ED792CBE308E25E971CD80F8FE3DF838F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114645.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2007, Metal Mind Production
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114646.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ Lee Mvtthews - Exit (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114647.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ magnet:?xt=urn:btih:46234D2C7B5ED48F6D674D35B6FF19B88EF969A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114648.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ Suldusk - Anthesis (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Atmospheric Dark,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114649.jpg" />
 </div>
 
 
@@ -343,7 +421,7 @@ magnet:?xt=urn:btih:375781DC63AEABB9688FAC13D3316628BD31D1D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114650.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114651.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ magnet:?xt=urn:btih:A1678280DECA9A360978CD53ACF2CA495AF0DE42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114652.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ Sultan And Shepard - Endless, Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114653.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ PdfFactory Std & Pro 8.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114654.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ CudaText 1.210.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114655.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ Mojo Mafia - Rescue Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114656.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ magnet:?xt=urn:btih:2A96725A2A26FB88723BBEE45A4F9BE1BF28D118
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114657.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ magnet:?xt=urn:btih:BBF5602CD802393F9BC8BCD3CEF36F5DCE507ABC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114658.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114659.jpg" />
 </div>
 
 
@@ -588,81 +666,6 @@ Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B3C0F346A63837245C61B1470E2E03E6B7F238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703966   (114660) от 02.03.2024
-
-С богами: Последние 49 дней / Singwa hamkke: ingwa yeon / Along With the Gods: The Last 49 Days (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший мстительный призрак Ким Су-хон предстаёт перед королём Подземного мира, и ангел смерти Кан-ним просит для него прохождение обычной процедуры — он уверен, что сможет убедить судей в невиновности своего подопечного. Король соглашается, но ставит условия: в течение 49 дней ангелы должны вознести душу старика Хо, чьё земное время давно истекло, и доказать невиновность (   Читать дальше...   )Производство: Корея Южная / Dexter Studio, Realies PicturesЖанр: фэнтези, приключения, драма, детективРежиссер: Ким Ён-хваАктеры: Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ма Дон-сок, Ким Дон-ук, Ли Джон-джэ, Чо Хан-чхоль, Лим Вон-хи, Ким Мён-гон, Чон Ю-анПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0D77DDE4CD3FA5966D7C44371A3B577E3D0BB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703870   (114661) от 02.03.2024
-
-Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MAD (2:47)
-02. Mirrors (3:42)
-03. 81 Special (3:56)
-04. Raccoons (3:28)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2FEE7616D857E139316C83A0F068914327FA7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703947   (114662) от 02.03.2024
-
-Жизнь Мухомацу / Muhomatsu no issho / Muhomatsu, the Rikshaw Man (1958) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по роману Сюнсаку Иваситы «Жизнь Мацу Неприрученного»... Конец XIX - начало XX века. Жил в городе Куруме рикша по имени Мацугоро. Был он озорной, весёлый, смелый, никому ничего не уступал, не прощал никаких обид. За грубость и озорство его прозвали «Неприрученным». Все его побаивались, но и уважали за справедливость и доброту. Однажды Мацугоро увидел, как ребятишки (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: драма, комедияРежиссер: Хироси ИнагакиАктеры: Тосиро Мифунэ, Хидэко Такаминэ, Хироши Акутагава, Тисю Рю, Тёуко Иида, Харуо Танака, Дзюн Татара, Кэндзи Касахара, Каору Мацумото, Нобуо Накамура, Ичиро Аришима, Тиэко Накакита, Сэйдзи Миягути, Бокудзэн Хидари, Кокутэн КодоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (borysd и Сергей О.Яковлев), английскиеПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879C7EFD03B3FD218267C9CB44CE93B0944DC394
 ```
 
 

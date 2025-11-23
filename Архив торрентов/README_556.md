@@ -6,7 +6,7 @@ DNS Changer 2.1.12 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120356.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2024 25.4.0.319 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120407.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120413.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120418.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120450.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Opera GX 106.0.4998.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120455.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MusicBrainz Picard 2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120460.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ RJ TextEd 16.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120462.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Text Editor Pro 28.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120468.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera One 106.0.4998.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120475.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WinMerge 2.16.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120479.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Minimal Audio - Effect Bundle 2024.01 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120485.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120498.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Universal USB Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120499.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120501.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ OneCommander Pro 3.67.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120511.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ XtraTools Professional 24.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120517.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ ExtraDisks 24.1.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120527.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ GoldWave 6.80 (x64) Portable by Spirit Summer [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120528.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ PreSonus Studio One 6 Professional 6.5.2 + Extensions [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120536.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Volume2 1.1.9.466 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120539.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ableton - Live Suite 11.3.21 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120541.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Supermium 121.0.6167.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120544.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Waves Ultimate 2024.01.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120545.jpg" />
 </div>
 
 

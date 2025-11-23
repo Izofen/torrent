@@ -1,3 +1,81 @@
+###  Публикация: 1740857   (105742) от 04.08.2024
+
+Limahl - Never Ending Story (2006) [WavPack|Lossless|image + .cue] <Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (Radio Edit)
+ 02. Too Shy
+ 03. Never Ending Story
+ 04. Big Apple(   Читать дальше...   )Жанр: Synth PopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB4955FBBA734417EC984AF9517434D3D708896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741058   (105743) от 04.08.2024
+
+Именем итальянского народа / In nome del popolo italiano (1971) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный судья Мариано Бонифаци расследует причины смерти молодой девушки Сильваны Ладзорини. Подозрение падает на коррумпированного мощного строительного промышленника Лоренцо Сантеночито, мораль которого не останавливается ни перед чем. Неподкупный судья Бонифаци очень ненавидит высокопоставленных мошенников и аферистов. И будет ли он объективным в своих действиях (   Читать дальше...   )Производство: Италия / International Apollo FilmsЖанр: комедия, детективРежиссер: Дино РизиАктеры: Уго Тоньяцци, Витторио Гассман, Эли Галлеани, Ивонн Фюрно, Мишель Чимароза, Ренато Бальдини, Пьетро Торди, Мария Тереза Албани, Альфредо Адами, Россела БергамонтиПеревод: дублированный, профессиональный двухголосыйЯзык озвучки: русский, итальянскийСубтитры: английские, итальянскиеПродолжительность: 01:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086A81A039B21737CF7D7B0831152EA90F30C69D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740831   (105744) от 04.08.2024
+
+Лариса Черникова - Ангел (2008) [WavPack|Lossless|image + .cue] <Pop, Stage>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангел
+ 02. Мой Малыш
+ 03. Первый Поцелуй
+ 04. Пока Живет Надежда В Нас(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B606AB1B3C306B68E6387AC5D4656BC77569E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741040   (105745) от 04.08.2024
 
 Именем итальянского народа / In nome del popolo italiano (1971) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105745.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105746.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:AB0A6A953D7D760997498E7ED61A367DBDD3833B
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105747.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Jive Aces - Keeping the Show on the Road (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105748.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The Home Team - The Crucible Of Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105749.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Atlantic - Another World (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105750.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:A98B8DD1A9324F706DE109E878E0E3C48BBE232C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105751.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:FB40C2974BF97E60DC8D5D112E9EA2152E393D5A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105752.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ Little Richard Vs Bigbeat Kings - Tutti Frutti Reloaded (2009) [WavPack|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105753.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:C91A3DD8C75078F62BF615CD2BABEFD38DB6CFDC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105754.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:925F306036397BE1CB13CFFFB58A7B2690C7892F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105755.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ magnet:?xt=urn:btih:6BBE9F76444A6CDEEE9F09732F3E631C03696013
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105756.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:2A8DD09983DC2FCF28554D8081F808CCDDB5BA33
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105757.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ Dream Evil - Metal Gods (2024) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105758.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ Plugin Boutique - Scaler EQ 1.1.3 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105759.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ magnet:?xt=urn:btih:9983BD55A6BF20D02A5019084F7ED51E07774030
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105760.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ PeaZip 9.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105761.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ magnet:?xt=urn:btih:19C974483CEE7E7D875172D476E2D9E7F85457E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105762.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ A.D. Sheffield | Command of Sentence-Patterns (1929) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105763.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ magnet:?xt=urn:btih:39EC35E11931E35E5B569EDA02E2530089A8BAD0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105764.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ RisohEditor 5.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105765.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ magnet:?xt=urn:btih:6478A6D3B01DB39FB0B4829BE92C60DEF392990C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105766.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ magnet:?xt=urn:btih:6D2880EA6271DE76F30C10EE26E7311F1339BCDD
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105767.jpg" />
 </div>
 
 
@@ -580,78 +658,6 @@ magnet:?xt=urn:btih:6D2880EA6271DE76F30C10EE26E7311F1339BCDD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36F6F7DD80F0D29912DB442A399F85BCCEF4197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740732   (105768) от 04.08.2024
-
-Мать в ловушке / Matka v trapu / Runaway Mum (2024) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замученная работой и бытом молодая женщина Сильвия понимает, что надо как-то менять свою жизнь и сбегает от семьи. Она снимает комнату у незнакомой женщины, а муж и двое детей - бытовые инвалиды - остаются сами по себе. Пока Сильвия отдыхает и думает как быть дальше, семейство выживает как может и надеется на скорое возвращение мамы, а отцу приходится решать проблемы (   Читать дальше...   )Производство: ЧехияЖанр: драма, комедияРежиссер: Хана ХендричоваАктеры: Петра Гржебичкова, Ленка Власакова, Ярослав Плесл, Яна Швандова, Valerie Vachkova, Matyás Svoboda, Марек Немец, Богумил Клепл, Мартин Пехлат, Елизавета Швачко и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:09Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB3C36629E35DFBD0EFC8E2752FE5FBA17A7B35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740948   (105769) от 04.08.2024
-
-AirBrush: ИИ Фоторедактор v7.0.0 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактируйте снимки в нашем фоторедакторе и получайте совершенные результаты! AirBrush предоставляет вам самые естественные, простые в использовании инструменты для редактирования фотографий, разработанные, чтобы придать вашим снимкам идеальный стиль.Тип издания: ProРелиз состоялся: 04.08.2024Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1EB39C413398E4E3D3AFF9C09D9245AD5F372F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740956   (105770) от 04.08.2024
-
-Мост / Die Brucke (1959) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе журналиста и писателя Грегора Дорфмайстера (под псевдонимом Манфред Грегор) (1958)... События происходят в маленьком немецком городке в последние дни Второй мировой войны. Гитлеровская армия терпит поражение за поражением и скоро в городе могут оказаться американские войска. В такой ситуации нацисты идут на крайние меры, пополняя (   Читать дальше...   )Производство: Германия (ФРГ) / Fono FilmЖанр: драма, военныйРежиссер: Бернхард ВиккиАктеры: Фолькер Лехтенбринк, Фриц Веппер, Михаэль Хинц, Франк Глаубрехт, Карл-Михаэль Бальцер, Фолькер Бонет, Гюнтер Гоффманн, Кордула Трантов, Вольфганг Штумпф, Гюнтер Пфитцманн, Ева Файтль, Эдит Шульце-Веструм, Ганс Эльвеншпёк, Эдельтраут Эльснер, Йоханнес БузалскиПеревод: авторскийЯзык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437AAA9BA7F5A43921C91178E869B7F129E31124
 ```
 
 

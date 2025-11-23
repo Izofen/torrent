@@ -1,3 +1,108 @@
+###  Публикация: 1665143   (183346) от 29.09.2023
+
+Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Room In Hell (04:50)
+02. Shadowcult (04:44)
+03. Seven Churches (Live) (03:27)
+04. Swing Of The Axe (Live) (03:54)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B931EDF1117518584E5DE032C35BBEDB4EB4349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664893   (183669) от 28.09.2023
+
+Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/Greatest Hits (1986, 1987) (Melodia, USSR/Wifon, Poland) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183669.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Secret Service» (с англ. — «Тайная служба») — шведская музыкальная группа, исполнявших свои произведения в жанре популярной музыки в 1980-х годах. Состав группы в разное время менялся, неизменными её участниками являются клавишник и Тим Норелл, последний является автором подавляющего большинства песен группы Secret Service.
+
+Secret Service — легендарная (   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94AAAF91AE0B9CD6A49947356A02621D92AA1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665006   (183997) от 28.09.2023
+
+Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost Horizon - пауэр-метал группа из Гетеборга, Швеция.2001 - Awakening The World
+2003 - A Flame To The Ground BeneathЖанр: Power MetalПродолжительность: 01:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664670   (184797) от 27.09.2023
+
+Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] Heavy/Power/Symphonic Metal
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассел Аллен (англ. Russell Allen; родился 19 июля 1971 года в Лонг Бич) — американский певец, вокалист прогрессив-метал группы Symphony X, а также грув-метал супер-группы Adrenaline Mob.2005 - The Battle
+2007 - The Revenge
+2010 - The Showdown
+2014 - The Great DivideЖанр: Melodic Heavy Metal, Symphonic/Power MetalПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664746   (184834) от 27.09.2023
 
 Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
@@ -6,7 +111,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186102.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186223.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186425.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186428.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186440.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186451.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186830.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Myrath - Дискография (8 albums) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187065.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187065.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187108.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187108.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187201.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187452.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187530.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188193.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188193.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -580,113 +685,6 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661762   (188563) от 15.09.2023
-
-Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
-2005 - Touched by the Crimson King
-2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543805   (188589) от 14.11.2022
-
-Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
-1985 - Freaky Styley
-1987 - The Uplift Mofo Party Plan
-1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590517   (188658) от 14.11.2022
-
-Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Moon Rising (2:19)
- 02. Midnight Hour (2:26)
- 03. I Feel The Earth Move (2:54)
- 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661107   (188800) от 14.09.2023
-
-Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ludvig Van Beethoven (1770 - 1817)
-Symphony No.6 In F Major, Op. 68 "Pastoral"
-A New Recording from the Berlin Philarmonic Hall
-A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 ```
 
 

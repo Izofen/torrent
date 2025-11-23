@@ -6,7 +6,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brotato: Premium 1.3.193 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38834.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F89BA58CEB608E50753CFE37BBF4BCEC181A77E0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38835.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E4771D9F40108CA321D8713F9306256ECCA6E228
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38836.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:17395C4A9985195D66BA188F54DCC99BD1489F24
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38837.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:96B3A329E69FFB5A8426B90F9C357B2D35B996A4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38838.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:96B3A329E69FFB5A8426B90F9C357B2D35B996A4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38839.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gpg4win 4.3.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38840.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:DE3C4EF0B9B3317707FE71FFBD14B9A41F13C75E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38841.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Cryptomator 1.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38842.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38843.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Macrorit Disk Scanner 6.9.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38844.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:684662F56FFBC740844A6B3171C4DE626E5BABB3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38845.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C18B72D412754093BEBC6BC29CA5A2C7829907B5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38846.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5B567EE6A3074A3001600CF36CC266990AD18644
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38847.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:86976ADBBB2459F3328856A76050A6F810B52D2D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38848.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B55D0C0A5B3722104E5F1AC26B0FF6FE2E3738C5
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38849.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F1C5C7ABB04CD09811FDF0C62E5B38B9452E1467
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38850.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38851.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D3704FF7FE4CD0BB4A9E4CEDA67A8B5C1B67432F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38852.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D245621B25D076393E2A95C5A00C19291F876368
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38853.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38854.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DA4B0AF386A1742E9BDD6F6DDF42418AF587E135
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38855.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Crime Boss: Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38856.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38857.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.0.82) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38858.jpg" />
 </div>
 
 

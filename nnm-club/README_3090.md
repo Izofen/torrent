@@ -1,3 +1,102 @@
+###  Публикация: 474754   (98300) от 01.04.2012
+
+VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alya - Damelo (DJ Geny Tur & DJ МакsимOFF Remix) (3:52)
+ 2. Bastille - One Night Love Affair (Aylen Remix) (4:28)
+ 3. Benny Benassi feat. Sandy - Illusion (Ramirez Remix) (4:31)
+ 4. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
+ 5. Cher Lloyd - Want U Back (Cahill Extended Mix) (5:52)
+ 6. G&G feat. Jonny Rose & Chris Reeder - All Falls Down (Extended Mix) (4:16)
+ 7. Klaas - Engelstrommeln (Radio Edit) (3:03)
+ 8. Michael Telo - Ai Se Eu Te Pego (DJ Geny Tur Remix) (4:34)
+ 9. Spring Emotions & Seaside Clubbers - Egoist (Mondo Remix) (7:05)
+ 10. Wendel Kos & Big Fish - Ready To Rock (Original Mix) (6:16)22.03.12Жанр: Electro HouseПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476093   (98302) от 01.04.2012
+
+Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]<Jazzgrind / grindcore / fusion / jazz / progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Forester 031 (0:31)
+ 02 Servitor(0:48)
+ 03 Classic galaxy(0:42)
+ 04 Not ok radioactive situation(0:49)
+ 05 Slug situation(0:47)
+ 06 Hypnoconsultism(0:57)
+ 07 Headless 200(0:51)
+ 08 Diplomat 6(0:53)
+ 09 Apparatus(0:46)
+ 10 Multism(0:50)(   Читать дальше...   )2010Жанр: Jazzgrind / grindcore / fusion / jazz / progressiveПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476788   (98308) от 01.04.2012
+
+VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix)
+02. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
+03. Hands Up Squad - Alice In Wonderland 2k12 (Hardmaster Remix Edit)
+04. Topmodelz - Two Princes (Paramond Edit)
+05. Bodybangers Feat. Carlprit & Linda Teodosiu - One More Time (Tujamo Remix Edit)
+06. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix)
+07. Horn E. - Balando Cachonda (I Wanna Fuck)
+08. Flo Rida - Good Feeling (DJ Kapuzen & DJ Spaty Radio mix)
+09. Eagles - Hotel California (Ivan Flash Remix)
+10. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476086   (98310) от 01.04.2012
 
 Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technical Death / Jazz>
@@ -6,7 +105,7 @@ Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98310.jpg" />
 </div>
 
 
@@ -34,7 +133,7 @@ magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98312.jpg" />
 </div>
 
 
@@ -58,7 +157,7 @@ Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98313.jpg" />
 </div>
 
 
@@ -91,7 +190,7 @@ Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98314.jpg" />
 </div>
 
 
@@ -124,7 +223,7 @@ VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98317.jpg" />
 </div>
 
 
@@ -157,7 +256,7 @@ VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98321.jpg" />
 </div>
 
 
@@ -190,7 +289,7 @@ magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98322.jpg" />
 </div>
 
 
@@ -217,7 +316,7 @@ magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98323.jpg" />
 </div>
 
 
@@ -244,7 +343,7 @@ magnet:?xt=urn:btih:3AAFD6A7EE3F63B76B8FE439662BF8BD48171F18
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98327.jpg" />
 </div>
 
 
@@ -268,7 +367,7 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98331.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98331.jpg" />
 </div>
 
 
@@ -300,7 +399,7 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98338.jpg" />
 </div>
 
 
@@ -324,7 +423,7 @@ VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98339.jpg" />
 </div>
 
 
@@ -357,7 +456,7 @@ magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98340.jpg" />
 </div>
 
 
@@ -381,7 +480,7 @@ Hammer Horde - Vinlander (2012) [MP3|320 кб/с]<Melodic Death Metal / Viking M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98341.jpg" />
 </div>
 
 
@@ -414,7 +513,7 @@ magnet:?xt=urn:btih:07F24B9129B1E94389370E1686396CC723E37081
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98349.jpg" />
 </div>
 
 
@@ -438,7 +537,7 @@ Osher - Twilight (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98350.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98350.jpg" />
 </div>
 
 
@@ -471,7 +570,7 @@ VA - Mega Dance Spring 2012 Top 100 (2012) [MP3|217-281 kbps]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98353.jpg" />
 </div>
 
 
@@ -504,7 +603,7 @@ magnet:?xt=urn:btih:BA1CB4C6C4C960DD433408FA06D8797DD03BF6DB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98355.jpg" />
 </div>
 
 
@@ -532,7 +631,7 @@ magnet:?xt=urn:btih:E7686691FBAD15DDB0B071672ED532E0323543F1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98358.jpg" />
 </div>
 
 
@@ -556,7 +655,7 @@ magnet:?xt=urn:btih:242264A4D25E1D91B669D0E5D9B818BDB3BB4FA1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98362.jpg" />
 </div>
 
 
@@ -580,7 +679,7 @@ WinISO Standard 6.1.0.4472 Portable by BALISTA [Русский/Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98365.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98365.jpg" />
 </div>
 
 
@@ -604,7 +703,7 @@ WinISO - лучшая программа из всех подобных для �
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98366.jpg" />
 </div>
 
 
@@ -629,7 +728,7 @@ magnet:?xt=urn:btih:3AB2A16F003F272A4D25CE8A51999E7D01160267
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98368.jpg" />
 </div>
 
 
@@ -640,87 +739,6 @@ magnet:?xt=urn:btih:3AB2A16F003F272A4D25CE8A51999E7D01160267
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C0092EE84ECD0EB315CAC1C6A7CBCB56FB70D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476604   (98369) от 01.04.2012
-
-А. Мейкок | История инквизиции [2002] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дух средневековья, возникновение ереси, Лангедок и крестовый поход, инквизиция в Европе - от установления до "великого раскола", главные виды наказаний - это и многое другое вы найдёте на страницах нашей книги.2002Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7849271C2B9A8846D11935F49CC3C5D4C0F2C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476521   (98371) от 01.04.2012
-
-Пожары / Incendies (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента повествует о путешествии близнецов — брата и сестры — на Ближний Восток, где они надеются найти своих родственников.Жанр: Драма, Детектив, ВоенныйРежиссер: Дени ВильнёвАктеры: Мустафа Камел, Хьюсен Сами, Реми Жирар, Мелисса Дезормо-Полен, Максим Годетт, Доминик Бриан, Лубна АзабальПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 02:05:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475509   (98373) от 01.04.2012
-
-Melanie Fiona - The MF Life (Deluxe Edition) (2012) [MP3|320 кб/с]<Soul, Hip-Hop, R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time (Feat. J. Cole)
-02. 4 AM
-03. Break Down These Walls
-04. I Been That Girl
-05. Wrong Side Of A Love Song
-06. Running (Feat. Nas)
-07. Change The Record (Feat. B.o.B)
-08. Gone & Never Coming Back
-09. Bones
-10. Watch Me Work(   Читать дальше...   )2012Жанр: Soul, Hip-Hop, R&BПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7D3917D5B71438900022157B536E62359DD825
 ```
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34985.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E721E5149BF2CA332964523889D2427374A4A225
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34986.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34987.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34988.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:133EF985F12DB2237CC34411785F98EB211D5097
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34989.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8623DEB9542F51FC799359B3326A14450E70E76A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34991.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:26CA6AEE113CFAC14AED144D866D9F122EAE1190
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34992.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34993.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DJ Bobo - There Is a Party (30th Anniversary Edition) (1994) Reissue, 2024, Yes 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34994.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:62E96066FFAC4F062B82E82927F5C3C9DB12B896
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34995.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F1F4F883F9859363A6C40BD71800CC5F2FD4A84D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34996.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Music News For Forum vol.049 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34997.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ GAYAZOV$ BROTHER$ - Ночная жизнь (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34998.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:37D2EB9ED7A062E45D7814BCCF8017D947F89C44
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34999.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:02D8225C0ECE05D70367F7D488A4077A29C3F238
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35000.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Leaves' Eyes - Myths Of Fate (2024) 2 x CD, Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35003.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ QOwnNotes 24.12.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35004.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:61A743CECBCC602B01B0D3D40E1F0BA08A307357
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35006.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Australian Pink Floyd Show - Exposed In The Light (2012) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35008.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:4BA54B3A5DA005BF31F2E17DF4C79A82DC8DA9F3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35009.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, War
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35010.jpg" />
 </div>
 
 

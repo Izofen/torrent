@@ -6,7 +6,7 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154782.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154805.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154880.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2B5404092968618413FD888318BCABAF49109D99
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154891.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154904.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155011.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Grant Warwick | Mastering Lighting Lessons 5 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155112.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155196.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:7504E0464F82A8E2666C5EA1DAF4C515FD8A40D0
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155209.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155217.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155243.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ English For IT, Анна Гандрабура | Английский для те
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155355.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155430.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155454.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155592.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Yandex.ru | Курсы информационных технологий, Тре
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155807.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156137.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, Vyara Georgieva | The Complete English Grammar Course - from A1 to C1 lev
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156202.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:FB34BA964660668B46F2403A8185BD7090F72246
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156207.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ BigData Team, Алексей Драль, Артём Выборнов, Павел
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156233.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156372.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Voitixler, Екатерина Векслер | Практический онла
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156478.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Skillbox, Алина Гончаренко, Александр Чайка | Ос�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156546.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Skillbox, Дмитрий Бородин и др. | Финансовое моде
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156593.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ WPCourses, Алейников Сергей | Как быстро и правил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156616.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1685864   (126963) от 20.12.2023
+
+Деревня / Зомби Тамилнада / The Village (2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Гаутхам Субраманиан и его семья, состоящая из жены Нехи и дочери Майи, во время путешествия из Ченнаи в Тхутукуди ломают машину в безлюдной деревне Каттиял. Однако, обратившись за помощью к соседям, Гаутхам узнает, что в деревне обитают кровожадные мутанты. Как он спасет свою семью от надвигающейся опасности и сможет ли он очистить деревню от этой тьмы?Производство: Индия / SP Cinemas, Studio ShakthiЖанр: ужасы, триллерРежиссер: Милинд РауАктеры: Арья, Аадукалам Нарен, Muthukumar, Джордж Марьян, Divya Pillai, Baby Aazhiya, Arjun Chidambaram, В. Джаяпракаш, Тхалаивасал Виджай, Джон Коккени др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A884617B5CF6F4737939C021A49CEFADB0BA3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685953   (126964) от 20.12.2023
+
+Foobar2000 2.1 Final include Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126964.jpg" />
+</div>
+
+
+###  Подробнее
+
+foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524F5E2188649DEC53D837AEA55771986EF81932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685929   (126965) от 20.12.2023
+
+Арт-Студия Антипина Виталия, Виталий Антипин | Осенний марафон (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126965.jpg" />
+</div>
+
+
+###  Подробнее
+
+**ОСЕННИЙ МАРАФОН!!!**
+Друзья давайте с вами попишем осень масляными красками!
+5 октября старт
+(   Читать дальше...   )Производство: Арт-Студия Антипина ВиталияЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:40:02Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06820E89FCBBB4D92FF60B010DC1E728542F010E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685829   (126966) от 20.12.2023
 
 А. Никл | Повелитель теней (Книга 3) (2023) [MP3, Константин Загацкий]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126966.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126967.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ PC Cleaner Pro 9.5.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126968.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.3 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126969.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:1BE4821B0BA217E7AA1762B53999DEBBB2312D43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126970.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:45033B12FA349B2FF83EF6E75FA427F0391A0E93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126971.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:A13D3FD815F3EFC39B4C1914AA62CE3DF0D70E2E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126972.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:A4F33F5A625CB485CE469320D770D7991A597365
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126973.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:F3A6ED4CD2F6529DF3EEFBA72FE213296290C42E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126974.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:1866BCB932B84218AA6D504D14F772928FA88569
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126975.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ Nik Collection by DxO 6.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126976.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126977.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126978.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:0D791ABAECD182234DBFC91D79B3D8E370DBE077
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126979.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:D1BA5E57103B63BD4C5C7E7EFAF7B9650EBD51BA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126980.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Topaz Video AI 4.0.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126981.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Tor Browser Bundle 13.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126982.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ IrfanView 4.66 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126983.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ Wondershare UniConverter Ultimate 15.0.8.6 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126984.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ magnet:?xt=urn:btih:4C21C7DCC0D13EADB5D906391C3BADBE8A34FB86
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126986.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ MAGIX Video Pro X15 21.0.1.205 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126987.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:DAF2B065C66A1C83053049F29B3747D1B3C4C812
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126988.jpg" />
 </div>
 
 
@@ -553,79 +628,6 @@ magnet:?xt=urn:btih:DAF2B065C66A1C83053049F29B3747D1B3C4C812
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F55FA2FB2EA3B325460A59317AB801F7A18C4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686008   (126989) от 20.12.2023
-
-DxO PhotoLab Elite 7.2.0 build 120 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A970F12AD628433FBD78D353D33D1AEE8F1C70C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680337   (126990) от 20.12.2023
-
-Пожалуйста, не уничтожай: Сокровище Туманной горы / Please Don't Destroy: The Treasure of Foggy Mountain (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийная труппа «Пожалуйста, не уничтожай», состоящая из Мартина Херлихи, Бена Маршалла и Джона Хиггинса, представляет свой первый полнометражный фильм «Сокровище Туманной горы». Сюжет фильма рассказывает о трех друзьях детства, которые вместе работают в магазине товаров для активного отдыха в маленьком городке. Однажды они видят в социальной сети карту сокровищ (   Читать дальше...   )Производство: США / Universal Pictures, Apatow Productions, Mosaic, Talent OneЖанр: комедияРежиссер: Пол БригантиАктеры: Мартин Херлихи, Джон Хиггинс, Бен Маршалл, Конан О’Брайен, Боуэн Янг, Мэг Штальтер, Икс Майо, Николь Блум, Седрик Ярбро, Хлоя ТроустПеревод: Многоголосый профссиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DAA680D474906F051AB48FA1E1DD1F2C072C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685438   (126991) от 20.12.2023
-
-Украинская налоговая оштрафовала PornHub на $5,5 тыс
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава комитета ВРУ по вопросам финансов, налоговой и таможенной политики Даниил Гетманцев рассказал, что украинская налоговая служба оштрафовала сайт для взрослых PornHub, не платящий так называемый «налог на Google».
-«К сожалению, не все плательщики, оперирующие сервисами для взрослых, одинаково ответственно относятся к налогообложению», – сокрушается Данило Гетманцев.Он (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

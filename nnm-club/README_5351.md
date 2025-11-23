@@ -1,3 +1,175 @@
+###  Публикация: 1429997   (164610) от 16.12.2020
+
+Довод / Tenet (2020) UHD BDRip [H.265/2160p] [SDR, 10-bit] [IMAX Edition]
+
+>>След.
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164610.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США, Syncopy, Warner Bros.Жанр: Фантастика, БоевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Клеманс Поэзи, Фиона Дуриф, Майкл Кейн, Химеш Патель, Эндрю ХовардПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, full), украинские (Forced), английскиеПродолжительность: 02:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D9D085EDDE50E09CBB1F81FBC7F9C9916C04B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516966   (164611) от 13.12.2021
+
+Network Kit 9.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164611.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного приложения вы можете быстро найти всю информацию о своей сети. Информация, такая как внутренний и внешний IP, имя ISP, сетевое имя, MAC-адрес, адрес шлюза, маска подсети и адреса DNS. Кроме того, одним щелчком Вы можете проверить PING домен, запросить сервер или использовать службу NSLookup/Dig. Вы можете скопировать любую информацию о сети с которой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Fausto RistagnoПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE5B64326E4705690E0A0B77EEC5C5194AA2A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597760   (164612) от 16.12.2022
+
+Один путь / One Way (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкий мошенник Фредди крадет сумку с деньгами и наркотиками у Вик, влиятельной и очень опасной женщины-мафиози из Лос-Анджелеса. Раненный в живот Фредди садится в первый попавшийся автобус, который едет в калифорнийскую пустыню. У него есть 2 часа, чтобы успеть получить медицинскую помощь прежде, чем он умрет или возмездие Вик настигнет его. Это время Фредди использует, (   Читать дальше...   )Производство: США / 23ten, Baird Films, Bay Point MediaЖанр: боевик, триллер, криминалРежиссер: Эндрю БейрдАктеры: Кевин Бейкон, Трэвис Фиммел, Машин Ган Келли, Дреа де Маттео, Сторм Рейд, Риз Койро, Мэган Холдер, Луис Да Силва мл., К.Д. О’Хэйр, Томас МерфиПеревод: Дублированный (Zone Vision Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B0AB4DF321032B1B8BEABDFA901F9F0AD89B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346106   (164613) от 18.12.2019
+
+M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Periphery (05:44)
+ 02. Triennale (07:54)
+ 03. Enterprise (04:59)
+ 04. Careful, Thinking Could Become A Habit (05:06)Жанр: ElectroПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8B08BF70E2414622617A8943E3CDBF81AA9F86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353610   (164614) от 16.12.2020
+
+Подшивка журналов | Наука и жизнь (2020) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164614.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Основные рубрики: наука, техника, медицина, история, дела домашние, сад, огород, (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F117A03270232C03A8A5641C522B7D60B1264F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673617   (164615) от 02.11.2023
+
+Codepoint for Mac 1.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
+Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2022–2023 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC0B7A0B0B02E85CA7292807F1DECDF8810F21E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432210   (164616) от 16.12.2020
+
+Доставить к Рождеству / Deliver by Christmas (2020) WEBRip [H.264/1080p-LQ] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164616.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ёлочном базаре Молли случайно сталкивается с незнакомцем по имени Джош, отцом-одиночкой, который после смерти жены переехал с сыном в небольшой городок, где живут его мама и брат. А спустя пару дней в пекарне Молли раздаётся звонок, и между ней и таинственным собеседником возникает симпатия.Производство: США / Hallmark Movies & Mysteries, Muse Entertainment Enterprises, Build-a-Bear Workshop EntertainmentЖанр: Комедия, мелодрамаРежиссер: Терри ИнгрэмАктеры: Эйон Бэйли, Альвина Аугуст, Джим Торберн, Надин Лайтбади, Далиас Блейк, Ambika Vas, Kesler Talbot, Эрин МаршаллПеревод: Многоголосый профессиональный (IVI)Субтитры: ОтсутствуютПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F74903ED66D37101A3BE886B3905B5C8F5FCE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597725   (164617) от 16.12.2022
 
 The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Overview (2022) PCRec [EN, RU]
@@ -6,7 +178,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ CheckBook Pro 2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164618.jpg" />
 </div>
 
 
@@ -54,7 +226,7 @@ Jettison 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164619.jpg" />
 </div>
 
 
@@ -79,7 +251,7 @@ EdgeView 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164620.jpg" />
 </div>
 
 
@@ -103,7 +275,7 @@ DiskCatalogMaker 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164621.jpg" />
 </div>
 
 
@@ -128,7 +300,7 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164622.jpg" />
 </div>
 
 
@@ -155,7 +327,7 @@ magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164623.jpg" />
 </div>
 
 
@@ -179,7 +351,7 @@ magnet:?xt=urn:btih:00E3DB53A47F1737DED9158970542EC1EA3CDAA3
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164624.jpg" />
 </div>
 
 
@@ -206,7 +378,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164625.jpg" />
 </div>
 
 
@@ -231,7 +403,7 @@ magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164626.jpg" />
 </div>
 
 
@@ -255,7 +427,7 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164627.jpg" />
 </div>
 
 
@@ -282,7 +454,7 @@ AnyMP4 DVD Creator for Mac 6.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164628.jpg" />
 </div>
 
 
@@ -307,7 +479,7 @@ Viper FTP 5.5 (build 55012) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164629.jpg" />
 </div>
 
 
@@ -333,7 +505,7 @@ magnet:?xt=urn:btih:B176EA0C808B71A38ECE7C10F9C383EEEE346F6C
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164630.jpg" />
 </div>
 
 
@@ -357,7 +529,7 @@ Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164631.jpg" />
 </div>
 
 
@@ -384,7 +556,7 @@ magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -410,7 +582,7 @@ magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164633.jpg" />
 </div>
 
 
@@ -434,7 +606,7 @@ Folder Tidy 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164634.jpg" />
 </div>
 
 
@@ -459,7 +631,7 @@ EverWeb 3 v3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164635.jpg" />
 </div>
 
 
@@ -472,186 +644,6 @@ EverWeb 3 v3.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A08C0A9B7AFEDF40E62D7BA726648D0A0F2DF19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516881   (164636) от 13.12.2021
-
-Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Moon And Empty Arms [3:18]
-02. Frantonality [2:56]
-03. If I Loved You [2:48]
-04. For You [2:59](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432013   (164637) от 16.12.2020
-
-AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.32.5600 RePack (&Portable) by elchupacabra  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164637.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4A346EAAED9950DF62012C8448768CF230F649
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597894   (164638) от 16.12.2022
-
-Tor Browser Bundle 12.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A819054F752A0196F47A90CBEC821AA556FD1973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076437   (164639) от 16.12.2020
-
-Трансерфинг Реальности. Вадим Зеланд v3.7 [Ru] Full
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164639.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Реальность существует независимо от вас. До тех пор пока вы с этим согласны» – Вадим Зеланд.
-Трансерфинг – это технология управления реальностью. Желания не исполняются, мечты не сбываются, зато худшие ожидания, как назло, оправдываются. Неужели нельзя наоборот? Оказывается, можно. И вы узнаете, как.
-Возможности приложения:
-• 15 книг, полное собрание произведений (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 ноября 2019 г.Разработчик: Owly LabsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346224   (164640) от 18.12.2019
-
-Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haze (with Masahiko Togashi) [11:33]
-02. Free Point (with Steve Potts) [9:32]
-03. Epistrophy (with Mal Waldron) [7:57]
-04. Train Going By (with Irene Aebi) [3:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB866FED459B423B63F92FCF2C9DB488B107550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588941   (164641) от 16.12.2022
-
-Chainsaw Man | Человек-бензопила [2022, TV, 10 из 12] WEBRip 1080p raw
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164641.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Дэндзи есть мечта — жить мирной и счастливой жизнью, проводя время с любимой девушкой. Однако суровая реальность в лице некоего якудзы заставляет парня вернуться с небес на землю, ведь он вынужден убивать демонов, чтобы расплатиться с необъятными долгами покойного отца. Вместе со своим дьявольским питомцем Почитой, которого использует в качестве оружия, Дэндзи (   Читать дальше...   )Производство: MAPPAЖанр: Приключения, боевик, драмаРежиссер: Накаяма РюСубтитры: Русские, Английские и другиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD200F6EFCEC5BC9EA0D41C5222AB26776D9705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346125   (164642) от 18.12.2019
-
-J.J. Johnson - The Total J.J. Johnson 1966 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say When [2:58]
-02. Blue [5:53]
-03. In Walked Horace [4:46]
-04. Short Cake [2:46](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64B65BA42B2CC45992B00260915243637C76D4C
 ```
 
 

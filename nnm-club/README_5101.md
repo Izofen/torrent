@@ -1,3 +1,179 @@
+###  Публикация: 696231   (157962) от 22.12.2015
+
+Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Star (Dmitry Molosh Remix) (07:31)
+ 02. Intrepid Traveller (Luis Bondio 'Welfare' Mix) (07:49)Жанр: Progressive House, Techno, Downtempo, Breaks, IDM, Deep House |Продолжительность: 00:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F52CC4C41BDD9A3D09C759249A2CC42D5ACB62B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194269   (157963) от 24.12.2017
+
+Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It Not True, Simply Because You Cannot Believe It? [19:56]
+02. I Do Believe [04:37]
+03. Believe, For It Is True! [12:12]Жанр: Post-BopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967969   (157965) от 22.12.2015
+
+Миссия невыполнима: Племя изгоев / Mission: Impossible - Rogue Nation (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ОМН распускают, и Итан Хант остается не у дел, его команда неожиданно сталкивается с разветвленной международной сетью высокопрофессиональных спецагентов — Синдикатом. Это «племя изгоев» одержимо идеей установления нового мирового порядка и планирует серию разрушительных терактов. Итан и компания объединяются с дискредитированным британским агентом Илсой Фауст (   Читать дальше...   )Производство: США, Китай | Paramount Pictures, Skydance Productions, Bad RobotЖанр: Боевик, Приключения, ТриллерРежиссер: Кристофер МакКуорриАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Алек Болдуин, Ребекка Фергюсон, Винг Реймз, Шон Харрис, Америка Оливо, Саймон МакБерни, Чжан ЦзинчуПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский (форсированные, полные), Английский (форсированные, полные)Продолжительность: 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14494B04164C1F013E212A185E8C4B112FD0A9B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433450   (157966) от 20.12.2020
+
+Проекты - VideoHive - Christmas Creative Memories - 29622697 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон «Christmas Creative Memories» идеально подходит для веселого Рождества и счастливого Нового года. Вы можете использовать его для Рождественского поздравления, зимних воспоминаний или истории любви.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2750BB2018F4DEC2825DD2D8B9804A80458C8BD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194326   (157967) от 24.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Валь дe Изер (Франция). Женщины. Супергигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157967.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 декабря 2017 года, воскресенье. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Валь дe Изер (Франция).
+Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE65B56364793BCA3D9C594F56A47A45AD4CA5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967968   (157969) от 22.12.2015
+
+Роберт Чалдини, Ной Гольдштейн | Психология убеждения. Важные мелочи, гарантирующие успех (2015) [FB2, PDF, DOCX]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Чалдини — мощный прорыв в сложном искусстве убеждения, более 50 удивительно простых способов влияния на людей.
+Не важно, кого вам надо убедить и в чем: начальника — поддержать идею, коллегу — помочь с проектом, клиента — сделать покупку, супруга — вынести мусор, ребенка — выполнить домашнее задание без капризов…
+Вопрос в другом. Что конкретно можно изменить (   Читать дальше...   )Жанр: Психология, БизнесФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE116FAE1AC471FF374B304EA214599AF2593507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433334   (157971) от 20.12.2020
+
+Стивен Лин | Челюсти. Научное исследование о взаимосвязи между зубами, мозгом и кишечником + + 40-дневный план питания, который поможет вернуть в норму здоровье ротовой полости и сформировать иммун ...
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоматологи всего мира ликуют: проблемы с зубами есть практически у каждого. Пломбы, мосты, брекеты – сколько возможностей заработать на якобы невосполнимом ресурсе – здоровье нашей челюсти. Американский дантист Стивен Лин развенчивает миф о том, что здоровье зубов или дано от природы, или нет. Разработанный им 40-дневный план восстановления идеального состояния (   Читать дальше...   )Жанр: СтоматологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0061E966D36ADF1FF00BB6F376FF0231ECE691BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853585   (157972) от 26.12.2014
 
 Журнал | Playboy [Россия] №1-2 (январь-февраль 2015) [PDF]
@@ -6,7 +182,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157972.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ magnet:?xt=urn:btih:21736793D32FFFB1E190D3FDADAB4CECB4483273
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157973.jpg" />
 </div>
 
 
@@ -54,7 +230,7 @@ magnet:?xt=urn:btih:0FF65B374C7553F6AE5FB95A67697DFA165B27ED
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157974.jpg" />
 </div>
 
 
@@ -79,7 +255,7 @@ magnet:?xt=urn:btih:77355F0495E6EE91D30EEF90158A17B658623CF5
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157976.jpg" />
 </div>
 
 
@@ -103,7 +279,7 @@ magnet:?xt=urn:btih:C5AAA358DDBDFA6434D301062D5C96583CC7F88E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157977.jpg" />
 </div>
 
 
@@ -127,7 +303,7 @@ magnet:?xt=urn:btih:F0F0E3499ED4BAC75FF2AAB0B8677ABABEE3DB17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157978.jpg" />
 </div>
 
 
@@ -151,7 +327,7 @@ magnet:?xt=urn:btih:8E2E3863B6C1F54A3F6E462A0478DFF3654FCF9E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157979.jpg" />
 </div>
 
 
@@ -176,7 +352,7 @@ magnet:?xt=urn:btih:F95C381B5E81EB3137820DB09A72745F57DAA49F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157980.jpg" />
 </div>
 
 
@@ -200,7 +376,7 @@ Acronis BootCD 10PE x86/x64 by naifle (22.12.2017) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157982.jpg" />
 </div>
 
 
@@ -224,7 +400,7 @@ magnet:?xt=urn:btih:5BC20473F866B63BFC9E50FD16D100F26AC79396
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157983.jpg" />
 </div>
 
 
@@ -250,7 +426,7 @@ Stan Getz - Getz Plays Jobim: The Girl From Ipanema (2002) [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157985.jpg" />
 </div>
 
 
@@ -277,7 +453,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -301,7 +477,7 @@ magnet:?xt=urn:btih:0E91F0841A3480F69ED77EC5F346D94CF9E75CE3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157988.jpg" />
 </div>
 
 
@@ -328,7 +504,7 @@ magnet:?xt=urn:btih:A8707A7AA15AC897CD8877CF3B5122C02E162EF9
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157989.jpg" />
 </div>
 
 
@@ -353,7 +529,7 @@ magnet:?xt=urn:btih:B4D8EB72F5BAD363798C5EC723E299C5186905CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157990.jpg" />
 </div>
 
 
@@ -377,7 +553,7 @@ magnet:?xt=urn:btih:9C2A9B76DE3143C7915BE7631318768DEDB6D9D0
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157991.jpg" />
 </div>
 
 
@@ -401,7 +577,7 @@ magnet:?xt=urn:btih:00F1220287A6F1BB65E4E15CB6DA43D6B94B86D7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157993.jpg" />
 </div>
 
 
@@ -425,7 +601,7 @@ magnet:?xt=urn:btih:B165640E0364E87B33B3801165435BA59989BA60
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157994.jpg" />
 </div>
 
 
@@ -450,7 +626,7 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157995.jpg" />
 </div>
 
 
@@ -464,182 +640,6 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192514   (157997) от 23.12.2017
-
-Наемник / American Assassin (2017) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный наёмник ЦРУ Митч Рэпп раздавлен потерей невесты в результате теракта. Заместитель директора ЦРУ назначает Стэна Хёрли обучать убитого горем, но серьёзно настроенного Митча для предотвращения террористических операций и охоты на преступников. Вместе они исследуют волну, на первый взгляд, случайных нападений на военные и гражданские объекты. Но позже напарникам (   Читать дальше...   )Производство: США, CBS Films, Di Bonaventura Pictures, Lionsgate, Nick Wechsler ProductionsЖанр: Боевик, триллерРежиссер: Майкл КуэстаАктеры: Дилан О’Брайен, Майкл Китон, Шарлотта Вега, Кристофер Бомфорд, Кристофер Уэбстер, Шахид Ахмед, Бастер Ривз, Ник Кавальере, Саймон Коннолли, Юсеф «Джо» Свейд ...Перевод: Mногоголосый закадровый, любительскийОзвучка / Автор перевода: "Paradox" & Omskbird recordsСубтитры: АнглийскиеПродолжительность: 01:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B370AD1D413001DB82CF508813152BC985C4CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433281   (157998) от 20.12.2020
-
-Проекты - Motion Array - Christmas & New Year Frames - 878289 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157998.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas & New Year Frames» - это красивый, динамичный и элегантно анимированный шаблон After Effects. Он использует потрясающую комбинацию эффектов для улучшения и показа ваших медиа-файлов. Проект содержит 8 заполнителей текста, 9 заполнителей медиа и 1 заполнитель логотипа. Отличный способ показать своих друзей и семейные фотографии, или вы можете использовать (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394CAC5A07D59F3B3341833157F406EB0FFD3264
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968158   (157999) от 22.12.2015
-
-HeavenTools Resource Tuner 2.04 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
-Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8727360574097D9F5E680400BC5A0BAC4A18E01D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194112   (158000) от 23.12.2017
-
-MAGIX Video Pro X9 15.0.5.211 (x64) + Content [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158000.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Video Pro X – это программный продукт для быстрой и качественной обработки видеоматериалов и  работы с видео и учетом постоянно растущих требований..
-Мощный и современный программный продукт, он содержит большое количество инновационных и уникальных функций, которые удовлетворят запросы как простых видеолюбителей, так и опытных пользователей..
-Программа для (   Читать дальше...   )Язык интерфейса: Английский/Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F370D2AB0FCD7A4DF34663A823283588DD3FC848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433310   (158001) от 20.12.2020
-
-VA - Трибьют Сектор Газа (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. План Ломоносова - Возле дома твоего
-2. Голос Омерики - Колхозный панк
-3. Сектор Газовой Атаки - Утопленник
-4. ДДТ - Ночь перед Рождеством(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 01:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75D7CC9361995E81328FBC85CE3E0D6855A02FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968009   (158002) от 22.12.2015
-
-Christmas Stories 4: Puss in Boots / Рождественские истории 4: Кот в сапогах (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158002.jpg" />
-</div>
-
-
-###  Подробнее
-
-И опять Рождество в опасности. Некто похитил волшебную звезду, а без неё, как заявил Санта Клаус, рождество не состоится. Нашей героине предстоит спасти Рождество, но не одной, а вместе с кошачьим племенем, населяющим волшебный городок. Отправляйтесь в поиск вместе с героиней и ее главным помощником котом Саймоном.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF46F84CD69C40E88811689054F21E6CC8A5702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349474   (158003) от 20.12.2020
-
-Ирина Солнышко | Поиграем в ... (докторов, поваров, парикмахеров, магазин) (2007-2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все дети любят играть в водителей, поваров, докторов...
-Эта серия позволит вам познакомить малышей со "взрослым" миром профессий.
-А помогут в этом яркие мультяшные иллюстрации и забавные стихи замечательной детской поэтессы Ирины Солнышко.Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A2135C51523E48455E38E09BDF2962A68C95A6
 ```
 
 

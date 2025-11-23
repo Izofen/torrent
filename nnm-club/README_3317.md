@@ -1,3 +1,81 @@
+###  Публикация: 1740125   (105924) от 31.07.2024
+
+Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack|Lossless|image + .cue] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonebreaker
+02. Demolisher
+03. Baba Yaga
+04. Made In Russia(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740118   (105925) от 31.07.2024
+
+Футбол. Товарищеский Матч 2024. K-League-Stars (Корея) - Тоттенхэм Хотспур (Англия) (31.07.2024) IPTV [H.264/720p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Товарищеский Матч 2024. K-League-Stars (Корея) - Тоттенхэм Хотспур (Англия)Жанр: Спорт, ФутболЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175E60135208A4F8620769FDA244522E008268CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740073   (105926) от 31.07.2024
+
+Seventh Dimension - Of Hope & Ordeals (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Great Unknown 09:26
+2. Ghost Veil 05:55
+3. V23 06:12
+4. Underwater 07:48(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B7238F3BB25E83FF4711DE1CD8CF9F41EA9E7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740157   (105927) от 31.07.2024
 
 Autumns Eyes - Grimoire Of Oak & Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
@@ -6,7 +84,7 @@ Autumns Eyes - Grimoire Of Oak & Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105927.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105928.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ In Other Climes - Spreading Chaos (Since 2004) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105929.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Mechanyzed - Ivy King (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105930.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Sandboxie 5.69.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105931.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:0B28CF1441E5AB101EDCC88F83656ABE40C26B0D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105932.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ magnet:?xt=urn:btih:73E9C6DE892D1DA0951A2C6EFDC56150C3D93963
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105933.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:ACF071A3F3376B80FBB55789ACEBC48405A70E99
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105934.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ VA - Uplifting & Progressive Trance 2024 Vol. 1 (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105935.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:24EDAC12B142BF58DC5821106F353A5A6284738D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105936.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ magnet:?xt=urn:btih:9DAC2FA9DD518FBEE170C55EB4BABC1358570FC5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105937.jpg" />
 </div>
 
 
@@ -288,7 +366,7 @@ GeoGebra 6.0.850.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105938.jpg" />
 </div>
 
 
@@ -312,7 +390,7 @@ VA - Двойное удовольствие - 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105939.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ John Lee Hooker - Collection (Золотая серия) (2006) [WavPack|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105940.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ magnet:?xt=urn:btih:446A40A3DB23EF3E52A879945E2A4084EFA40704
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105941.jpg" />
 </div>
 
 
@@ -393,7 +471,7 @@ Cherry Bomb - Sunset BLVD (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105942.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105943.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:D36C012A74DDBA8B4C448D0602ADBCBB30FE5403
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105944.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ magnet:?xt=urn:btih:5071FF3B31719DD66E2F496261DA74A0BA1DEBC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105945.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105946.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse (2024) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105947.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ VA - Nothing But... Trancetopia Vol. 17 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105948.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ magnet:?xt=urn:btih:7F9E85DA0D96A5F6DA49C20E948A1D7F2A7D73CA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105949.jpg" />
 </div>
 
 
@@ -591,81 +669,6 @@ magnet:?xt=urn:btih:7F9E85DA0D96A5F6DA49C20E948A1D7F2A7D73CA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D6E35C25277D13693C183BDA09810DCB9A51189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739399   (105950) от 31.07.2024
-
-Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Stage>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Супер мега шашлыки
- 02. Мы пели караоке
- 03. Зачем ты мне влезла в душу
- 04. Женись(   Читать дальше...   )Жанр: Pop, Folk, StageПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740019   (105951) от 31.07.2024
-
-Монстры вселенной. Черные дыры (2012) WEBRip [XviD/1080p] [PR, AD]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доказательства процессов внутри центра галактик. Происхождение чёрных дыр. Сверхмассивные чёрные дыры.Жанр: телепередача, документальный, наукаЯзык озвучки: РусскийПродолжительность: 00:39:08Реклама: Присутствует реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFCB138A9BDAA25E5DFEC8B379EB881CE3A419B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739961   (105952) от 31.07.2024
-
-Фентази / Fentasy (2024) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечты влюблённой пары молодых словаков о безбедной жизни в уютном доме приводят к сомнительному решению — необходимые средства заработать наркоторговлей. Благо, у Уилла есть навыки химика и рецепт изготовления фентанила, а у Софии – связи и бойкие друзья, готовые заняться распространением готовой продукции. Вот только «коричневый яд» фентанил способен погубить не (   Читать дальше...   )Производство: Словакия / BeOnMindЖанр: триллерРежиссер: Anastasia Hoppan, Samuel VicanАктеры: Kristína Kanátová, Ноэль Чучор, Дэвид Швеглик, Анна Раковска, Владимир Едловски, Bronislava Kovacikova, Tomás Magát, Peter Ondrejicka, Viktoria SuplatovaПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:32Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C072391177AE86B94760F8A357105D5453DF47EB
 ```
 
 

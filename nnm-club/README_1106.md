@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Top Of Favorite Tracks (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29110.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:108A90F7B3B0F1720C6C27E19FB797136B8A53E1
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29111.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E420A1AD9ACEDAF8E9062EE5ECE01A324E8C8E73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29112.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29112.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ REFLEX - Больше чем жизнь (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29113.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:47F966BC501CE8D85306ED67F0995B7C13E779B4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29114.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:554F3A28B6E7B54F4007688C4A9C2FC6E8BFC4B4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29115.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29116.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29116.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Zynaptiq - PUNCH 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29117.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29118.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D7A602EF5837F99AAEEC30085769C588283F488C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29119.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Feral Cry - Shadow Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29120.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29120.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:B88C365847646119BCC7C0CC11915094750BF6A3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29121.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Auburn Sounds - Lens 1.3.0 (FULL) VST, VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29122.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:215A7C095AD2341B115AD8F21C70F1D695C4A6A5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29123.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29123.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NR
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29124.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29124.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electron
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29125.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29125.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:881DA0B66B7E4686AB49F38A9C4EF5B58B9614EA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29126.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29126.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:159A529EED49A15F6E7180FFC75899F7C742ECAC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29127.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C15D2872F9B10EC623EA6ACB7FCF7560FB1E0FE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29128.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:3BCBF0934E0B346C3A05D33A7D1B88ABF72C904E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29129.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29129.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Daro-X - After The Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29130.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29131.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29131.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29132.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29132.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Nagart - 13 этаж (2025) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29133.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29133.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:15DFBA9FE5D4E0421F8DB443B7E6DA723C12E83C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29134.jpg" />
 </div>
 
 

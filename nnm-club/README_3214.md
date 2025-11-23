@@ -1,3 +1,76 @@
+###  Публикация: 1759666   (103245) от 10.11.2024
+
+Своя игра (09.11.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870BB830C591D07C4B9F1CEDEA6A335F41ECE962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759724   (103246) от 10.11.2024
+
+Sleep Monitor: Sleep Tracker v2.8.0 Premium Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103246.jpg" />
+</div>
+
+
+###  Подробнее
+
+🎅Хорошо ли вы спали прошлой ночью? 🌛
+Sleep Monitor помогает отслеживать и записывать детали цикла сна. Sleep Monitor также оснащен умным будильником, который будет напоминать вам о том, что пора ложиться спать рано вечером и мягко просыпаться утром. Кроме того, Sleep Monitor включает расслабляющую музыку, которая поможет вам лучше спать.Тип издания: PremiumРелиз состоялся: 09.11.2024Разработчик: Fasting APP GroupПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354F57BA7BE4C28845D460D65030526A9984F50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759597   (103247) от 10.11.2024
+
+Я ухожу - не плачь / Country Strong (2010) WEB-DL [H.264/1080p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет развивается вокруг молодого восходящего певца Бо, который увлекается кантри-певицей Келли Кантер, чья слава уже несколько померкла. Они вместе с менеджером и, по совместительству, мужем певицы Эдом, а также прекрасной поп-дивой Чилес Стэнтон отправляются в турне, пытаясь возродить былую популярность. Но романтические хитросплетения и старые грехи угрожают разрушить (   Читать дальше...   )Производство: США / Maguire Entertainment, Material Pictures, Screen GemsЖанр: драма, музыкаРежиссер: Шана ФестАктеры: Гвинет Пэлтроу, Тим МакГроу, Гаррет Хедлунд, Тина Уайт, Лейтон Мистер, Маршалл Чэпман, Лари Уайт, Джереми Чайлдз, Дж.Д. Паркер, Лиза СтюартПеревод: Многоголосый профессиональный (MVO R5)Язык озвучки: Русский, АнглийскийСубтитры: английские (SDH)Продолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9A36123A39D8BDFAB37FA6F71B2E67B994DCF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759738   (103248) от 10.11.2024
 
 А.А. Григорьянц | Мораль по сходной цене (1987) [DJVU]
@@ -6,7 +79,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103248.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:F0055D3E937971AD56655D03938EEE9835D3EC12
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103249.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ The Harpoonist - Did We Come Here To Dance (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103250.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103251.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ magnet:?xt=urn:btih:067610092508485C49251B341E33133DCF333702
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103252.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ VA - Trance: The Vocal Session 2025 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103253.jpg" />
 </div>
 
 
@@ -161,7 +234,7 @@ magnet:?xt=urn:btih:F495FD36B6CE481D43AE40B06F8DEFDD5C48618D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103254.jpg" />
 </div>
 
 
@@ -187,7 +260,7 @@ magnet:?xt=urn:btih:5D84C1EF260CA80F0D293CBD7B98196C3F58EF11
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103255.jpg" />
 </div>
 
 
@@ -212,7 +285,7 @@ magnet:?xt=urn:btih:C6B603A7DF7E0314BF5ED17ADBCDE5460E682102
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103256.jpg" />
 </div>
 
 
@@ -236,7 +309,7 @@ magnet:?xt=urn:btih:2D44777BFC2D33C4DB1D5AE8045EB89E1619B78C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103257.jpg" />
 </div>
 
 
@@ -260,7 +333,7 @@ magnet:?xt=urn:btih:FB818835CD94601098D43CDE40152ACA5B179AAF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103258.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ magnet:?xt=urn:btih:58302B78748C73428A8567FE45F252930274E5FF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103259.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ magnet:?xt=urn:btih:6157784ED7898986BAB0062A9CC55B11A8FE4462
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103260.jpg" />
 </div>
 
 
@@ -335,7 +408,7 @@ VA - It's All About Deep-House, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103261.jpg" />
 </div>
 
 
@@ -362,7 +435,7 @@ magnet:?xt=urn:btih:3AE5166762DCDAE8DDCAF85A3296BFDF22A77C87
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103262.jpg" />
 </div>
 
 
@@ -386,7 +459,7 @@ VA - It's All About Deep-House, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103263.jpg" />
 </div>
 
 
@@ -413,7 +486,7 @@ VivaVideo Video Editor v9.21.8 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103264.jpg" />
 </div>
 
 
@@ -437,7 +510,7 @@ magnet:?xt=urn:btih:8F8A627EC0FAB626642D6297AC92778C1430072D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103265.jpg" />
 </div>
 
 
@@ -463,7 +536,7 @@ magnet:?xt=urn:btih:D19ADD1CD527AF9074ED2CA6D2F5F110CDA72E88
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103266.jpg" />
 </div>
 
 
@@ -487,7 +560,7 @@ Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103267.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:6236163F53A75D0FEF66077DA471975D6426D0C3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103268.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ Photo Editor v11.0 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103269.jpg" />
 </div>
 
 
@@ -562,7 +635,7 @@ magnet:?xt=urn:btih:697E343CBC847FC28E60A85BD31283F1F9BEE6EC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103270.jpg" />
 </div>
 
 
@@ -574,84 +647,6 @@ magnet:?xt=urn:btih:697E343CBC847FC28E60A85BD31283F1F9BEE6EC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84FB3FD3D8EA7460D005135F6A019BBE115F78A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759564   (103271) от 09.11.2024
-
-Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indómito
-02. Niño invisible
-03. Megalomanía
-04. Bella Luna(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43ACB77347BF619F70E2673CF598124AC60ECC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759579   (103272) от 09.11.2024
-
-Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [1:56]
-02. Love Me or Leave Me [1:40]
-03. As Long As I Live [4:12]
-04. You're The Top [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A7AA3F38AAA47CA35F38E51C26F837FB006F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759534   (103273) от 09.11.2024
-
-PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.11.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441D48B4D954658C03E9AD1522C30FE1CC05CFD6
 ```
 
 

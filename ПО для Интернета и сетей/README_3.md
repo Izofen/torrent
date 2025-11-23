@@ -6,7 +6,7 @@ Tixati 3.35.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Free Download Manager 6.27.0.6265 x64 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19177.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ GoodSync Enterprise 12.8.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19307.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MobaXterm 25.2 build 5296 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19531.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ eM Client 10.3.1720.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19975.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FileZilla 3.69.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20318.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ FileZilla Server 1.10.3.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21029.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Wirecast Pro 16.4.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21547.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21547.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:13576DC2F4960C2D1F83F3338EB8133DAD78B4CB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21873.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ OpenVPN 2.6.14 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22523.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ HopToDesk 1.43.1.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22701.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Brave Browser 1.76.82 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23373.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SupRemo 4.11.4.2831 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24070.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NetLimiter 5.3.23.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24407.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser 136.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25774.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NetSetMan 5.3.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26496.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Change MAC Address 25.01 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27443.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Min Browser 1.34.0 + standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28420.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ uTorrent Pro 3.6.0 Build 47196 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28423.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ DNS Changer 2.3.3 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28595.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (2501) RePack (& Portable) by TryRooM [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28841.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ AnyDesk 9.6.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29176.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29176.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ NoMachine 8.16.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29497.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Musify Music Downloader 3.9.2 RePack (& Portable) by elchupacabra [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30037.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Psiphon 3 build 185 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30092.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DVDFab StreamFab 6.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30135.jpg" />
 </div>
 
 

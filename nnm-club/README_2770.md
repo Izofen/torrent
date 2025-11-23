@@ -1,3 +1,76 @@
+###  Публикация: 454374   (76907) от 18.02.2012
+
+Discovery: Тайна Забытой Царицы Египта / Discovery: Secrets of Egypt's Lost Queen (2007) SATRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это Тайны из Прошлого Египта. Поиски фараона.. Женщины-Фараона. Более могущественной, чем Клеопатра или Нефертити. Женщины, правившей как мужчина. Одна из самых важных и могущественных женщин на Земле. Ее правление ознаменовало Золотую Эру в истории Египта, она накопила большую часть богатств, которые унаследует Тутанхамон. Затем она исчезла из истории.. Ее звали Хатшепсут, и если ее имя сейчас не так широко известно, то на это есть основания. Ее изображения были стерты, ее тело пропало из ее гробницы... Кто же все это сотворил с ней и почему...?!Жанр: ДокументальныйПеревод: Одноголосый, профессиональныйПродолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F809CC1787C2F50A64754376B7BFD1C68491F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453302   (76912) от 18.02.2012
+
+Не трогай белую женщину / Touche pas a la femme blanche (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финансовые верхи молодой Америки решают разом покончить с индейцами, которые, по их мнению, тормозят развитие американской экономики. Они подкупают генерала армии, и тот призывает знаменитого полковника Кастера, самодовольного фанатика-расиста, возглавить победоносную кампанию против индейцев…Производство: Франция, Италия / Mara Films, Films 66, Produzioni Europee Associati (PEA)Жанр: Комедия, Вестерн, БиографияРежиссер: Марко ФеррериАктеры: Катрин Денёв, Марчелло Мастроянни, Паоло Вилладжо, Мишель Пикколи, Филипп Нуаре, Уго Тоньяцци, Ален Кюни, Серж Реджани, Дарри Коул, Моник Шометт, Даниэле ДублиноПеревод: Двуголосый закадровыйПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454183   (76916) от 18.02.2012
+
+Серия "Войны миров. Фантастический боевик" [2011-2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войны миров. Фантастический боевик - новая серия фантастики от издательства "Эксмо". В серии книги таких авторов: Александр Конторович, Андрей Величко, Сергей Калашников, Константин Дроздов и др.
+Десантники против "хищников", "попаданцы" не туда попали, параллельные и перпендикулярные миры - всё будет в этой серии.2011-2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F019892BD8A0B04A2080F22538A8B7474ADF3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 439907   (76919) от 18.02.2012
 
 Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kbps]<Alternative>
@@ -6,7 +79,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76919.jpg" />
 </div>
 
 
@@ -39,7 +112,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76927.jpg" />
 </div>
 
 
@@ -63,7 +136,7 @@ magnet:?xt=urn:btih:595E3ABBA04F166C16848352969DE74FACB37647
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76928.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:595E3ABBA04F166C16848352969DE74FACB37647
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76931.jpg" />
 </div>
 
 
@@ -116,7 +189,7 @@ magnet:?xt=urn:btih:C7E8EC0AF8298B2F887BA1BA8572402B5E709975
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76933.jpg" />
 </div>
 
 
@@ -141,7 +214,7 @@ magnet:?xt=urn:btih:C7E8EC0AF8298B2F887BA1BA8572402B5E709975
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76934.jpg" />
 </div>
 
 
@@ -165,7 +238,7 @@ The Rolling Stones - Sympathy for the Devil (Remixes) (1968) [DTS 5.1|Tracks (Up
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76936.jpg" />
 </div>
 
 
@@ -192,7 +265,7 @@ magnet:?xt=urn:btih:ACEEBAF10E26BCB9DC81C8565E667AC6E87DE47F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76938.jpg" />
 </div>
 
 
@@ -216,7 +289,7 @@ magnet:?xt=urn:btih:ACEEBAF10E26BCB9DC81C8565E667AC6E87DE47F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76948.jpg" />
 </div>
 
 
@@ -240,7 +313,7 @@ magnet:?xt=urn:btih:69473A65131F461A945E06C12C3CC7D1930AF741
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76953.jpg" />
 </div>
 
 
@@ -266,7 +339,7 @@ magnet:?xt=urn:btih:69473A65131F461A945E06C12C3CC7D1930AF741
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76958.jpg" />
 </div>
 
 
@@ -290,7 +363,7 @@ magnet:?xt=urn:btih:69473A65131F461A945E06C12C3CC7D1930AF741
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76963.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ magnet:?xt=urn:btih:69473A65131F461A945E06C12C3CC7D1930AF741
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76965.jpg" />
 </div>
 
 
@@ -338,7 +411,7 @@ magnet:?xt=urn:btih:0947B9114244D45A69D0423EB563EBF5EC8B6537
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76966.jpg" />
 </div>
 
 
@@ -362,7 +435,7 @@ magnet:?xt=urn:btih:0947B9114244D45A69D0423EB563EBF5EC8B6537
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76975.jpg" />
 </div>
 
 
@@ -387,7 +460,7 @@ magnet:?xt=urn:btih:915233E1DE17734384BBEE1E2CD61D04AD045EF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76978.jpg" />
 </div>
 
 
@@ -411,7 +484,7 @@ magnet:?xt=urn:btih:915233E1DE17734384BBEE1E2CD61D04AD045EF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76980.jpg" />
 </div>
 
 
@@ -435,7 +508,7 @@ magnet:?xt=urn:btih:915233E1DE17734384BBEE1E2CD61D04AD045EF6
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76986.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:1312CAD3CF7BAA5F7CB8C5C6534D31A802808B5D
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76990.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ magnet:?xt=urn:btih:3B21DF438DE18223277DAB50794112636DD87138
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76992.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ magnet:?xt=urn:btih:E4D5BB0BF4837FAA333FFA027E0B056CD4C2279A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76996.jpg" />
 </div>
 
 
@@ -554,7 +627,7 @@ magnet:?xt=urn:btih:F722FA34ED008C27768B646394B723B5BF93619B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76997.jpg" />
 </div>
 
 
@@ -578,7 +651,7 @@ Encyclopaedia Britannica Ultimate Suite [ENG] [2012] [ISO]
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77002.jpg" />
 </div>
 
 
@@ -598,80 +671,6 @@ Encyclopaedia Britannica Ultimate Suite [ENG] [2012] [ISO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31A7BFF161F5C590438CC3F4BBCE2014C6883A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454443   (77003) от 18.02.2012
-
-NetBSD 5.1.2 [i386 + amd64] (2xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77003.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetBSD представляет собой бесплатную чрезвычайно надежную операционную систему, которая применима для многих платформ от мощных серверов до карманных устройств. Хорошо зарекомендовавала себя в различных сетевых системах, является одной из самых стабильных систем и не требует больших ресурсов памяти.
-
-NetBSD 5.1.2 - содержит исправления критических ошибок и проблем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE580D2D0BD0C8FAD1E31CB1B8A0D308BC032C51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454502   (77008) от 18.02.2012
-
-Scientific Linux 6.2 (LiveCD, LiveMiniCD, LiveDVD) [i386 + x86_64] (4xCD + 2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анонсирован релиз дистрибутива Scientific Linux 6.2, построенного на пакетной базе Red Hat Enterprise Linux 6.2 и дополненного средствами, ориентированными на использование в научных учреждениях.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D1C03E930A2AD7992ADF481F7FF8DCD551BB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454579   (77010) от 18.02.2012
-
-Камень (2011) BDRip [H.264/720p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда у известного бизнесмена похищают 7-летнего сына, он еще не представляет, какое испытание его ждет! Оказывается, таинственному похитителю не нужен никакой выкуп и у него единственное требование к отцу. В течение следующих суток тот должен решить, кто умрет из них двоих: его ребенок или он сам…Производство: РоссияЖанр: ТриллерРежиссер: Вячеслав КаминскийАктеры: Сергей Светлаков, Олеся Судзиловская, Николай Козак, Елена Коренева, Валда Бичкуте, Александр КолесниковПеревод: Оригинальный (русский)Субтитры: нетПродолжительность: 01:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4F3F89BD60010434ECDB54C22142D3EA800F6B
 ```
 
 

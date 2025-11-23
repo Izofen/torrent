@@ -1,3 +1,185 @@
+###  Публикация: 1270630   (155806) от 20.12.2018
+
+VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop, Nu-Disco,>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Livin' Joy - Dreamer
+02. Nightcrawlers - Push The Feeling On (Dub Of Doom/Short)
+03. Armand Van Helden - You Don't Know Me Featuring Duane Harden (Radio Edit)(   Читать дальше...   )Жанр: Pop, Experimental, Synthpop, Nu-Disco,Продолжительность: 03:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF84CEEB8481FDF7E42B51AF366344C968E70109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587835   (155807) от 13.12.2012
+
+Yandex.ru | Курсы информационных технологий, Третий набор [2012] CamRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155807.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 октября 2012 года стартовали третьи Курсы информационных технологий Яндекса.
+
+Теоретический курс состоял из семи лекций, которые проходили в московском офисе Яндекса. Для тех, кто не попал в число слушателей, и просто для всех желающих были организованы трансляции лекций с возможностью задавать вопросы в чате. 50 очных слушателей и онлайн-зрители узнали про:
+
+профессии в мире информационных технологий;
+инструментарий системного инженера;
+архитектуру операционной системы;
+безопасность информационных систем;
+организацию хранения данных;
+виртуализацию в Linux;(   Читать дальше...   )Жанр: LinuxПродолжительность: 16:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08B19CD2523FE00FB4EC63F22E4943B7304FF33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085849   (155808) от 22.12.2016
+
+Наталья Костикова | Творчество с малышами. Рисование, лепка, игры с детьми до 3 лет (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда начинать заниматься с ребенком творчеством? Как можно раньше! В творчестве важен процесс, а не результат. А в процесс можно вовлечь и малыша, который будет только рад экспериментам и необычному знакомству с окружающим миром.
+Автор этой книги, дизайнер, блогер, мастер по изготовлению мягких игрушек и декора Наталья Костикова, делится с мамами малышей своим опытом (   Читать дальше...   )Жанр: Детское творчествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C22FFE28900589BE2D70052BB861F5D3336F9BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676715   (155809) от 14.11.2023
+
+Екатерина Огнева | Достойный ответ (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155809.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Планета Скардар населена гуманоидами, с которыми очень сложно общаться. Они все время говорят загадками и ни один корабль еще не получал от них разрешение на повторное посещение планеты. Каков же должен быть „достойный ответ“, чтобы впечатлить скардарианцев и завоевать их симпатию?» ©Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607E616C2904F06FDD68FF72BF7FF2B24A74A113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194211   (155810) от 25.12.2017
+
+Д.Н. Ангерт и др. (ред.) | Современная школа [сборник педагогических статей] (1922) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В различных разбросанных по пространству России местах, в больших центрах и в культурных углах, педагогами-пионерами ведется борьба за преобразование старых казенных училищ в „школу-коммуну", „школу действия", „школу труда". Обычно принято скептически относиться к этой новаторской работе педагогов-мечтателей в дикой обстановке современного быта. Но (   Читать дальше...   )Жанр: История, политология, искусство, педагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C1648C37AE5696127105CEBF8F244C3C95ED12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968246   (155812) от 23.12.2015
+
+Генри Нив | Организация как система. Принципы построения устойчивого бизнеса Эдвардса Деминга (2014) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга доктора Генри Нива, ученика, близкого друга и коллеги доктора Деминга, считается, по общему мнению, лучшей интерпретацией учения Деминга о новом менеджменте.
+Принципиально иной, гуманистический взгляд на менеджмент, развитый доктором Демингом во второй половине прошлого века, гармонично объединяет цели владельцев бизнеса, менеджеров и остальных сотрудников. (   Читать дальше...   )Жанр: Деловая литература, Управление, подбор персоналаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35285E708E8128B8B0DD0F23047535CE4D802B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813652   (155813) от 27.12.2014
+
+Подшивка журналов | Вестник электроники (2014) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155813.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вестник электроники» – научно-технический журнал для инженеров и конструкторов, посвященный вопросам электроники. Уже больше десяти лет издание публикует материалы о новинках рынка компонентов, их технических характеристиках и областях применения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2558B90227A71FEE6A23963D57BAC47ECDF70203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676662   (155814) от 14.11.2023
 
 Журнал | Здоровье №11 (ноябрь 2023) [PDF]
@@ -6,7 +188,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155814.jpg" />
 </div>
 
 
@@ -30,7 +212,7 @@ magnet:?xt=urn:btih:1CA83E62ECA7D2ABA62EFBC406348BBD0417C2E4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155815.jpg" />
 </div>
 
 
@@ -57,7 +239,7 @@ magnet:?xt=urn:btih:0C5D59F9540FA55C4109C4FBA4A5B56206867E18
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155816.jpg" />
 </div>
 
 
@@ -81,7 +263,7 @@ VA - Lounge Music 1.0 (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155817.jpg" />
 </div>
 
 
@@ -108,7 +290,7 @@ Six Bar Break - Ghost Town (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155818.jpg" />
 </div>
 
 
@@ -135,7 +317,7 @@ magnet:?xt=urn:btih:27E02994F551D163319793E6C76FB0427C6A6455
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155819.jpg" />
 </div>
 
 
@@ -159,7 +341,7 @@ magnet:?xt=urn:btih:96B9BC72CA92946BA570AA0A3D60236AD2AC7634
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155820.jpg" />
 </div>
 
 
@@ -183,7 +365,7 @@ Harold Lopez-Nussa - Timba A La Americana (2023) Blue Note Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155821.jpg" />
 </div>
 
 
@@ -210,7 +392,7 @@ magnet:?xt=urn:btih:751C4B96CF8903846D663AB13A0EB99C07FCC7B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155822.jpg" />
 </div>
 
 
@@ -234,7 +416,7 @@ AMD Radeon Software Crimson ReLive Edition 16.12.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155823.jpg" />
 </div>
 
 
@@ -258,7 +440,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -285,7 +467,7 @@ magnet:?xt=urn:btih:24CEAD075E5D7E30FE3D5D0B79011E4091DA9948
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155825.jpg" />
 </div>
 
 
@@ -309,7 +491,7 @@ magnet:?xt=urn:btih:D8D5716AB628DA0AEEBD17E62647B690C022F6DB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155826.jpg" />
 </div>
 
 
@@ -333,7 +515,7 @@ VA - Alpine Grooves Easy Beats 1 (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155827.jpg" />
 </div>
 
 
@@ -360,7 +542,7 @@ magnet:?xt=urn:btih:369902F9899D98C588B54E91C65C57715684E813
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155828.jpg" />
 </div>
 
 
@@ -385,7 +567,7 @@ magnet:?xt=urn:btih:EA40FE176001798C6E7D4B67DE3E5B1BD27C0440
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155829.jpg" />
 </div>
 
 
@@ -409,7 +591,7 @@ magnet:?xt=urn:btih:F30861EBF23EC54BC307761EF36A137710642111
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155830.jpg" />
 </div>
 
 
@@ -433,7 +615,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155832.jpg" />
 </div>
 
 
@@ -457,7 +639,7 @@ Darkness Ablaze - It All Shall Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155833.jpg" />
 </div>
 
 
@@ -471,186 +653,6 @@ Darkness Ablaze - It All Shall Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:132B93ED2F2D0326ED4985836375CC01485D7551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600749   (155834) от 28.12.2022
-
-Сарко Ли | Экспедиция Жизни и Смерти (2022) [MP3, Екатерина Бабкова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хмурые, мрачные слуги тьмы. Они не спят ночами и едят мертвечину. У них холодная кровь и полное отсутствие моральных принципов. Так говорят о некромантах в далёком Солнечном крае. Да и в Туманных землях, на родине, их порой побаиваются. Но что делать самим некромантам, которые любят свою работу, не мыслят себя без неё и искренне не могут понять, почему этим ярко (   Читать дальше...   )Жанр: Героическое фэнтези, Магические академии, ПопаданцыПродолжительность: 10:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1917910F4400B6998CF17A3086CC7909FAECD495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085790   (155835) от 22.12.2016
-
-Журнал | Системный администратор №12 (декабрь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155835.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
-Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьтерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B17B3244DB96A382D518816B0C127E87BF0CB72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194459   (155836) от 25.12.2017
-
-Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Ambient, Electro, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (02:38)
- 02. The Ascent (06:37)
- 03. Out Of The Spirit World (04:24)
- 04. Across A Dark River (05:01)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental/Electro/Ambient/IndustrialПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29759F01AF6499CF13819528A5BADD76EDEC8B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433301   (155837) от 21.12.2020
-
-Не вижу смерти / Blind (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ослепнув после неудачной операции по коррекции зрения, бывшая кинозвезда пытается смириться с новой жизнью во тьме. Её дни в особняке на Голливудских холмах разбавлены общением с подругой Софией и новым поклонником Люком, но скоре за ней начинают следить ещё чьи-то глаза.Производство: США / Silent PartnersЖанр: Ужасы, триллер, драмаРежиссер: Марсель ВальцАктеры: Сара Френч, Джед Роуэн, Кэролайн Уильямс, Тайлер Галлант, Томас Хейли, Бен Каплан, Джессика Галетти, Шери Дэвис, Кевин Купер, Майкл Ст. МайклсПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE43FD9091E9E203BD8B4FCDC4186D65C08CC31F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588683   (155838) от 13.12.2012
-
-WinTools.net Premium 13.0.1 [MULTi / Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155838.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.
-
-(   Читать дальше...   )Название программы: WinTools.net PremiumЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085724   (155839) от 22.12.2016
-
-Comodo Internet Security Premium 10.0.0.6086 Final [Multi/Ru] [Web Installer]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных.
-
-Решение сочетает мощный антивирус, эффективный фаервол с корпоративным уровнем фильтрации пакетов и модуль Comodo Защита+, включающий продвинутую систему поведенческой блокировки и предотвращения вторжений.
-(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D364A74767AB1B746EEF526825E036FFDA3D059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676671   (155840) от 14.11.2023
-
-No Man Eyes - Harness The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Altar Of Science 02:04
-02. Craving Tomorrow 03:52
-03. Isaac 05:25
-04. Harness The Sun 04:26(   Читать дальше...   )Жанр: Prog Heavy Metal, Male Female VocalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96217BFC1B62B6C23722E5A61115CB436E25FE6F
 ```
 
 

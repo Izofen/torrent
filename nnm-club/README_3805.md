@@ -1,3 +1,78 @@
+###  Публикация: 1698206   (118612) от 08.02.2024
+
+JetBrains WebStorm for Mac 2023.3.3 Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118612.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CF8C9B9581A4430DC3301B33F77D5315361FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698042   (118613) от 08.02.2024
+
+Дюймовочка (1964) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о девочке, величиной в один дюйм - Дюймовочке. После ряда приключений она находит свою судьбу в стране эльфов.
+Однажды вдове, мечтающей иметь ребенка, Старый Волшебник подарил ячменное зернышко, исполняющее самые заветные желания. Зернышко проросло, и в распустившимся цветке появилась крохотная девочка, которую мать назвала Дюймовочка. Дюймовочка жила счастливо (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, фэнтезиРежиссер: Леонид АмальрикАктеры: Галина Новожилова, Елена Понсова, Михаил Яншин, Сергей Мартинсон, Виктор Авдюшко, Эраст Гарин, Эммануил Каминка, Иван Власов, Ирина Потоцкая, Тамара ДмитриеваСубтитры: отсутствуютПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A03FE4B268F76E49E5493FCD30ED14F9216247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697719   (118614) от 08.02.2024
+
+Л. А. Исаченкова и др. | Сборник задач по физике. 7 класс (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник является составной частью учебно-методического комплекса по физике для 7 класса. Пособие содержит все виды задач различных уровней сложности, примеры решения и оформления типовых задач, а также ответы к количественным задачам.
+
+Адресуется учащимся 7 класса учреждений общего среднего образования.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: АверсэвФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788F03E5A4273292D910277B8BB02626FC4C7AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698344   (118615) от 08.02.2024
 
 Luminar Neo 1.18.2 U2B  [Multi]
@@ -6,7 +81,7 @@ Luminar Neo 1.18.2 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118615.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:3FA2BE23989A507623C535259A591EC12C98350E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118616.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ Find Same Images OK 5.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118617.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:1A68C0ED7E0346F7D4A251A26CC849D97D3E1F3E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118618.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:93CDD3643B5B179E402ABE4591B7EF548F05CA15
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118619.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:8066BA7A39AF10BBC67B9D078D62BD13E3D4C39E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118620.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4587 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118621.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Lark Player - YouTube Music & Audio Player 5.69.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118622.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ VA - The Best of Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118623.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:B92329275DE6A80B9717D40BA4E12D66C841840F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118624.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:E3484658BC6D3C75F27ECA3443F872E4048ADD07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118625.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ Kneusel, Ronald T. | How AI Works: From Sorcery to Science (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118626.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Windows 11 Manager 1.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118627.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:AF3787CA4CB35B8613100E032C5D4CD8304B60D3
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118628.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ Steinberg - WaveLab 12 Pro 12.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118629.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Windows 10 Manager 3.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118630.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ iToolab UnlockGo 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118631.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ GameSave Manager 3.1.535.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118632.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ PassMark RAMMon 3.1 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118633.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118634.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ Ultra GPS Logger 3.196 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118635.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ FileZilla 3.66.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118636.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ DesktopDigitalClock 5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118637.jpg" />
 </div>
 
 
@@ -562,78 +637,6 @@ DesktopDigitalClock - простые и красивые цифровые час
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1129C9B8BE997C66902BF667466593E128ED4151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698109   (118638) от 08.02.2024
-
-CyberLink PowerDirector 2024 Ultimate 22.1.1.2601.0 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118638.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др. (Русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0EA07196074A24EA296FE0EB98EF32C7FDD5AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698087   (118639) от 08.02.2024
-
-Грисельда / Griselda (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-6 из 6) HDRezka Studio, TVShows
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118639.jpg" />
-</div>
-
-
-###  Подробнее
-
-История колумбийской наркобаронессы Грисельды Бланко, которой удалось создать один из самых прибыльных картелей в истории.Производство: США / Grand Electric, Latin World Entertainment (LWE)Жанр: криминал, биография, драмаРежиссер: Андрес БайсАктеры: София Вергара, Альберто Герра, Хулиана Айден Мартинес, Мартин Родригес, Хосе Веласкес, Орландо Пинеда, Мартин Фахардо, Ванесса Ферлито, Фреди Йэт, Камило Хименес ВаронПеревод: Многоголосый профессиональный (HDRezka Studio, TVShows)Язык озвучки: Русский, Английский, украинскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), ИвритПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9395AE23559D0EEE2BBBF4254B33CBA39A91C6C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698182   (118640) от 08.02.2024
-
-MyBible - Библия 5.7.1 Mod by Infiltrovat' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118640.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyBible поможет вам внимательно изучать, разбирать и регулярно читать Библию, всегда имея ее с собой, без необходимости подключения к Интернету. Вам доступны переводы Библии на более чем три сотни языков, включая оригинальные тексты и древние переводы на древнегреческом, древнееврейском, арамейском языках, комментарии, библейские и толковые словари, ежедневные чтения (   Читать дальше...   )Тип издания: PatchedРелиз состоялся: 08.11.2023Разработчик: Denys DolganenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3939A14B41EF79C60D976B18363EEBAC5875317F
 ```
 
 

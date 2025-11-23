@@ -1,3 +1,80 @@
+###  Публикация: 1683501   (128419) от 11.12.2023
+
+IObit Uninstaller Pro 13.2.0.5 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128419.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2033352F910D61FDFE6928989B4308D9C5802A6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683459   (128420) от 11.12.2023
+
+David Gilmour - On An Island (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castellorizon
+02. On An Island
+03. The Blue
+04. Take A Breath(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAAC20EB98475F05B815FB37EF1EAF7218FD24A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683604   (128421) от 11.12.2023
+
+Findroid | Владыка металла (Книга 1) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128421.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Владыка металла» – роман, первая книга одноименного цикла, жанр боевое фэнтези, темное фэнтези, РеалРПГ.
+
+Дрейк Арс всю свою жизнь прожил в небольшом городке, мечтая однажды отправиться в столицу и вступить в один из кланов. Но мечта исполнилась совсем не так как он воображал. Странная находка втягивает юношу в круговорот смертей, предательств и заговоров. Теперь, (   Читать дальше...   )Жанр: Боевое фэнтези РеалРПГ Темное фэнтезиИздательство: ИДДКПродолжительность: 10:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA00C95BF5F6DEFB41BC82C33DA436D03D16509E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670903   (128422) от 11.12.2023
 
 Фрэнк Синатра. Золотой век Америки / Frank Sinatra or America's Golden Age (2015) SATRip [H.264]
@@ -6,7 +83,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128422.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:C9BFF12ED4E0105D9FE0903E8DEE8FF151E62E1D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128423.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Topaz Video AI 4.0.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128424.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:B01B2608A4121F2727B379D000F93808992B5C14
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128425.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ Gastrosmile, Венера Хабирова | Желудок – ты как? (20
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128426.jpg" />
 </div>
 
 
@@ -129,7 +206,7 @@ magnet:?xt=urn:btih:61C0D2643E2B53CB2B7F853A0E300F620AF2A0CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128427.jpg" />
 </div>
 
 
@@ -153,7 +230,7 @@ VA - Live @ Tomorrowland Brasil (2023) [MP3|320 Kbps] <Progressive House, Melodi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128428.jpg" />
 </div>
 
 
@@ -179,7 +256,7 @@ magnet:?xt=urn:btih:A82F6C745B5D7D83DA06546DEC5AC1F0F824BBF1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128429.jpg" />
 </div>
 
 
@@ -203,7 +280,7 @@ magnet:?xt=urn:btih:86C1467E840E65254B20DC946F37C73E1FA8A1E6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128430.jpg" />
 </div>
 
 
@@ -227,7 +304,7 @@ magnet:?xt=urn:btih:B988D6FEB86C35FB81A1B22CB1572CE07E3162FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128431.jpg" />
 </div>
 
 
@@ -251,7 +328,7 @@ magnet:?xt=urn:btih:396EC4527750F092B8F72ADC4620DF639A0B2993
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128432.jpg" />
 </div>
 
 
@@ -275,7 +352,7 @@ magnet:?xt=urn:btih:A313325997FEE03CCA344023C29A37717C294536
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128433.jpg" />
 </div>
 
 
@@ -299,7 +376,7 @@ CareUEyes 2.2.11.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128434.jpg" />
 </div>
 
 
@@ -324,7 +401,7 @@ magnet:?xt=urn:btih:AD8269603C33138F1092AFA3B8A1DB753422A547
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128435.jpg" />
 </div>
 
 
@@ -348,7 +425,7 @@ FanControl V175 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128436.jpg" />
 </div>
 
 
@@ -372,7 +449,7 @@ magnet:?xt=urn:btih:3E1DC98B918756A8933533422FB6AD669EAA1D21
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128437.jpg" />
 </div>
 
 
@@ -396,7 +473,7 @@ magnet:?xt=urn:btih:83E6B6E63122DB09687ED36307A2E5F1CB07CECA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128438.jpg" />
 </div>
 
 
@@ -422,7 +499,7 @@ magnet:?xt=urn:btih:EB790DFC1EA6E2C371BB420CDC807FB5858C485D
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128439.jpg" />
 </div>
 
 
@@ -447,7 +524,7 @@ magnet:?xt=urn:btih:C4CFEEBF1AB5A886712E0E8E5D16F2D0EF4CF191
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128440.jpg" />
 </div>
 
 
@@ -471,7 +548,7 @@ JixiPix Spektrel Art 1.1.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128441.jpg" />
 </div>
 
 
@@ -496,7 +573,7 @@ magnet:?xt=urn:btih:3879A72BFF8440E4F6E14383BCEBB90B6F40BCD4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128442.jpg" />
 </div>
 
 
@@ -520,7 +597,7 @@ IrfanView 4.65 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128443.jpg" />
 </div>
 
 
@@ -544,7 +621,7 @@ MassTube Plus 17.0.0.502 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128444.jpg" />
 </div>
 
 
@@ -555,80 +632,6 @@ MassTube Plus — очень простая в использовании про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C6B4C59E3A22E93FA999AE04258730B23A25C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683566   (128445) от 11.12.2023
-
-Рафаэль Дамиров | Кречет (Книга 1) (2023) [MP3, Иван Златоустов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вирус, созданный в военных лабораториях США, вырвался наружу. Он быстро мутировал и убил почти все население Земли. У нового штамма обнаружился побочный эффект – через несколько часов после смерти инфицированные воскресают.
-Я примкнул к общине выживших – вместе отбиваться от полчищ зомби гораздо проще. Но оказалось, что мертвецы – не самое страшное, с чем нам придется (   Читать дальше...   )Жанр: Боевая фантастика, постапокалипсисИздательство: ЛитРес: чтецПродолжительность: 08:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683586   (128446) от 11.12.2023
-
-Остров Брава / Isla Brava (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Люсия собирается признаться своему мужу, что у нее роман с его братом. В ту же ночь муж Люсии бесследно пропадает, а детектив, которая будет вести дело об его исчезновении, узнает много интересного о тайнах семейства.Производство: Испания / Canary Pictures Vehicles, Canary Pictures Vehicles, Canary Pictures VehiclesЖанр: детективРежиссер: Педро Пабло ИбарраАктеры: Фернанда Кастильо, Эрик Айсер, Флавио Медина, Барбара Лопес, Karena Flores, Juan Pablo Fuentes Acevedo, Pablo Astiazarán, Renata Ybarra, Romina Poza, Getsemani Vela и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683623   (128447) от 11.12.2023
-
-Книжная серия | Детектив с трогательным финалом [6 книг] (2023) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив с трогательным финалом - издательская серия детективов, только что запущенная ЭКСМО. Серия стартует сразу двумя увлекательными романами в стиле старого доброго детектива от восходящей звезды остросюжетной литературы Тони Бранто.
-Глубокий психологизм, неожиданное сочетание трагедии и юмора, непредсказуемая развязка.Жанр: Триллер, ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C49126C0BD7B8E5367F40C292533677A65421C
 ```
 
 

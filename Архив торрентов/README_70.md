@@ -6,7 +6,7 @@ MediaHuman YouTube to MP3 Converter 3.9.10.0 (1604) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21136.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tor Browser Bundle 14.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21140.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21140.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 PRO 24H2 26100.3775 Update 14 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21163.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21163.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CCleaner 6.35.11488 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21168.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21168.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Bridge 2025 15.0.4.534 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21179.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21179.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Adobe After Effects 2025 25.2.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21194.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ CCleaner 6.35.11488 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21196.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Windows 11 PRO 23H2 22631.5189 Update 18 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21197.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21197.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Tablacus Explorer 25.4.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21223.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21223.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Notification Dots v1.2.61 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21229.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21229.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ GeoGebra 6.0.882 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21232.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sandboxie plus 1.15.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21236.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sandboxie 5.70.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21241.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EPIK - AI Photo & Video Editor 5.6.2 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21245.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7FDB19068706BC8890586E35D5D1EE1E57B38131
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21246.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Folder Player Pro v5.33 b343 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21249.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Vivaldi 7.3.3635.11 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21252.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PdfFactory Std & Pro 9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21254.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Adobe Acrobat Pro 2025.001.20458 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21264.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VirtualBox 7.1.8 Build 168469 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21266.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AIMP 5.40 Build 2673 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21277.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ FinePrint 12.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21279.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ NokoPrint v5.21.08 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21305.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ KineMaster - Video Editor & Maker v7.6.9.34606.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21321.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wondershare UniConverter 16.4.1.192 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21330.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Scaler Music - Scaler 3 v1.0.5 Standalone, VSTi, VSTi 3, AAX (x64) Update Only [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21334.jpg" />
 </div>
 
 

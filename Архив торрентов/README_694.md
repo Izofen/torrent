@@ -1,3 +1,75 @@
+###  Публикация: 969632   (146178) от 27.12.2015
+
+Adguard Премиум 5.10.2051.6368 DC 28.10.2015 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C6FCBA5AFBEC16CA2809868CEEA38AB32B0BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590097   (146198) от 16.12.2012
+
+Извлечение / Extracted (2012) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Любительский (двуголосый)Язык субтитров: АнглийскийПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348086   (146201) от 26.12.2019
+
+Garden Planner 3.7.28 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C329DCE45DEAEAFBF2B11760EB2D3B9AAB916906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272011   (146216) от 25.12.2018
 
 Adobe Bridge CC 2019 9.0.2.219 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ Adobe Bridge CC 2019 9.0.2.219 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146216.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ ESET NOD32 Internet Security 15.0.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146219.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146221.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Integrity Pro 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146228.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ MediaHuman YouTube Downloader 3.9.9.30 (2612) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146229.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ FPS Monitor 5410 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146242.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ VueScan Pro 9.7.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146244.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Balabolka 2.15.0.766 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146248.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ AOMEI Partition Assistant Technician Edition 9.6.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146251.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Emanuele Congeddu - 23 Singles, 13 Remixes (2013 - 2016) [MP3|320 кб/с]<Uplif
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146253.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:C824F7924317CAA4DC2BD0CAC9677B2A12AB313E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146255.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.30 (2612) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146259.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Scrutiny 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146265.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:C6B1DD6E6201CB07C4684D9B7630A6A95ECF5BAB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146270.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Paul van Dyk - Vonyc Sessions 327 (Maarten de Jong Guestmix) - Vonyc Sessions 32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146271.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ WinCatalog 2020.2.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146278.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ AnyMP4 DVD Converter 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146283.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ ManyCam Virtual Webcam Free 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146291.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ Tinderbox 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146293.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ ZD Soft Screen Recorder 10.2.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146295.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ Best HD Wallpapers Pack (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146296.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Tiesto - Club Life 298 (15.12.2012) [MP3|192 кб/с]<House / Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146312.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ magnet:?xt=urn:btih:FB8DE3EB4AD581262F5094FD6C2196728B285964
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146324.jpg" />
 </div>
 
 
@@ -574,81 +646,6 @@ magnet:?xt=urn:btih:FB8DE3EB4AD581262F5094FD6C2196728B285964
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F54C8BC1398879887BCD6218EE316023127CDF32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969344   (146328) от 27.12.2015
-
-Garmin: Дороги Беларуси 5.40 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поздравляем вас с наступающим 2016 годом!
-Жизни чудесной, улыбок весёлых,
-Верить в удачу свою и мечту,
-Верных друзей, замечательных, добрых,(   Читать дальше...   )Тип издания: карта бесплатнаяРелиз состоялся: декабрь 2015Разработчик: KartaByПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A681CB560B4AF96FB1822D6042C4922DDD214B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435239   (146336) от 27.12.2020
-
-Advanced Installer 17.8 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F47E53BE154D82C9CB4BC441F0FFE2DB0E5944F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087341   (146345) от 27.12.2016
-
-SynWrite 6.31.2500 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146345.jpg" />
-</div>
-
-
-###  Подробнее
-
-SynWrite - бесплатный мощный текстовый редактор для программистов, верстальщиков и обычных пользователей, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite имеет целый ряд вспомогательных инструментов, облегчающих написание кода. Например, поддерживает плагины, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D737DE897FE7FAFC150C82E3B1FFA245169A225
 ```
 
 

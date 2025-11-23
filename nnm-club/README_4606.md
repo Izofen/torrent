@@ -1,3 +1,153 @@
+###  Публикация: 1678880   (142711) от 23.11.2023
+
+Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Prog Metal / Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indelible [00:05:04]
+02. A Scarlet Path to Virtue (The Archangel of Terror pt.II) [00:04:58]
+03. Another End Is Possible [00:06:09]
+04. Unconditional [00:04:02](   Читать дальше...   )Жанр: Symphonic Gothic Prog Metal / Female VocalsПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF53E2B453A46682AFECB4C746444AB8B481CFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970087   (142712) от 29.12.2015
+
+Журнал | Советы профессионалов №1 (январь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142712.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Советы профессионалов» - журнал для тех, кто любит свой дом и стремится своими руками сделать его пространство максимально удобным и красивым. Издание составлено из лучших материалов журналов «Дом», «Сам» и «Сам себе мастер». В каждом выпуске — одна главная тема и несколько дополнительных.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789E4062139E4B1468609142E9AED1C606D92706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435715   (142714) от 29.12.2020
+
+Chaos Control Premium 1.11 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаос-контроль: органайзер целей и задач на базе GTD.
+Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
+Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 3717   (142715) от 29.12.2013
+
+Первые фильмы братьев Люмьер / The Lumiere Brothers' First Films (1895/1996) DVDRip [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142715.jpg" />
+</div>
+
+
+###  Подробнее
+
+85 коротких фильмов с комментариями великого классика французского кино Бертрана Тавернье. Выпущен в 1996 году к столетию первого публичного показа кинофильма (28 декабря 1895 года). Комментарии Тавернье касаются не только истории братьев Люмьер, но и истории раннего кинематографа в целом. Ну а сами фильмы, от легендарного "прибытия поезда" и "политого (   Читать дальше...   )Производство: ФранцияЖанр: классическое кино, документальный, хроника, историяРежиссер: Тьери ФрэмоПеревод: Отсутствует. Тавернье ведет свой рассказ на английском. Внятно и очень простыми фразами - школьнику понятно.Язык озвучки: АнглийскийПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F03AFDE5C8C6510639177DC656AD6F617DE24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348550   (142716) от 28.12.2019
+
+Неестественный отбор / Unnatural Selection (2019) WEB-DL [H.264/1080p] (серии 4 из 4) [EN / RU, EN Sub]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142716.jpg" />
+</div>
+
+
+###  Подробнее
+
+От истребления болезней до выбора цвета глаз ребёнка, генное редактирование даёт людям шанс "хакнуть" биологию. Встречайте реальных людей, стоящих за этой наукой. Документальный фильм рассказыввает о генной инженерии и, в частности, о технологии редактирования генов CRISPR-Cas9 – со стороны учёных, корпораций, а также биохакеров, работающих над своими проектами (   Читать дальше...   )Производство: США, Radley Studios, Reel Peak Films, Twist and Turn Films, NetflixЖанр: Документальный, познавательный, научно-популярныйРежиссер: Джо Эгендер, Лиор КауфманПеревод: отсутствуетСубтитры: русские, английские (форсированные, полные и SDH)Продолжительность: 01:10:10 + 01:03:32 + 01:02:10 + 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 22001   (142717) от 27.12.2021
+
+Геноцид 90-х русского населения в Чечне (2004) TVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142717.jpg" />
+</div>
+
+
+###  Подробнее
+
+За сводками военных сообщений о ходе антитеррористической операции осталась как бы "за кадром" страшная работа, которую начала проводить Генеральная прокуратура в освобожденных районах Чечни. Это вскрытие массовых захоронений людей, убитых при прежней чеченской власти.
+По данным Главного управления Генпрокуратуры по Северному Кавказу, уже "повсеместно (   Читать дальше...   )Жанр: документальныйПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195464   (142720) от 29.12.2017
 
 Аффинити Конар | Mischling. Чужекровка (2017) [MP3]
@@ -6,7 +156,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142720.jpg" />
 </div>
 
 
@@ -32,7 +182,7 @@ magnet:?xt=urn:btih:EB96D67CCE5D4B01006CF0B659EEB66818CE1F62
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142721.jpg" />
 </div>
 
 
@@ -56,7 +206,7 @@ Zee Timer 7.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142722.jpg" />
 </div>
 
 
@@ -80,7 +230,7 @@ The Giant Void - Abyssal (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142724.jpg" />
 </div>
 
 
@@ -107,7 +257,7 @@ magnet:?xt=urn:btih:F6AA40255B8E5A1C562957DB2D92098795B02519
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142725.jpg" />
 </div>
 
 
@@ -131,7 +281,7 @@ magnet:?xt=urn:btih:3533BB0F04855509F140C412FF16F1300A6234A0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142726.jpg" />
 </div>
 
 
@@ -156,7 +306,7 @@ magnet:?xt=urn:btih:AC33D0EB7AA744F183A65E004E1C0FCBB7770D49
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142727.jpg" />
 </div>
 
 
@@ -180,7 +330,7 @@ magnet:?xt=urn:btih:655187FFD290109364FAC5B16D5EAB62107E6BD8
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142729.jpg" />
 </div>
 
 
@@ -207,7 +357,7 @@ magnet:?xt=urn:btih:86CDB8821FC890341D58CC903C6207E82C6BF059
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142732.jpg" />
 </div>
 
 
@@ -231,7 +381,7 @@ VA - Empire Records - Classic Disco 3 (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142733.jpg" />
 </div>
 
 
@@ -258,7 +408,7 @@ magnet:?xt=urn:btih:99B7BE58EC1B8679B33E4FB0A74D58933123DF6A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142734.jpg" />
 </div>
 
 
@@ -284,7 +434,7 @@ Nevercenter CameraBag Photo 2020.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142735.jpg" />
 </div>
 
 
@@ -309,7 +459,7 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142737.jpg" />
 </div>
 
 
@@ -337,7 +487,7 @@ magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142739.jpg" />
 </div>
 
 
@@ -361,7 +511,7 @@ Lee Morgan - Volume 3 (1957) 2007, Blue Note [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142740.jpg" />
 </div>
 
 
@@ -388,7 +538,7 @@ magnet:?xt=urn:btih:B4AED70A8FCBDA5955918F6BCB23345451D306A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142741.jpg" />
 </div>
 
 
@@ -413,7 +563,7 @@ The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142742.jpg" />
 </div>
 
 
@@ -440,7 +590,7 @@ magnet:?xt=urn:btih:241984B4ED415CEC2C61CFA6CBF0A5EDA7C8B8EA
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142744.jpg" />
 </div>
 
 
@@ -464,7 +614,7 @@ DirEqual 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142745.jpg" />
 </div>
 
 
@@ -489,7 +639,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142746.jpg" />
 </div>
 
 
@@ -507,155 +657,6 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3063EC65CBFE854A315BD60AD4DF6991620318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087874   (142747) от 29.12.2016
-
-Журнал | Женские секреты №1-2 (январь-февраль 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Женские секреты» — популярное издание для самостоятельных женщин, занимающих активную жизненную позицию. «Женские секреты» — это новости мира моды и звезд, фирменные рецепты красоты и здоровья, хозяйственные и кулинарные хитрости, способы обольщения и романтические истории.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36ECFC61030376DAE400B8E15AE9E65E5A8B60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520222   (142748) от 27.12.2021
-
-King’s Man: Начало / The King's Man (2021) CAMRip [H.264/720p-LQ] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: Великобритания, США / 20th Century Studios, Marv Films, Marv StudiosЖанр: Боевик, триллер, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:59:57Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970109   (142749) от 29.12.2015
-
-Ученые создали "крупный вариант" кошки Шредингера
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воображаемое животное из семейства кошачьих, которое одновременно и живо и мертво и которое известно под названием "кошки Шредингера", является известной демонстрацией суперпозиции - реального явления из области квантовой физики. И недавно ученые продемонстрировали, что явление суперпозиции может проявляться на макроуровне, когда размеры вовлеченных в это (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970227   (142751) от 29.12.2015
-
-Маргарита Блинова | Опасно быть студентом (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Тяжелые будни!».
-
-Народная молва гласит: «Хочешь неприятностей – познакомься с Темным». А что делать Ангелинке, куратору аж целых одиннадцати Темных, решивших продолжить свое обучение на Светлых землях? Правильно, в очередной раз безрезультатно помолиться Светлой Богине, так и не давшей Темным хоть капельку инстинкта самосохранения, и «молча» (   Читать дальше...   )Жанр: Городское фэнтези, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5E4FB8EE24FEA9CFE1A572031FE1F0495FA6B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195313   (142752) от 29.12.2017
-
-Legenda Aurea - Ellipsis (2009) [APE|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Reflections
-02.The Root
-03.Parasomnia
-04.F44.8(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C62B0D98709C4E2DA0296682626E84EABDAD819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087970   (142754) от 29.12.2016
-
-Четыре Рождества / Four Christmases (2008) HDRip [H.264][MP4|1024x576]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влюбленная пара, Брэд и Кейт, пытаются встретить Рождество вместе со своими родителями, но дело осложняется тем, что и его, и ее родители в разводе, поэтому им нужно за один день успеть в четыре разных места…Производство: Германия, США / New Line Cinema, Spyglass Entertainment, Wild West Picture Show ProductionsЖанр: Комедия, МелодрамаРежиссер: Сет ГордонАктеры: Винс Вон, Риз Уизерспун, Роберт Дювалл, Сисси Спейсек, Джон Войт, Джон Фавро, Мэри Стинберген, Дуайт Йокам, Тим Магро, Кристин Ченоуэт, Кэти Миксон, Коллин Кэмп, Джанетт Миллер, Джек Доннер, Стив Вейб, Скайлер Гисондо, Седрик Ярброу, Брайан БаумгартнерПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01343F3E481913714B7835853D09FD715195A013
 ```
 
 

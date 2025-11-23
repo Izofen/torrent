@@ -1,3 +1,185 @@
+###  Публикация: 1675783   (159892) от 10.11.2023
+
+Diviner - Avaton (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avaton
+02. Mountains High
+03. Dancing In The Fire
+04. Cyberwar(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267A2FA4447987A25E1A91C60BC3957827F3D34D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599295   (159893) от 23.12.2022
+
+Palefroid - Palefroid (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bleu Blanc Sang (06:00)
+02 - Terre De Ruines (04:59)
+03 - L'Effondrement (04:55)
+04 - Palefroid (05:54)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD425F01FC1EF339F1936EF2E092579C29129304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675719   (159894) от 10.11.2023
+
+ДМЦ (Дороги Меняют Цвет) - Чёрная черёмуха (2023) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Куда открыли дверь
+2. Чёрная черёмуха
+3. И светит и греетЖанр: RockПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599368   (159895) от 23.12.2022
+
+AudKit Tidal Music Converter 2.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159895.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudKit Tidal Music Converter — это универсальный загрузчик и конвертер Tidal, предназначенный для загрузки и преобразования музыки, плейлистов и альбомов Tidal в MP3, FLAC, WAV, AAC и т. д. на компьютерах Windows и Mac с 5-кратно более высокой скоростью пакетного преобразования для автономное воспроизведение в любом месте.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2022Разработчик: © 2022 AudKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106FE34184B73DD459D0F78979BBE80B29C7D9E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675699   (159896) от 10.11.2023
+
+VA - Top 10 October 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gao (CHN) - Adieu (Original Mix) [6:17]
+02. Duezher - Distant Mountains (Original Mix) [8:01]
+03. SounEmot - Tu Hermosa Sonrisa (Emotional Mix) [8:58]
+04. Isotopia - Forgetting Time (Original Mix) [6:21](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B37596E93C696A55D4ABFA1CA9A0C68A6D4D65C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599392   (159897) от 23.12.2022
+
+Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Zero Dark Thirty (00:48)
+02 - Conquer This Pain (04:43)
+03 - Don't Doubt My Belonging (04:56)
+04 - Kairos (04:54)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4181EFDAF724FC9F729D5483FC2C039A6322D120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675710   (159898) от 10.11.2023
+
+Александр Сеземин | Участковый Максимов. Подпольное дело (2023) [MP3, Валерий Равковский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Максимов отправляется в долгожданный отпуск. Сочи, море, катраны... Которые в данном случае вовсе не акулы.Жанр: детектив, триллерИздательство: Неофициальное изданиеПродолжительность: 03:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C4731C67F051DAACCBC54488DAF76697226CFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599494   (159899) от 23.12.2022
 
 Чарли Чейз. Юный Олдфилд / Young Oldfield (1924) DVDRip
@@ -6,7 +188,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159899.jpg" />
 </div>
 
 
@@ -30,7 +212,7 @@ Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159900.jpg" />
 </div>
 
 
@@ -57,7 +239,7 @@ magnet:?xt=urn:btih:762ECF391D5D27C1D5B0C4AA59393C609C50ECF4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159901.jpg" />
 </div>
 
 
@@ -82,7 +264,7 @@ magnet:?xt=urn:btih:F724208C5E892D01630A2C89A20E4BB5C5A50340
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159902.jpg" />
 </div>
 
 
@@ -107,7 +289,7 @@ magnet:?xt=urn:btih:8DC34C91AEDEE535233E76C64D98E4E80B88B670
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159903.jpg" />
 </div>
 
 
@@ -132,7 +314,7 @@ magnet:?xt=urn:btih:4D9EB79651EFA03EB3703C6849BCF5D55A3AF998
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159904.jpg" />
 </div>
 
 
@@ -156,7 +338,7 @@ AudFree Tidable Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159905.jpg" />
 </div>
 
 
@@ -180,7 +362,7 @@ TG Pro (Temperature Gauge Pro) 2.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159906.jpg" />
 </div>
 
 
@@ -205,7 +387,7 @@ Cisdem DVD Burner 6.10.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159907.jpg" />
 </div>
 
 
@@ -229,7 +411,7 @@ Randy Crawford - Through The Eyes Of Love (1992) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159908.jpg" />
 </div>
 
 
@@ -256,7 +438,7 @@ Fork 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159909.jpg" />
 </div>
 
 
@@ -280,7 +462,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 12.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159910.jpg" />
 </div>
 
 
@@ -304,7 +486,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159911.jpg" />
 </div>
 
 
@@ -328,7 +510,7 @@ magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159912.jpg" />
 </div>
 
 
@@ -353,7 +535,7 @@ magnet:?xt=urn:btih:80101FAB504F719921B8A8242F46EA67D2DFB5C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159913.jpg" />
 </div>
 
 
@@ -377,7 +559,7 @@ magnet:?xt=urn:btih:A52F0BE9B5F87EAC7DB4E166BA81514AACE62AA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159914.jpg" />
 </div>
 
 
@@ -401,7 +583,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159915.jpg" />
 </div>
 
 
@@ -425,7 +607,7 @@ magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159916.jpg" />
 </div>
 
 
@@ -451,7 +633,7 @@ magnet:?xt=urn:btih:D6E3D807DF2850012E0E1F20F414B3596A31D355
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159917.jpg" />
 </div>
 
 
@@ -462,179 +644,6 @@ magnet:?xt=urn:btih:D6E3D807DF2850012E0E1F20F414B3596A31D355
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8B43BE24C7D15296A7460B1028A15C933C4481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599082   (159918) от 22.12.2022
-
-Мажор в Сочи (2022) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московские массивные здания и оживлённые дороги Мажор сменит на живописные курортные виды, домик в горах и извилистые серпантины. Туда он перебирается вместе с дочерью Соней, где у них появился свой семейный бизнес — эко-отель. Но ещё до открытия всё идёт наперекосяк. Вначале в гостинице устраивают погром, затем Соколовский наткнётся на местного мажора и перейдёт (   Читать дальше...   )Производство: Россия, Плюс Студия, Продюсерская компания «Среда»Жанр: приключения, комедияРежиссер: Никита ВласовАктеры: Павел Прилучный, Павел Чинарёв, Виталия Корниенко, Роман Евдокимов, Павел Майков, Елена Полякова, Елизавета Шакира, Владимир Афанасьев, Магомед Муртазаалиев, Борис ДергачевПеревод: Не требуется (Русский)Субтитры: Русские (отдельным файлом)Продолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0420449DEA1BA6D62242A0B257FB9B79E8D97776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675636   (159919) от 10.11.2023
-
-Aiseesoft Mac Video Converter Ultimate for Mac 10.5.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74B8EB0AF2DD0679F8B3F4815068CE8F1688F5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599284   (159920) от 22.12.2022
-
-Merion Academy, Олег Филиппов | Основы реляционных баз данных. SQL (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе и с нуля пройдем все этапы проектирования, администрирования, резервирования и масштабирования БД с использованием PostgreSQL, MS SQL и MySQL, чтобы получить оплачиваемые навыки DBA (администратора БД).
-Кому подойдет курс:
-1. Студент
-Вы в начале карьерного пути: знание принципов работы баз данных - неотъемлемая часть работы IT спеца, вне зависимости от того, (   Читать дальше...   )Производство: Merion AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421DDC37151B089546B0EEDF08A91B44E6A9DE9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675814   (159921) от 10.11.2023
-
-Наша банда. Страшный сон / Our Gang. Seein' Things (1924) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание, собсно, соответствует названию. Фарине нужно быть разборчивым в еде. Например, мясо порождает тяжелые страшные сны. Но легкомысленный (как всякий ребенок) Фарина обожает мясные блюда, наедается ими и получает в результате ночные кошмары. Фильм скорее немного странный чем смешной. Некоторые эпизоды уверенно напоминают комедии Гарольда Ллойда. Детская пародия?Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Юджин М. Джексон, Энди Сэмюэл, Сонни Лой, Честер А. Бачман, Аллан Каван, Дик ГилбертПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2367C9169D273C02D8FDDEA4B50BD27FDE916858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675748   (159922) от 10.11.2023
-
-Дело для начинающего палача / Pripad pro zacinajiciho kata (1970) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка на современный лад. Гулливер загадочным образом попадает в удивительную страну Бальнибари, над которой плавает летающая столица Лапута, где живут тайные властители государства. Странный уклад жизни общества непонятен путешественнику, и ему трудно в нём сориентироваться... Фильм использует мотивы третьей книги «Путешествий Гулливера» о посещении Гулливером (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: фэнтези, драма, детективРежиссер: Павел ЮрачекАктеры: Любомир Костелка, Klára Jerneková, Милена Загрыновска, Радован Лукавски, Иржи Янда, Людек Копржива, Милош Вавра, Мирослав Махачек, Индржих Бонавентура, Павел БошекПеревод: любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: русские (на место без перевода), английскиеПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D724BDAE7169DAE1ABA6415636ABF889E49A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599116   (159923) от 22.12.2022
-
-Умная Маша (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маша - красивая и эффектная блондинка. Но этого мало, чтобы аристократичная семья её возлюбленного раскрыла свои объятия. Что же делать? Учиться - долго и скучно. Находчивая Маша решается на эксперимент: вживить чип, который в любой ситуации поможет блеснуть интеллектом. Впрочем, изысканная соперница - новая избранница любимого - не собирается сдаваться, а техника (   Читать дальше...   )Производство: Россия, Russian World VisionЖанр: комедияРежиссер: Андрей НикифоровАктеры: Артём Ткаченко, Ольга Рыжкова, Настасья Самбурская, Галина Польских, Мария Шукшина, Алексей Кортнев, Ефим Петрунин, Валерия Дергилева, Ростислав Хаит, Влад ЕгоровПеревод: Не требуется (Русский)Продолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0082DDF37315A0ED0240AFE21DB00F4D878BD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675842   (159924) от 10.11.2023
-
-Inklet 2.2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inklet позволяет использовать тачпад Apple в качестве графического планшета.
-Inklet - первое приложение от сторонних разработчиков с поддержкой Force Touch от Apple. Разработчики обещают все удобства графического планшета и комфортную работу с практически любым приложением, поддерживающим письменный ввод, включая пакет редакторов Adobe, Sketch и Pixelmator.
-MacBook (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Ten One Design LLCПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBEBF2FE822216D58F474D8A14F0060D7A84BA7
 ```
 
 

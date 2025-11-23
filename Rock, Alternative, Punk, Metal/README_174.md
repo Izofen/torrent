@@ -6,7 +6,7 @@ Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bolt Action and the Misfires - Chasin' Down the Rats (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118410.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ IIWishIV - A Guiding Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118412.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ No More Cries - Social Despair (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sonic Storm - Keys to Your Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118416.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D8E546B429FB1CDC3952CBC74C0F703EBD52967A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118432.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Last In Time - Too Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118433.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Six Foot Six - The End of All (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118546.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ LungBurner - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118549.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Innerload - Mater Tenebrarum (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118550.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Weedow - Weedow (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118551.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Demon Seizure - Murder Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118560.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Symphony Of Sweden - Haunted (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118569.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Last In Time - Too Late (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118572.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ In Vain - Back To Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118580.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118597.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Pneumatic Transit - Forbidden Trinkets (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118726.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118736.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pain - Coming Home (2016) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118738.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118741.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Florence Black - Bed Of Nails (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118748.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Echo Splinter - The Last Stand (2024) [FLAC|Lossless|WEB-DL|tracks] <post-hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118762.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stray - 14 Albums (1970 - 2017) 20 CD [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118870.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118904.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118907.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118912.jpg" />
 </div>
 
 

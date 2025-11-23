@@ -6,7 +6,7 @@ All Against - Straight Down To Hell (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66346.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66347.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ God Dethroned - The Judas Paradox (2024) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66349.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sandy Rogers - Tingling Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66350.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Donald Byrd - Byrd In Flight (1960) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66351.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Catfish John Tisdell - True To My Core (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66352.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Swtch Fu - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66353.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Estrotomy - Carcinogenic Humanity (2025) [FLAC|Lossless|WEB-DL|tracks] <Slam/Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66354.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66355.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66356.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Arend Jansen - Eagle Johnson Project (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66357.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Buddy Reed and th' Rip it Ups - Soul House (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66358.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Catfish John Tisdell - Somethin' To Feel (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66359.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7ACD2CD55A7798024CA5E747B7B4F33AD344D094
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66360.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mononoke | Мононокэ [2007, TV, 12 эп.] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66361.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66362.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:1C2C1C6681B4643295C0C47F4EC5926095A9573B
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66363.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66364.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Alexander Spark - Destiny (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66365.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:0DC90E2E0F5F66B92D3436CFBD50D1C42ABBF926
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66366.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:5E0BFEC1E39F839D25D000170819F3A65FA373EB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66367.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66368.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Armin van Buuren - A State Of Trance 1227 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66369.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Ori Uplift - Uplifting Only Episode 642 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66370.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:65C4190F442D9FCF5995AE6D49D6ED7E2DB8A5EC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66371.jpg" />
 </div>
 
 

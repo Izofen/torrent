@@ -1,3 +1,78 @@
+###  Публикация: 1821421   (91143) от 04.10.2025
+
+Эпидемия - Где сходятся миры (2025) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Погоня за сказкой [1:38]
+02. Книга огненных страниц [5:21]
+03. Конан [4:48]
+04. Наваждение [4:06](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5759FFD94E2ADB257AFB23760BCCAC583F5BBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821971   (91144) от 04.10.2025
+
+Шрифты - YouWorkForThem - Sarun [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sarun — это шрифт, гармонично сочетающий в себе гуманистический, геометрический и индустриальный гротески. Определить его точный характер довольно сложно. Однако, Sarun отлично сочетается с макетами и невероятно удобен в использовании в различных дизайнах. Он включает в себя не только курсив, капитель и полный набор альтернативных шрифтов. Sarun также включает 10 (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9637FDA7A793BC5D7582FADE285BCB3AE8FA231D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821957   (91145) от 04.10.2025
+
+MultiTimer: МультиТаймер v1.10 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91145.jpg" />
+</div>
+
+
+###  Подробнее
+
+MultiTimer - это простое и универсальное таймер-приложение, сочетающее в себе элегантный интерфейс и богатый набор функций. Наряду с Pro обновлением приложения, бесплатная версия предлагает все необходимые возможности для полноценного и комфортного управления временем ваших задач и обязанностей. В приложении нет рекламы, путаницы и лишних шагов - все просто, понятно (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: PersappsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821968   (91146) от 04.10.2025
 
 Кто я? / Ngo si seoi / Who Am I? (1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +81,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91146.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:99C7297410F52D606A9716965BC2EA8E3F0798B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91147.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:20763A98B56FAA445B24453B8A414107C90218AB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91148.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ Lord Ambermaze (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91149.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91150.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ Happy Color® – игра раскраска v2.20.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91151.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91152.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91153.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91154.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91155.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91156.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91157.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91158.jpg" />
 </div>
 
 
@@ -334,7 +409,7 @@ magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91159.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91160.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91161.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91162.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91163.jpg" />
 </div>
 
 
@@ -461,7 +536,7 @@ magnet:?xt=urn:btih:0576E187FB1B3C8CC58DF474D03F55857D4652C1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91164.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91165.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91166.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91167.jpg" />
 </div>
 
 
@@ -561,7 +636,7 @@ magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91168.jpg" />
 </div>
 
 
@@ -573,78 +648,6 @@ HeadUp Display (HUD) – это возможность использовать 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4837C8ABF92692E72D2439413FEAA1D4D99F77CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821902   (91169) от 04.10.2025
-
-GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821837   (91170) от 04.10.2025
-
-На посошок / Le citta di pianura / The Last One for the Road (2025) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91170.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует о двух шумных мужчинах чуть старше 50 лет, одержимых выпивкой. Их мир переворачивается с ног на голову, когда они встречают Джулио, застенчивого студента-архитектора, и все трое отправляются в путешествие по барам Венето, которое в конечном итоге меняет взгляд Джулио на мир и любовь .Производство: Италия, Германия / Vivo Film, Maze Pictures, Rai CinemaЖанр: драма, комедия, криминалРежиссер: Франческо СоссаиАктеры: Филиппо Скотти, Серджо Романо, Пьерпаоло Каповилла, Роберто Читран, Андреа Пеннакки, Simone Bergamasco, Francesco Busolin, Nicola Rossato, Giuseppe MessinaПеревод: Многоголосый профессиональный  (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F01743E7B04BD40A0D79BC91471FAE32A0DEE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821907   (91171) от 04.10.2025
-
-Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.09.2025Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 ```
 
 

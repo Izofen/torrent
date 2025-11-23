@@ -6,7 +6,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157499.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160715.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162256.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163723.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164059.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168843.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171485.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172943.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173449.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175882.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175882.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -431,6 +431,78 @@ magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428001   (179616) от 02.12.2020
+
+Still Life (2005) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличие от «Post Mortem», являющейся квестом от первого лица, «Still Life» стала игрой от третьего лица. Игра даёт представление о работе как ФБР, где необходимо находить улики, допрашивать свидетелей, узнавать мнения судмедэкспертов, так и частного детектива, вынуждая взламывать замки, обыскивать канализацию, сотрудничать с преступниками и проститутками. В поисках (   Читать дальше...   )Тип издания: UnofficialРазработчик: MicroidsЖанр: QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292716   (180618) от 26.11.2022
+
+Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Games
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная Труба существует. На самом деле. До последнего времени попасть туда было делом непростым, но теперь это стало доступно каждому. Все, кто побывал в Полной Трубе, описывают её по-разному: кто-то говорит, что там всё как у нас, другие утверждают, что это не так, а совсем наоборот. Но на самом деле всё гораздо, гораздо запутаннее...Тип издания: РепакРазработчик: PIPE StudioЖанр: Adventure / Arcade / Logic (Puzzle)Язык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227626   (181017) от 01.10.2023
+
+Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуйте по неведомым мирам, простирающимся за гранью вашего воображения, и открывайте тайны потерянной цивилизации Д'ни. Это она создала книги-порталы – «ворота» в другие измерения, названные «Мирами». Следуйте за Йишей, дочерью Атруса, чтобы найти утерянные секреты, решить загадки и исследовать многочисленные миры.Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665760   (181108) от 01.10.2023
 
 Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
@@ -439,7 +511,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184050.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184096.jpg" />
 </div>
 
 
@@ -546,78 +618,6 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591747   (184749) от 20.11.2022
-
-Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instinct рассказывает альтернативную историю событий, произошедших в горах Янгандо, которая имела место в реальности 13 сентября 2004 года. У разработчиков появилась своя версия, которую они положили в основу игры. В северокрейской провинции под названием Янгандо происходит странный взрыв. В секретных лабораториях, расположенных вблизи огромной горы, проводились (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Spray Studios, Newtonic Studio, VNeroGAMEsЖанр: Action (Shooter), 3D, 1st Person, HorrorЯзык озвучки: Русский, ЧешскийЯзык субтитров: Русский, Английский, ЧешскийЯзык интерфейса: Русский, Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827345   (185655) от 21.10.2025
-
-FlatOut (2004) [Ru/En] (1.1) Repack Necros
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185655.jpg" />
-</div>
-
-
-###  Подробнее
-
-FlatOut — динамичная гоночная аркада с видом от третьего лица, отличительной особенностью которой является почти полная разрушаемость объектов (или взаимодействие с ними), которые расставлены на трассе. Машина ведет себя на разных трассах по-разному, при этом чувствуется масса автомобиля, что сильно сказывается на на поворотах.Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Аркада, Автосимулятор, Гонки на выживаниеЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E284D50E6641452EA277A9E981A239A7E054E4DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827438   (186077) от 21.10.2025
-
-Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геймплей состоит в том, что главному герою нужно выжить, выполняя задания от режиссёра и убивая встречающихся ему головорезов. В игре всего 20 эпизодов. Сама Manhunt представляет собой стелс-хоррор с элементами экшена от третьего лица. Игроку нужно управлять Кэшем и перемещаться по различным локациям, выполняя поставленные задачи, которые обычно сводятся к тому, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшен, Стелс, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 462656   (80146) от 05.03.2012
+
+Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gold In Them Hills
+02. Better Than a Dream
+03. The Bit That I Don’t Get
+04. Moonshine
+05. Forgetting All My Troubles
+06. All Over the World
+07. Nobody Knows You When You’re Down and Out
+08. The Cry of the Lone Wolf
+09. Heartstrings
+10. The Walls of the World(   Читать дальше...   )2012Жанр: JazzПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463109   (80148) от 05.03.2012
+
+Xilisoft DVD Copy Express 2.0.1 build-0112 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xilisoft DVD Copy 2 - gростая в использовании и быстрая утилита для копирования видео с дисков DVD. Xilisoft DVD Copy Express предоставляет пользователю наилучший способ для быстрого копирования DVD-фильмов с высоким качеством. Программа может скопировать диск один к одному или с легкостью сжать DVD-9 (двухслойный диск) до размера DVD-5. Возможности Xilisoft DVD Copy Express также включают в себя удаление меню диска, выбор субтитров, аудио-дорожек, копирование отдельно основного фильма для создания собственного DVD. В дополнение к этому программа может удалять CSS-защиту с помощью встроенного CSS-декриптора и региональные коды. В утилите присутствует функция прожига DVD, что позволяет не только скопировать видеофильм на жесткий диск, но также записывать файлы ISO и папки DVD на диски.Название программы: Xilisoft DVD Copy Express 2Язык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462474   (80154) от 05.03.2012
+
+Отдача / Recoil (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80154.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования бывший полицейский, жизнь которого после убийства его семьи пошла по наклонной. Однако он взял себя в руки и посвятил свою жизнь достижению единственной цели-найти виновных в гибели родных.Жанр: БоевикРежиссер: Терри МайлзАктеры: Дэнни Трехо, Стив Остин, Серинда Свон, Локлин Манро, Ноэль Гульеми, Тай Рунян, Камилль Солари, Кейт Джардин, Патрик Гилмор, Коннор СтэнхоупПеревод: Одноголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462990   (80155) от 05.03.2012
 
 Руслан Мельников | Серия: Тевтонский крест [2004-2008] [FB2,ePub]
@@ -6,7 +87,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80155.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80156.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:C1795F1C457E6C6908D6BD807F342B96C400FD3B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80158.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Mauro - Buona Sera - Ciao Ciao (1987) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80159.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ magnet:?xt=urn:btih:7897EA4FFC6655ECC122AD23F0E914BDF458089C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80163.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ magnet:?xt=urn:btih:083A3C863AAAA730F930BA9986287CD69267B155
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80167.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ magnet:?xt=urn:btih:837E5E88BEB5E7F110F24024B548D8E6B56F5EE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80174.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ magnet:?xt=urn:btih:35C0791C90B445FA120B476F89CC236286B1A1B1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80176.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ magnet:?xt=urn:btih:F4A030037EB044BFAA95C6078DE9EBBCF2189041
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80177.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ magnet:?xt=urn:btih:F4A030037EB044BFAA95C6078DE9EBBCF2189041
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80178.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:6DE21B7C3E09D13FDE0B001C63F6B03EFFFAAE0F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80179.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80184.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ magnet:?xt=urn:btih:648AB158A756618050E1BDF23664031AF20D9610
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80190.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ magnet:?xt=urn:btih:F8766B73DF27FD0C56AF0BEA83F541261230172B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80200.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ magnet:?xt=urn:btih:E56EF49B8EA140D9D4151F1FA9D8F692ABD00292
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80210.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ magnet:?xt=urn:btih:0C7A46DF74694270608B4316D6E1516D93FDE02D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80216.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ Roberta Flack - Let It Be Roberta – Roberta Flack Sings The Beatles (2012) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80217.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ Roberta Flack - Let It Be Roberta – Roberta Flack Sings The Beatles (2012) [FL
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80218.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80222.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ Depth Hunter [Multi5/-] (Lossless RePack/1.10) 2011 | R.G. Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80224.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ magnet:?xt=urn:btih:2D6CADDEE4D7FDC99BC1765BAD4097C1FBD1B02A
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80229.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ magnet:?xt=urn:btih:6C69F1B9AC93FF1126F455B729C4673B529C78DD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80230.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ magnet:?xt=urn:btih:7149C75D03AE47A176B937A217D4A0422E83F1C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80233.jpg" />
 </div>
 
 
@@ -593,78 +674,6 @@ magnet:?xt=urn:btih:7149C75D03AE47A176B937A217D4A0422E83F1C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7D71B18163B4577107B3B1C6EFEFE3F473E5321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462799   (80238) от 05.03.2012
-
-Oracle Linux 5.8 (Server) [i386 + x86_64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Oracle представила Oracle Linux 5.8, последнее обновление серии 5.x дистрибутива, созданного на основе RHEL 5.8. Oracle Linux Release 5 Update 8 для архитектур x86 (32-bit) и x86_64 (64-bit) поставляется с ядрами Unbreakable Enterprise Kernel
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D347C092D4A4D7E1D151CE621071C903AC52EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459800   (80243) от 05.03.2012
-
-Открытки - Открытка 8 марта.23 февраля [GIF,JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80243.jpg" />
-</div>
-
-
-###  Подробнее
-
-ткрытки с 8 марта. с 23 февраля.Формат GIF.JPGРазрешение файлов: от 313х500 до 646х933
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1645E50CF718C8B22D74D2D7BD0A46774221AC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462179   (80245) от 05.03.2012
-
-Имитатор / Copycat (1995) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Триллер, Детектив, КриминалРежиссер: Джон ЭмиелАктеры: Сигурни Уивер, Холли Хантер, Дермот Малруни, Уильям МакНамара, Гарри Конник мл., Дж. Э. Фримен, Уилл Пэттон, Джон Ротмен, Шэннон О’Хёрли, Боб ГринПеревод: Многоголосый закадровыйПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9304E47304866F372061705562C37DCD16623727
 ```
 
 

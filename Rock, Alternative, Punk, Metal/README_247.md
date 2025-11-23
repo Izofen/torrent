@@ -6,7 +6,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157809.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157821.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bon Jovi - Slippery When Wet (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Sof
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ZveroБой (Зверобой) - Чистое небо (2014) ЕР [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Platinum Overdose - Murder In High Heels (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157840.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:9BFF40943C240B1E5F55FF20E45520ED82276BE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157843.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ZveroБой (Зверобой) - Жив (2008) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157846.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ZveroБой (Зверобой) - Акустика (2009) [MP3|256 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157863.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kate Nord - Compass to Your Heart's Desire (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157869.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157883.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157896.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterpr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157905.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157907.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Трибьют Сектор Газа (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158001.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158023.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) 2015 2CD Deluxe 35
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158196.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bon Jovi - Crush (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158225.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158241.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158246.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158249.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sunless Rise - Unrevealed (2015) [MP3|320 кб/с] <Melodic Death Metal, Progres
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158266.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Animal ДжаZ - AZXV (2015) Remastered [MP3|320 кб/с] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158373.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Axel Rudi Pell - Game Of Sins (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158389.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Prog
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158476.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158494.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158637.jpg" />
 </div>
 
 

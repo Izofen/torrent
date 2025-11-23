@@ -6,7 +6,7 @@ Art Pepper - Neon Art: Volume One (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69296.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69411.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69413.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69483.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69484.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69487.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69530.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69531.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69532.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Art Pepper - The Trip (1976) 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69533.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Chick Corea - Now He Sings, Now He Sobs (1968) 2024, Universal [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69553.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69557.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69564.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69569.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Citizen Jones - Downtown Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69571.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69575.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bluebird, His Hot Combo - Miss Bad Valentine (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69578.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Billy F Gibbons - Cruising with Billy F Gibbons (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69584.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:A0424562A662E4941CD31EEAE9549DFE7C564089
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69587.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Ellis Mano Band - Morph (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69588.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Bluebird, Skoko - Trust Your Mojo, Sista (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69593.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69594.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Max Roach & Dizzy Gillespie - Max + Dizzy: Paris (1989) 2CD, 1990, A&M Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69603.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Art Pepper - So In Love (1979) 2004, Analogue [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69604.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Sun Ra - Lights On A Satellite: Live At The Left Bank (1978) 2CD, 2024, Resonanc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69605.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bud Powell - The Bud Powell Trio Plays (1947, 1953) 1990, Roulette Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69606.jpg" />
 </div>
 
 

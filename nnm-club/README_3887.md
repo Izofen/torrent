@@ -1,3 +1,78 @@
+###  Публикация: 1695102   (120744) от 27.01.2024
+
+Аквамен и потерянное царство / Aquaman and the Lost Kingdom (2023) WEB-DLRip [H.265/2160p-LQ] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над Атлантидой нависла новая угроза, способная привести к необратимой катастрофе. Даже Аквамен не сможет справиться в одиночку – ему предстоит заключить неожиданный союз ради спасения своего королевства.Производство: США, Великобритания, Канада, Австралия, Исландия / Warner Bros., DC EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Патрик Уилсон, Яхья Абдул-Матин II, Дольф Лундгрен, Темуэра Моррисон, Николь Кидман, Яни Жао, Эмбер Хёрд, Винсент Риган, Рэндалл ПакПеревод: Дублированный (SC Produb)Язык озвучки: Русский, английскийСубтитры: Русcкие (forced, full), английские (full, SDH)Продолжительность: 02:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A31A6F960C1EA97C809191FB2849885AF32466
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628181   (120745) от 27.01.2024
+
+Деревенский детектив / Анискин и Фантомас / И снова Анискин (1968-1978) DVDRip [H.264]
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участковый милиционер Анискин расследует дело о похищении аккордеона у заведующего сельским клубом. Впрочем, раскрыть подобное преступление - это для него, как говорится, не фокус. У Анискина более важные задачи…Из сельского музея при Доме культуры похищены ценные предметы прикладного искусства. Участковый Федор Иванович Анискин снова принимается за дело. Крайне (   Читать дальше...   )Из школьного музея украли самые ценные экспонаты, к великому сожалению его директора и реставратора, художника Бережкова, приехавшего вместе с женой из города. О преступнике известно, что это мужчина высокого роста и с большим размером обуви.
+Среди подозрительных лиц имеются грубые и несознательные шабашники, строящие силосную башню, отставший от парохода матрос-пьяница, (   Читать дальше...   )Жанр: Детектив, КомедияРежиссер: Виталий Иванов, Михаил ЖаровАктеры: Михаил Жаров, Татьяна Пельтцер, В.Володин, Никита Подгорный, Лидия Смирнова, Роман Ткачук, Виктор Борцов, Борис Щербаков, Валерий Носик, Юрий Пузырев, Александр Белявский, Станислав Чекан, Лев Борисов, Вадим Захарченко, Люсьена Овчинникова, Вадим МадяновПродолжительность: 03:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8EEDA85ADCB00A26628E8B87483C86F7060AD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694963   (120746) от 27.01.2024
+
+Миграция / Migration (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Даксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
+
+После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада / Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиПеревод: профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанские, французскиеПродолжительность: 01:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDD9BA50715AB6797802F4962A0EEC391612A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694980   (120747) от 27.01.2024
 
 Немая ярость / Silent Night (2023) BDRip [H.264/1080p-LQ]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120747.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:2085BE05492258EDBC864564B71A402E75F8C741
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120748.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:BDFA170F08460176AFCE11167471BF828D548E38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120749.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:ED929206FCC43511A04318FC89A9CB1934AE92F0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120750.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:177255EDDEB900CC48AA1BEC8FB4744634CF5681
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120751.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Udemy, Илья Зернов | After Effects для монтажера (2023) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120752.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ OK English School, Елена Вогнистая | Учебные материа
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120753.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ magnet:?xt=urn:btih:11996E925A472A3C05CDC828F1B79B62A185F37D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120754.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120755.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:0D8408CF6EC0D24D26B726FC7D5D1BF55BF83EB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120756.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:75720409420418557C45C58F4FBF9973CCBDE541
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120757.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Adobe Premiere Pro 2024 for Mac v.24.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120758.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:81D355BF44166C79FCF82C6D40CD05E7D280B861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120759.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ Any Given Day - Limitless (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120760.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ Hiraes - Dormant (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120761.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ Notebooks – Write and Organize 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120762.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ Mosh-Pit Justice - Mosh-Pit Justice (2013) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120763.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ magnet:?xt=urn:btih:6452437990D48929201FC531288B75C040497A95
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120764.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ Nubian Rose - Amen (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120765.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120766.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Rob Tognoni - Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120767.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120768.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120769.jpg" />
 </div>
 
 
@@ -576,87 +651,6 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6EAF8B96F920E6F6582072FB9804A8B01C2F3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694658   (120770) от 26.01.2024
-
-The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora - Interlude (1:34)
-02. Queens (3:12)
-03. Send Me To The Wolves (3:10)
-04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694707   (120771) от 26.01.2024
-
-The Rods - Rattle The Cage (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now And Forever
-02. Wolves At The Door
-03. Cry Out Loud
-04. Rattle The Cage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DED75AF05A5E52C2494BD979D028AAC877A342A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694680   (120772) от 26.01.2024
-
-Faith Circus - Bum In The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Dancer
-02. Bum In The Sun
-03. Larger Than Life
-04. Seven Mountain High(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C2A59C5B8BBE17742A7463AD6545F97DF38305
 ```
 
 

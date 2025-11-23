@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24885.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ FanControl V216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24886.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Cosmic Force - Future Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24887.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24888.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C4D4E4C73FEE688D1A076BBB96722AC76F2868BB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24889.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Maxi Talo - Emotions (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24890.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Zeds Dead - Return to the Spectrum of Intergalactic Happiness (2025) [FLAC|Lossl
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24891.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:312F0FC3CC87C33EDE2B164E37108511E7B3E9D6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24892.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:331B918A7E24E2E319E2035114C8203A602161DF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24893.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Smooth Moods Chill Out, Vol. 4 (2025) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24894.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Cosmic Force - Future Mind (2024) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24895.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:0E42249CB05DC92A6636C6B2CE5321FD2C109EE0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24896.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:AA761E82392AC1C98406A91DA5A552697554E275
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24897.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ WizFile 3.12 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24898.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Google Chrome 134.0.6998.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24899.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:FE752B62EB5A3675AE8ABD63743052B087DCB78B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24900.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:1C9AC57995D58D82C2E9F5F8729FE971CB254B40
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24901.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:1FA3B8318C39AB82716D7AF964C674DE0921FD7D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24902.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24902.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Opera One 117.0.5408.93 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24903.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:9D0FA52DDBD5EA65749B0AE4B44F762EDFF5D60E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24904.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ PrivaZer Pro 4.0.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24905.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Advanced Renamer 4.09 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24906.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:D09830A9225D397A0F041C97082B1CE440566551
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24907.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:A629882DF79D8CAA888492509A471A95137DDF6F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24908.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack seleZen [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24909.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24910.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1705614   (113802) от 09.03.2024
+
+Алена Петровская - Мы люди русские (2022) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь с кислинкою ( Ой,щавель,щавель )
+02. Вьюга
+03. Нить любви
+04. Я не верю, что счастья нет(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09B9FB7C282745EFCC9CD14E62802A193D64C1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705612   (113803) от 09.03.2024
+
+Юлия Запольская - Москва после полуночи. Песни беспризорников (2008) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эх, дороги 2:51
+02. Эх, Андрюша 2:42
+03. Степь, да степь кругом 4:30
+04. Мы странно встретились 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCF1624EA8BB9BA35DCB6EAC6950D59796992E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705708   (113804) от 09.03.2024
+
+Поедем, поедим! Непал: колоритный Катманду, свадьбы и похороны, дал-бат и встреча с богиней (09.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди побывал на свадьбе и… похоронах, встретился с богиней, совершил жертвоприношение, приготовил карри из баранины и дал-бат.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA58A3276313D116B6B4E38535B1A2842AA66A01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705369   (113805) от 09.03.2024
 
 Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Emo Rock>
@@ -6,7 +84,7 @@ Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113805.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113806.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:2D2068BAD8EED64335143063C3E4E4A4470ED99A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113807.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ DropDMG 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113808.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ MotoGP. Этап 01 из 22. Гран-при Катара. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113809.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113810.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ RightFont 8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113811.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ magnet:?xt=urn:btih:821A96CA23205C116283AF062C348418B6B0DB39
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113812.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ GeoGebra 6.0.829.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113813.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113814.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113815.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ Dave Sereny - Come On Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113816.jpg" />
 </div>
 
 
@@ -317,7 +395,7 @@ The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113817.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113818.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ magnet:?xt=urn:btih:7D19D55175F2598E12E8B7C87BBBBA3244B1AA45
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113819.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ magnet:?xt=urn:btih:A131B56D4BEB3370463419F0BC8AF81F08478F30
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113820.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ VA - К прошлому-не ревнуй (1997) [FLAC|Lossless|tracks + .cue] 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113821.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ magnet:?xt=urn:btih:B6F581409AD5AE261CF570E1677E3F563D6E4AFF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113822.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113823.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ magnet:?xt=urn:btih:157F99C71058B520E578EAC0709B9E0E11711D86
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113824.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ magnet:?xt=urn:btih:458AD24BA832C5C5B3965164B12A2D89BA14C17E
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113825.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ magnet:?xt=urn:btih:669978FF5A4D1C82E67A649F49966CB020A5DC8B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113826.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113827.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705615   (113828) от 09.03.2024
-
-ВИА «Поющие сердца» - Поющие сердца (1975) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Зима любви. (Р.Майоров - И.Кохановский)
-02 - Где найти любовь. (В.Векштейн - И.Кохановский)
-03 - Всё, что было. (Я.Кукульский, Я.Славинский - русский текст И.Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3CC16E2E427D43CB4E5CEFA83924231691034A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705685   (113829) от 09.03.2024
-
-Военная тайна с Игорем Прокопенко (09.03.2024) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113829.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F948F9F755DCB3C08575CFE490F02C3D7B109A2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705688   (113830) от 09.03.2024
-
-Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy Obsession: Jazzy Erotic Sensual (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax for My Darling (4:34)
-02. Never Forget Our Love (3:40)
-03. Straight to His Arms (3:39)
-04. Brave Game (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C55E3D0FB857EED6B40B5F5C8C5121A425920D
 ```
 
 

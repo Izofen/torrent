@@ -6,7 +6,7 @@ Isacaarum - Whorecraft (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103012.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103013.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Silent Winter - Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103015.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103039.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103041.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103047.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103052.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103054.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103055.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103056.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103062.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103063.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103072.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Satyrian - The Dark Gift (2007) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103098.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103100.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Voltstorm - Break The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103103.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Earthcorpse - The Taste Of Sin (1999) [FLAC|Lossless|image + .cue] <Doom Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103106.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Embrace By Dark - Sculpture Of The Godforsaken Aeons (2003) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103109.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Extinkt - Postnucleartrip To Nowhere (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103111.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D35D574D5A350B6BA14C6F1D0DBC712FF6EFBE9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103113.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8C6B4616246E228583CBE2AD8DA6B5116BFE2FD9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103116.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103139.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103147.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Beast - Ancient Powers Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103151.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103174.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103178.jpg" />
 </div>
 
 

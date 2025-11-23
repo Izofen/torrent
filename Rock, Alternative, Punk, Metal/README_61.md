@@ -6,7 +6,7 @@ The Storyteller - The Final Stand (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66724.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Supreme Void - Towards Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66727.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Katagory V - Awaken A New Age Of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66729.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Machine - Take Control (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66761.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jazzetz Zukovsky - Время (2025) [MP3|320 Kbps] <Gothic-Rock, Post-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66766.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opia - I Welcome Thee, Eternal Sleep (2025) [MP3|320 Kbps] <Gothic / Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66774.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66775.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Twink - Think Pink (1970) Japanese Edition, Reissue, 2000, Akarma [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66778.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nytt Land - Songs of the Shaman (2025) [MP3|320 Kbps] <Darkfolk, Ethnic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66780.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Deep Sun - Storyteller (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66811.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66813.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Echosoul - The Time of the Dragon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66820.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66827.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66829.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66830.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66832.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Deep Sun - Storyteller (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66840.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66845.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Interceptor - Metal Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66846.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Samiarus - Reign Destroyer (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66847.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Fates Warning - Disconnected (Expanded Edition) (2000) Reissue, 2023, Metal Blad
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66853.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Chronosynthesis - Echoes Of Forlorn Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66854.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Symmetry Was Never An Option - Scientist (2025) [MP3|320 Kbps] <Progressive-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66856.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Inferni - Raízes do Imanifesto (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66857.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ethernal - Esencia (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Voc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66884.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66903.jpg" />
 </div>
 
 

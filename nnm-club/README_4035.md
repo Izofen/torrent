@@ -1,3 +1,78 @@
+###  Публикация: 359794   (124592) от 03.01.2024
+
+Уильям Шекспир | Гамлет. Ричард III (2011) [MP3, Владимир Шевяков, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиокнига.
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства.
+Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+Ни одно произведение великого английского драматурга (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, пьесаИздательство: МедиаКнигаПродолжительность: 06:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BAAB6E62132EB080E879C1775430A76F254BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689673   (124593) от 03.01.2024
+
+Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на мой курс Unreal Engine 5 Niagara — Введение в Niagara, здесь, на Udemy. Этот курс познакомит вас с основами пользовательского интерфейса Niagara и вводными эффектами шаблонов до хорошего понимания всех встроенных модулей, доступных для использования, а также охватит более сложные концепции, такие как столкновения и считывание атрибутов. В течение (   Читать дальше...   )Производство: UdemyЖанр: 3D Графика, GameDevЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 12:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFA8678E3D760F70866FFA15967C6BF067C7B5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689665   (124594) от 03.01.2024
+
+Бесчинство / Outrage (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124594.jpg" />
+</div>
+
+
+###  Подробнее
+
+История вращается вокруг группы людей, которые собираются во французском замке, чтобы определить будущее французской политики, но они не осознают, что им, возможно, придется заплатить цену за смерть студента по имени Макс Моро, который был убит полицией. Макс был внушен неонацистской идеологией, распространяемой в средствах массовой информации, и собравшаяся группа (   Читать дальше...   )Производство: США, Швейцария / Madpark FilmsЖанр: триллерРежиссер: Мэтью БонсонАктеры: Жюли Гайе, Аделаида Кейн, Джей О. Сэндерс, Клеменс Шик, Мануэль Коши, Виктор Понтекорво, Жозиан Пинсон, Виктор Ассье, Матяш Саймон, Alix Gavoille и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:01Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A70942FB43229CE25C3672977AE36D0732AAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689685   (124595) от 03.01.2024
 
 Radeon Software Slimmer 1.11.0 Portable [En]
@@ -6,7 +81,7 @@ Radeon Software Slimmer 1.11.0 Portable [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124595.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ SD Maid v5.6.3 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124596.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:D0586431DA60943B451061CC1A124F32519A7B91
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124597.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124598.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:014E78C24DEDF7ABDE6B78F4E2AE47610104CD03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124599.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:18CACEC1831BF76BC59F6D26894C6C9AEEF8E395
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124600.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:ECE8CA492F34EFCC8F897AC860BAC410FA6B8FA5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124601.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:D92510CA4507746A3FD08305160AAF153619B01D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124602.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124602.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:D92510CA4507746A3FD08305160AAF153619B01D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124603.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:54BBA484BAA7670BB03070A2AE07D2F28A1C5241
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124604.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ Linux XP SMB Desktop build 503 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124605.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124606.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ Hikikomari Kyuuketsuki no Monmon / The Vexations of a Shut-In Vampire Princess /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124607.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ magnet:?xt=urn:btih:CB4793D798A9D2884F421EDC8E251D93982B705C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124608.jpg" />
 </div>
 
 
@@ -350,7 +425,7 @@ magnet:?xt=urn:btih:F1B6F5D264AC0C28225E3ACD8D0D9F1F77C32A62
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124609.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ magnet:?xt=urn:btih:72F6860E11EEC743156DE50F8AFAB93D5E17ED6E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124610.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ magnet:?xt=urn:btih:4EEEDD786E28923A0AC8857F58C23F540E5884D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124611.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124611.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:4EEEDD786E28923A0AC8857F58C23F540E5884D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124612.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:4DA9D3E3948226C8A0DECBA51B2981C734BF7790
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124613.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ magnet:?xt=urn:btih:D500D65A985E295580AB0E2C2B0DA675695688E7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124614.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ Gone Rogue (2023) [Ru/Multi] (1.14) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124615.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:9B1742661E1EDE82EE6BA11A4A94F396ED6963AD
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124616.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:DAD05F4898614A97B1D83A13474D2149513D8D9D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124617.jpg" />
 </div>
 
 
@@ -555,81 +630,6 @@ magnet:?xt=urn:btih:DAD05F4898614A97B1D83A13474D2149513D8D9D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4258BD0BE5150B87AD4476CEB7A7F818DC322D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689663   (124618) от 03.01.2024
-
-Кымбат Масакбаева | Я в кадре. Практический интенсив по мобильной видеосъемке (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124618.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данном курсе:
-- Научишься создавать эстетичный, цепляющий видеоконтент для своего блога
-- Познакомишься с киношными приемами которые сделают твои видео более профессиональными
-- Научишься создавать динамичные видео своей рутины(   Читать дальше...   )Жанр: Мобильная съемкаЯзык озвучки: РусскийПродолжительность: 05:52:33Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE418C0079CA1A2191C2E5E698409018C146FB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359889   (124619) от 03.01.2024
-
-Уильям Шекспир | Генрих IV. Генрих V (2005) [MP3, Александр Кравцов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые исторические драмы Шекспира «Генрих IV» (в двух частях, 1599, 1600) и «Генрих V» (1599) рисуют грандиозную картину становления абсолютной монархии в Англии начала XV века, когда борьба между королевской властью и феодалами вступила в решающую фазу. Свободно и творчески используя исторический материал, Шекспир предлагает свое видение эпохи. Генрих IV изображен (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: БиблиофоникаПродолжительность: 11:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617D9F7AEA1EAB8900981EC7BFD70D0E2F1484E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689587   (124620) от 03.01.2024
-
-Дочь болотного царя / The Marsh King's Daughter (2023) WEB-DL  [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124620.jpg" />
-</div>
-
-
-###  Подробнее
-
-10-летняя Хелена жила с родителями в лесном домике. Девочка в папе души не чаяла, а он учил её понимать природу, читать следы и охотиться, вот только мама была постоянно чем-то недовольна. Однажды, когда отец ненадолго отлучился, и к их жилищу выехал заблудившийся турист на квадроцикле, мама внезапно схватила дочку и использовала эту возможность, чтобы сбежать. Так (   Читать дальше...   )Производство: США / Black Bear PicturesЖанр: Драма, триллерРежиссер: Нил БёргерАктеры: Дейзи Ридли, Бен Мендельсон, Бруклин Принс, Гил Бирмингем, Карен Писториус, Гаррет Хедлунд, Джои Карсон, Памела МакДональд, Джошуа Пис, Дэн АбрамовичиПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D7F750D9DC2BF46C10B7D48F28D6DA1941478E
 ```
 
 

@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67594.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67595.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67596.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67597.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7F5998AB6E7A978FD298B851E13E4F32908A2BA5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67598.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67599.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67600.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67601.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:6DB592979286274AEBE3E19B95C4A1228E1F98DA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67602.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:2E8BE4765F9A356B784D6EDCEFDEB5A55BA9F5BC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67603.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:18B5CDA6248F425691999DAA1FBD806CA597672A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67604.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67605.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:501B5B54DC8ABD8896BBDF962D2F937FF5CE7525
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67606.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67607.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67608.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67609.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DCF47E05FA7D3BCCB7F3F56F5E4EDF9727A901D9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67610.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:226DAB80C940AF7FCA6CFB45390EE42466CB594F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67611.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67612.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67613.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:7CA4FDA656CFF4110973E42CBDA8BB704121FB7E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67614.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67615.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67616.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Enen no Shouboutai | Пламенная бригада пожарных (2015) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67617.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 т�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67618.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5202F28C38A0917E167279C626D770DDA6AAB479
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67619.jpg" />
 </div>
 
 

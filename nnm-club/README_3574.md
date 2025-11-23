@@ -1,3 +1,79 @@
+###  Публикация: 1710947   (112606) от 28.03.2024
+
+Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk, punk rock, alternative metal-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting On A Twist Of Fate (2:47)
+02. Landmines (2:56)
+03. I Can't Wait (2:06)
+04. Time Won't Wait (2:31)(   Читать дальше...   )Жанр: Pop-punk, punk rock, alternative metal-rockПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD06142AF85CD177FC31AA933E4E689D2B0C62E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711019   (112607) от 28.03.2024
+
+Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB410C3CEEB0825152F91FBC3F626A7AA19B1D97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710964   (112608) от 28.03.2024
+
+CherryTree 1.1.1.0 (x64) + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112608.jpg" />
+</div>
+
+
+###  Подробнее
+
+CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB89087CD110F3F762C706EAEC5A42EB36C0B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710794   (112609) от 28.03.2024
 
 Журнал | Военно-исторический журнал №4 (768) (апрель 2024) [PDF]
@@ -6,7 +82,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112609.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ XnView MP 1.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112610.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ Native Instruments Kontakt 7 for Mac v.7.9.0 U2B [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112611.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:A4F8E6EEB3533DBCF3830FE6A3DC7095BD385543
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112612.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ HDCleaner 2.067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112613.jpg" />
 </div>
 
 
@@ -126,7 +202,7 @@ Macrorit Data Wiper 7.0.2 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112614.jpg" />
 </div>
 
 
@@ -150,7 +226,7 @@ BurnAware Professional 17.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112615.jpg" />
 </div>
 
 
@@ -174,7 +250,7 @@ Slayer - Reign In Blood (1986) Reissue, 2024, American Recordings Catalog P&D [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112616.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ magnet:?xt=urn:btih:7779567F8DFA422E0C0C0ED08585CF4EF20D914D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112617.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ PopClip 2024.3.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112618.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ magnet:?xt=urn:btih:1C0A78FA24042844C101C4EECA815F0D1EE10D9D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112619.jpg" />
 </div>
 
 
@@ -274,7 +350,7 @@ Vidmore Video Fix for Mac 1.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112620.jpg" />
 </div>
 
 
@@ -298,7 +374,7 @@ Brave Browser 1.64.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112621.jpg" />
 </div>
 
 
@@ -322,7 +398,7 @@ DeskWidgets: Custom Desktop for Mac 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112622.jpg" />
 </div>
 
 
@@ -346,7 +422,7 @@ magnet:?xt=urn:btih:67C93DD9E568DE129A2CEEB376B8F5B72CD1D0D8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112623.jpg" />
 </div>
 
 
@@ -370,7 +446,7 @@ Music Collection 3.6.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112624.jpg" />
 </div>
 
 
@@ -394,7 +470,7 @@ Skiltron - The Clans Have United (2006) [APE|Lossless|image + .cue] <Celtic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112625.jpg" />
 </div>
 
 
@@ -421,7 +497,7 @@ Vivaldi 6.6.3271.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112626.jpg" />
 </div>
 
 
@@ -445,7 +521,7 @@ Skype 8.115.0.217 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112627.jpg" />
 </div>
 
 
@@ -469,7 +545,7 @@ Brother Cane - 3 Albums (1993 - 1998) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112628.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ magnet:?xt=urn:btih:E5983BAD6509C9DC433DF8640191B4C7FE89672F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112629.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ magnet:?xt=urn:btih:4A11D00EDC95A79F5EFF095C46F53E4A9329ABDF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112630.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ magnet:?xt=urn:btih:FB855DEEE8644CA260E05E86C2BF2C2836EFEBBA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112631.jpg" />
 </div>
 
 
@@ -556,78 +632,6 @@ magnet:?xt=urn:btih:FB855DEEE8644CA260E05E86C2BF2C2836EFEBBA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2682316AC5F23D2B00A0AFFFA11435607D9C9E2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710469   (112632) от 27.03.2024
-
-Джей Джаямохан | Детский нейрохирург (2022) [MP3, Андрей Каминский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как протекают рабочие дни в детском нейрохирургическом отделении? В своей книге Джей Джамохаян, врач Оксфордской больницы, подробно описывает этот мир со всеми его победами и поражениями. Автор рассказывает, как проходят многочасовые операции, о своих маленьких пациентах и их родных, и о том, через что приходится им пройти. Вы узнаете, чем мозг ребенка отличается (   Читать дальше...   )Жанр: Популярно об медицинеИздательство: БОМБОРАПродолжительность: 08:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F248274F1DBB77E6A52ABC1750B47638A836F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710712   (112633) от 27.03.2024
-
-MarkMyWords 2.10.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112633.jpg" />
-</div>
-
-
-###  Подробнее
-
-MarkMyWords предлагает простые функции форматирования и структурирования содержания статей, которые будут опубликованы в «Интернете» и остаются независимыми от платформы при использовании текстовых документов.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D4092D4B0E4DBACBB9627094493A71387836CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710495   (112634) от 27.03.2024
-
-Журнал | Таинственные истории №06 (286) (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D30FD8C5EB1BFDB72266D5945D137461F0C36D7
 ```
 
 

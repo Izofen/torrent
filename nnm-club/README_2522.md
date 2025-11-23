@@ -6,7 +6,7 @@ Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66320.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2BEF8AF6C7C49D90DFEA88861FDECBAC79718A63
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66321.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:58D8228A5ACD6C37DB65D9E17953F38B3CBE2FCD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66322.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:994429105ED354883128B2ECC7AF11794EB68059
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66323.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66324.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:2EB16FAAAD5AD7C56BE57EA6EDD5E64D28B49DA7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66325.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F4214FF46C6E5282E0CA4D5A9C96B8892BB0198F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66326.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66327.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:960EC6940FFC6147ECFC0C1597FDCBBCF1A7CFC5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66328.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Smart AudioBook Player Pro v11.4.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66329.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Ultimate Dance Party 1997 (1996) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66330.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:2A84700F3E66A7C66DE91AE38CA33E5C2D6C0741
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66331.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:E234B93FD04A46E767FDC5526C1F1CA026EADFB9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66332.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:47FDEA2DB25684F1BCCAA686D88269F7406F1151
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66333.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:481FB39EF81F962EAA4E16E2DED8D256F365701C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66334.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ TuneIn Radio Pro v38.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66335.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Clockwise - Healthy Manipulation (2002) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66336.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66337.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66338.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:4585C30F41BF0CE01256F80B6D7B22CC079BDB11
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66339.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cher - Love Hurts (1991) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66340.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невест
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66341.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66342.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66343.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:885FE39A28D6179CD0890845A06E2FF283DFD0D0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66344.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66345.jpg" />
 </div>
 
 

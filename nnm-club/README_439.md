@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F046669B04C1C8F9C776B2A486B2DC9E10F3EF5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11644.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7D3B45E380A85A2CFA61AEAEF58E20C25E54F067
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11645.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11646.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D4BDC68A0EE610E36C3D7B0AF8EFDC9810969262
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11647.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:07A556733D74F606DC11E26842DFEB3BFC9B37CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11648.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:CD6C63D453113AFBC636166C4073D6E0848AC498
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11649.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Лето на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11651.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E44DF7491F8214B6CCD51BE6517F860000F497B1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11652.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11653.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D0A990A903B663B52CC005470C9C208D255552C5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11656.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D0A990A903B663B52CC005470C9C208D255552C5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11657.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:691574CE6839425FA70A834516F26A90A4339FE8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11658.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7E77705504CA50F9EFCE1A626F7B429FC217E955
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11661.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A29FBB01167C33B9C6D341A28BBBB97F79ACDF0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11662.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11663.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11664.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7108BA331252E2F179D57F5E82ED27632B726C91
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11666.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11667.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3C2C0923B78DDAA0933DE224D5EB0B9281B90CC5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11668.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Necesse (2019) [Ru/Multi] (0.33.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11669.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (889.19/1.71) Repack SE7EN
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11670.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:98AC48152FEFF1E8190BEF8DE2DDC33EC1209D3E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11671.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AE0DC1B9C9A50AAC1A4820AAD281A185E60C61CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11672.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:EF7D4C5E4E29106210EC0FB22FED867423D4B646
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11673.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:9B27B5D0E782AAF3DBEBC0A79AE9117C4D0B62BD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11674.jpg" />
 </div>
 
 

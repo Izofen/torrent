@@ -1,3 +1,78 @@
+###  Публикация: 1735001   (106990) от 06.07.2024
+
+Johnny Griffin - Sextet (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stix' Trix [7:43]
+02. What's New? [7:53]
+03. Woody'n You [6:12]
+04. Johnny G.G. [9:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BBB75C0E2F95C90961D919E272E88E76ECAC78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734987   (106991) от 06.07.2024
+
+Джонатан Слат | Совы во льдах (2023) [MP3, Владимир Капитонов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это аудиокнига о рыбном филине, одной из самых больших сов в мире. И это аудиокнига американца о России. Пернатый гигант селится в девственных лесах поблизости от водоемов, богатых рыбой, и как раз такие условия пока еще можно найти в российском Приморье на Дальнем Востоке. Вот почему именно здесь произошла встреча начинающего орнитолога Джонатана Слата с таинственной (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 13:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BD4BC68DF58D4349774987535007645B0262D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735070   (106992) от 06.07.2024
+
+MotoGP. Этап 09 из 20. Гран-при Германии. Квалификация (06.07.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106992.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 июля 2024, суббота. 11:50 МСК. Этап 9, Хоэнштайн-Эрнстталь. Гран-при Германии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6113D3F5D50011F0F9A24B0EDB427EB90C756C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735149   (106993) от 06.07.2024
 
 Девушка из отеля Империя / La demoiselle de l'Hotel Imperia (1910) WEBRip [H.264/720p]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106993.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Metal De Facto - Land Of The Rising Sun, Pt. 1 (2024) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106994.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ magnet:?xt=urn:btih:A2CD479AD59D70AA5408A8B9269B5838EA058876
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106995.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ Crystal Viper - The Silver Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106996.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106997.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ Enter Shikari - Dancing On The Frontline (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106998.jpg" />
 </div>
 
 
@@ -164,7 +239,7 @@ magnet:?xt=urn:btih:D179D10393F67CD3FF901410955994E53561E092
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106999.jpg" />
 </div>
 
 
@@ -191,7 +266,7 @@ magnet:?xt=urn:btih:0A3FC06F10F9EC7595C2055070E49E55FCF02737
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107000.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107001.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ Music Collection 3.6.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107002.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107003.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ magnet:?xt=urn:btih:ADEE24C9F44A9A6539AC0766974AF75099B5152D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107004.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ OneCommander Pro 3.86.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107005.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ Process Lasso Pro 14.2.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107006.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ R-Studio Network 9.4 Build 191332 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107007.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ magnet:?xt=urn:btih:424BD1120A5E300280AD0F917177A1B65DF86159
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107008.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ magnet:?xt=urn:btih:7A870D63D3CE6BF3C25F0C1E12A5E99EAE9381C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107009.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ VA - Cardio - 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107010.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ Radiant Photo 1.3.1.477 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107011.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ Perfectly Clear WorkBench 4.6.1.2671 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107012.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ magnet:?xt=urn:btih:F3913FEAC99DC59865210FDE8A0844C6781D4D1C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107013.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ magnet:?xt=urn:btih:BDC350F8989A5EE63C769DC5A7DB0FA31E2A7050
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107014.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ R-Wipe & Clean 20.0.2464 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107015.jpg" />
 </div>
 
 
@@ -575,79 +650,6 @@ R-Wipe & Clean - программа для невосстановимого уд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD782E25D12EC1E34520C21E2D49C48CB3BE5F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734984   (107016) от 06.07.2024
-
-reaConverter Pro 7.817 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107016.jpg" />
-</div>
-
-
-###  Подробнее
-
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6EAC1069F88C82A0E7514240881213E450B2F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734969   (107017) от 06.07.2024
-
-RJ TextEd 16.25 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107017.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D94E27C371DA9E0AC42CC44A7935D158282152B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735073   (107018) от 06.07.2024
-
-Нулевой фокус / Zero no shoten / Zero Focus (1961) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Сейчо (Сэйтё) Мацумото... Через неделю после свадьбы Тейко Ухары её муж Кеничи уезжает в короткую командировку и не возвращается. Имея среди своих вещей только пару старых фотографий, Тейко отправляется выяснить, что с ним случилось. Поиски приводят её в отдалённый город на севере японских островов... Дальнейший сюжет, наполненный (   Читать дальше...   )Производство: Япония / Shochiku CompanyЖанр: драма, криминал, детективРежиссер: Ёситаро НомураАктеры: Ёсико Куга, Хизуру Такачихо, Инэко Арима, Кодзи Намбара, Ко Нисимура, Садако Савамура, Ёси Като, Тацуо Нагаи, Мицуко Сакура, Таканобу ХозумиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91282199D351C757B49461D3B17242B8A0298CF3
 ```
 
 

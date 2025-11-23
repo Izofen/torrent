@@ -6,7 +6,7 @@ By Click Downloader Premium 2.4.15 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F01FC60FD82EAEBF0523A98E95DD3B84FE83A0FD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Accept - Compilation (1979-2024) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29813.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2ED6E0F907D7AC6B0FDDA8EC4E9F5D302B06FF7B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29814.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2112AA1989BAF89D327EEA48C35D77034EBE351C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29815.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:61D2B7C4A5E923E4A0B1BBEF093093BC5D102217
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29816.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29816.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7DE9CFBEB86EC5E557715E8241F9650C6A3AA255
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29817.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Tricky Words / Хитрое слово: слова из букв v9.2.0 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29818.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29819.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:FF8499442BE8F6A1A382732EB0466BCF3C051662
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29820.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29820.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29821.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4176D63EDF64DC1CF25E49BE2ED9E15167306959
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29822.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B8C6817103F9A18226AEAE35B71EF6CD3CA0C936
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29823.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0C4CC289C33417B746B605385D0EE9917CEDEDD4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29824.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29825.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Le Cordon Bleu | Школа кондитерского мастерства (201
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29826.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29826.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9AD4612F8A685B5375A82D8D18A524FB88099B40
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29827.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29828.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29829.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:73726281904B249A51886B0B886D5C0AB4691C0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29830.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29831.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:440F957D76D6F38CA6749A278770C4E58DCAB00D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29832.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29833.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29833.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8213FE8C25164DDB2AACFC6CD82E468DA53D99EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29834.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29834.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:11F82445FB0B6B5304607344EDBD30DAE3CB9E65
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29835.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29836.jpg" />
 </div>
 
 

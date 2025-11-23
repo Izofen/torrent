@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D91BC40A36062A1A962455AC6F0FEDFA56C90931
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71392.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8913B283857E77CFCC1B7B662596733DA0642AA8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71393.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:9339BE246D174C8B71789E470C28A40A9189DB2A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71394.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:67A0E32A7DBD3E377C246005D27314B79C5D2326
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71395.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A16B9001EA4E0BBF581C4B519A503B953EE0B295
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71396.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:07C4B31680F1719C7E68DCC9650C876F3D7905BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71397.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ GeoGebra 6.0.873.2 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71398.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Sunset Mix (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71399.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ David Rose - My Happy Space (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71400.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ W2RC. Обзор ралли World Rally-Raid Championship (2024) WEBRip [H.264]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71401.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71402.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:10125E28A5E5E3C2589857712280504A0FC66841
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71403.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ In Extremo - Sterneneisen (2011) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71404.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Redux Selection, Vol. 2 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71405.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71406.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:677A13D455960AD26F54954AF7E525DB8B6E4746
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71407.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71408.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ In Extremo - Kompass zur Sonne (2020) Extended Edition [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71409.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Ferrymen - Iron Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71410.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ In Extremo - Kunstraub (2013) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71411.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sun Ra - Inside The Light World: Sun Ra Meets The OVC (1986) 2CD, 2024, Strut [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71412.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71413.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71414.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71415.jpg" />
 </div>
 
 

@@ -1,3 +1,86 @@
+###  Публикация: 489024   (102128) от 29.04.2012
+
+Xilisoft AVI to DVD Converter 7.0.1.1122  Portable [Русский]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xilisoft AVI to DVD Converter это программа для создания DVD-дисков из файлов AVI, конвертации и записи форматов AVI, MPEG, MPG, M2V, DAT и VOB в DVD-фильм, папку DVD или изображение ISO.
+Программа включает дополнительные возможности по редактированию видео, такие, как вырезание ненужных частей, добавление аудиотреков и субтитров, подгонка размеров изображения и добавление логотипов. Создайте своё собственное меню DVD с эксклюзивной фоновой музыкой и картинками, заголовками и открывающими титрами. Попробуйте Xilisoft AVI to DVD Converter сейчас и начните делать свои собственные DVD!
+
+• Конвертация файлов AVI (а также DivX, MPEG) и их запись на DVD.
+• Создание персонифицированного меню DVD.
+• Создание персонифицированных DVD с аудиотреками, субтитрами, вставками и эффектами.
+• Запись DVD-видео, папок DVD или изображений ISO.Название программы: Xilisoft AVI to DVD Converter 7.0.1.1122 Rus. (Portable)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489475   (102135) от 29.04.2012
+
+DAEMON Tools Lite 4.45.4.0315 Rus/Eng Portable
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daemon Tools Lite - маленький по размеру, но мощнейший по способностям эмулятор CD/DVD-драйвов - дозволяет "подцепить" любой образ диска, сделанный какой-нибудь утилитой для копирования дисков (например, CloneCD), т.е. может работать с какими угодно "дисками" - даже с PlayStation.
+
+Точно также в этот эмулятор можно "вставить" скопированные на винчестер аудио-CD или DVD-диски. К слову, для правильной работы копий с "хитрецкой" защитой, используемой в CD с играми, программа имеет особые режимы SafeDisc (C-Dilla), Securom и Laserlock... Программа работает во всех версиях Windows и допускает одновременную эмуляцию до 4 CD/DVD-дисководов. Интерфейс программы переведен на огромное количество языков, включая русский язык.
+
+В арсенале любителя игр непременно найдется программа-эмулятор привода для считывания CD/DVD-дисков. Эта программа устанавливает в систему специальный драйвер, благодаря которому Windows описывает виртуальный привод и может с ним работать, как с обычным. Разница (   Читать дальше...   )Название программы: DAEMON Tools Lite 4.45.4.0315 Rus/Eng PortableЯзык интерфейса: Rus/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489212   (102136) от 29.04.2012
+
+Мстители / The Avengers (2012) CAMRip *PROPER*
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Локи, сводный брат Тора, возвращается, и в этот раз он не один. Земля на грани порабощения, и только лучшие из лучших могут спасти человечество.
+Ник Фьюри, глава международной организации Щ. И. Т., собирает выдающихся поборников справедливости и добра, чтобы отразить атаку. Под предводительством Капитана Америки Железный Человек, Тор, Невероятный Халк, Хоукай и Чёрная Вдова вступают в войну с захватчиком.Жанр: Фантастика, Боевик, ПриключенияРежиссер: Джосс УидонАктеры: Роберт Дауни мл., Крис Эванс, Марк Руффало, Крис Хемсворт, Скарлетт Йоханссон, Джереми Реннер, Том Хиддлстон, Сэмюэл Л. Джексон, Кларк Грегг, Коби СмолдерсПеревод: ДублированныйЯзык субтитров: ГреческийПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489206   (102140) от 29.04.2012
 
 Мы купили зоопарк / We Bought a Zoo (2011) HDRip
@@ -6,7 +89,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102140.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@ magnet:?xt=urn:btih:1956531015A919B3A44AD5D4FECDC1CF2F854D10
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102144.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102144.jpg" />
 </div>
 
 
@@ -54,7 +137,7 @@ ZX BootFlash 02.2012 [Авторская раздача]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102146.jpg" />
 </div>
 
 
@@ -79,7 +162,7 @@ ZX BootFlash 02.2012 [Авторская раздача]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102149.jpg" />
 </div>
 
 
@@ -103,7 +186,7 @@ ZX BootFlash 02.2012 [Авторская раздача]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102150.jpg" />
 </div>
 
 
@@ -127,7 +210,7 @@ magnet:?xt=urn:btih:64D76D6B0ACD783DC8E337A4C9F57BCEC49E848A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102153.jpg" />
 </div>
 
 
@@ -152,7 +235,7 @@ magnet:?xt=urn:btih:FB1D6E4CC6F6EB45CABB3DEB059720412D6107E0
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102154.jpg" />
 </div>
 
 
@@ -177,7 +260,7 @@ magnet:?xt=urn:btih:037A8D69B3EA7F7776B389AA4E7E70199A2DC589
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102156.jpg" />
 </div>
 
 
@@ -201,7 +284,7 @@ magnet:?xt=urn:btih:597D26E973AB9342FE2A399E09D962D225531D3D
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102158.jpg" />
 </div>
 
 
@@ -225,7 +308,7 @@ SolSuite 2012 {v 12.04} (P) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102160.jpg" />
 </div>
 
 
@@ -249,7 +332,7 @@ magnet:?xt=urn:btih:6C3FE714D166DF1B6B011543A4656B65E9B91995
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102162.jpg" />
 </div>
 
 
@@ -274,7 +357,7 @@ magnet:?xt=urn:btih:91B0D2EE0BAFA31F740B93FF3F3AB28D210DE211
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102164.jpg" />
 </div>
 
 
@@ -299,7 +382,7 @@ magnet:?xt=urn:btih:7DA18D0C6D0DD1AB5FC2E436D301593EF81E2E9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102172.jpg" />
 </div>
 
 
@@ -325,7 +408,7 @@ magnet:?xt=urn:btih:7DA18D0C6D0DD1AB5FC2E436D301593EF81E2E9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102173.jpg" />
 </div>
 
 
@@ -349,7 +432,7 @@ magnet:?xt=urn:btih:9B501BC9A68FA74DC4FFD63A77034358F9A652B7
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102178.jpg" />
 </div>
 
 
@@ -374,7 +457,7 @@ magnet:?xt=urn:btih:AFABBA9C6866392DA0ECB511C0F39E7F8F105A54
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102181.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ magnet:?xt=urn:btih:54BECCE436480A3204AE063E7ADAF2ADF8C63C49
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102182.jpg" />
 </div>
 
 
@@ -423,7 +506,7 @@ Data Flow Accelerator 3.4.2.27 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102183.jpg" />
 </div>
 
 
@@ -456,7 +539,7 @@ WWE Legendary Moments (2010) DVDRip (русская версия от 545TV)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102185.jpg" />
 </div>
 
 
@@ -481,7 +564,7 @@ magnet:?xt=urn:btih:D7A7CD99B8C7AE789185916B4EA24FACA49962E5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102186.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102186.jpg" />
 </div>
 
 
@@ -506,7 +589,7 @@ magnet:?xt=urn:btih:D7A7CD99B8C7AE789185916B4EA24FACA49962E5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102188.jpg" />
 </div>
 
 
@@ -530,7 +613,7 @@ magnet:?xt=urn:btih:AE365A2D9EAD47B66E09B5003D853D8B54DBE8A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102189.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102189.jpg" />
 </div>
 
 
@@ -554,7 +637,7 @@ magnet:?xt=urn:btih:AE365A2D9EAD47B66E09B5003D853D8B54DBE8A6
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102191.jpg" />
 </div>
 
 
@@ -566,78 +649,6 @@ magnet:?xt=urn:btih:AE365A2D9EAD47B66E09B5003D853D8B54DBE8A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E8D8BECFAA997EE8E9B8441D69BC9DFD26189C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490075   (102192) от 30.04.2012
-
-Роман Артемьев и др. | Меч императора [сборник] (2012) [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102192.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли произведения известных авторов — мастеров фантастического боевика. Разные по стилю и жанру произведения объединены темой столкновения людей с другими формами жизни. Человек — венец природы. Но данное обстоятельство не мешает людям быть одними из самых незащищенных созданий на земле. Порой даже самые мудреные и современные средства обороны не могут обеспечить надежной защиты от странных и непонятных существ, с коими сводит человека судьба…Жанр: ФантастикаФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0518E14EFE880DD24EACD8078EAF8A0633B09A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489931   (102193) от 30.04.2012
-
-A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 1991-1992 | Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть дилогии Savage Frontier. Есть возможность перенести персонажей из первой части.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489961   (102201) от 30.04.2012
-
-Долгота / Longitude (2000) (2 серии из 2) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XVIII веке единственным надежным средством морской навигации служила береговая линия. Наблюдение за местоположением звезд и солнца позволяло определить широту, на которой находились мореплаватели. Но для определения долготы этого было недостаточно. Корабли, сбиваясь с курса, терпели крушения. Британский парламент посулил баснословное вознаграждение тому, кто изобретет часы, которые будут точно показывать время в океане. Страстный изобретатель Джон Харрисон создал такой прибор..Жанр: Драма историяРежиссер: Чарльз Старридж / Charles SturridgeАктеры: Джонатан Кой / Jonathan Coy, Christopher Hodsol, Джереми Айронс / Jeremy Irons, Питер Картрайт / Peter Cartwright, Джемма Джонс / Gemma Jones, Джон Неттлтон / John Nettleton, Майкл Гэмбон / Michael Gambon, Найджел Дэвенпорт / Nigel Davenport, Лайам Дженнингс / Liam Jennings, Анна Чэнселлор / Anna Chancellor, Фрэнк Финлей / Frank Finlay, Джеффри Хатчингс / Geoffrey Hutchings, Стивен Фрай / Stephen FryПеревод: Многоголосый закадровыйПродолжительность: 01:33:14 + 01:45:10
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 969087   (148782) от 26.12.2015
+
+Татьяна Шиканян | Библия ландшафтного дизайна (2015) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знания, которые владельцы загородного коттеджа и дачных участков почерпнут из этой книги, уже сейчас позволят им правильно спроектировать пространство вокруг дома, выбрать растения для сада и строительный материал для дорожек, создать изысканные цветники, постичь тайны «рождения» хорошего газона, выбрать оптимальное место для водоёма и многое другое. Основы ландшафтного (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB0E6DD66D1A1A39079F568D9D97D977E628C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347759   (148783) от 24.12.2019
+
+Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Бостон Брюинз (23.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148783.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 декабря 2019 года, вторник 03:00 МСК
+Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (102 % при вместимости 17 565)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0491C67CD2383E5754F6F2298F70DACBE671E53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677840   (148784) от 19.11.2023
+
+Владимир Высоцкий - Прерванный полёт ( 1996 ) 2CD [FLAC|Lossless|tracks + .cue] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Троя
+02. Охота на волков
+03. Заповедник
+04. Конченый человек(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9869CF3A2CD2775315A7C326A8D7D66BE288F4CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969300   (148786) от 26.12.2015
+
+Проекты - Проект ProShow Producer - Рисует иней образ твой [PSH]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимний проект от нашей одноклубницы Hivatusya. Презентация в романтическом жанре. Проект отредактирован и пересохранён в PSP-6 в связи с переименованием файлов содержащих в названиях рекламу сторонних ресурсов. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена (   Читать дальше...   )Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87847E1919BADC479C5F86A786B8A7A23793D92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434676   (148787) от 25.12.2020
+
+Нетология | Интернет-маркетолог - от новичка до профи (расширенная  версия) (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте digital-профессию, входящую в топ-10 самых востребованных в России (по данным hh.ru)
+
+Чем занимается интернет-маркетолог.
+Составляет маркетинговую стратегию компании, разрабатывает УТП, работает с позиционированием и запуском продукта или услуги на рынок(   Читать дальше...   )Производство: НетологияЖанр: МаркетингПродолжительность: 24:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D05EE1A31099CC0C0C8434349B0FE5F7CADA5D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589675   (148788) от 15.12.2012
+
+[Wallpapers] Обои ЦВЕТЫ(часть вторая)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые цветы на рабочий стол отличного качества.Часть вторая.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B9A8F24745FA1C6ACC167D631DF3AB3195320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969281   (148789) от 26.12.2015
+
+Disk Drill Entreprise 2.4.437 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill - восстановление информации без помощи специалистов
+Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 14 декабря 2015Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1A4C58CC8802B516E4D4075C8CED039A3890B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677993   (148790) от 19.11.2023
 
 Доктор Баллуз / Dr. Ballouz (2021) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +183,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148790.jpg" />
 </div>
 
 
@@ -31,7 +208,7 @@ magnet:?xt=urn:btih:E72B47CB4AA105A4437E8C501D5F7EBC4F2D6014
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148792.jpg" />
 </div>
 
 
@@ -55,7 +232,7 @@ magnet:?xt=urn:btih:157BA329B6216E027B7F2FF90A0BB37C1A9224D1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148794.jpg" />
 </div>
 
 
@@ -79,7 +256,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.75 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148795.jpg" />
 </div>
 
 
@@ -103,7 +280,7 @@ Permute 3 v3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148796.jpg" />
 </div>
 
 
@@ -127,7 +304,7 @@ Nozomu Wakai's Destinia - Requiem For A Scream (2014) (Japanese Edition) [FLAC|L
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148798.jpg" />
 </div>
 
 
@@ -154,7 +331,7 @@ Balance BY v6.1.255 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148799.jpg" />
 </div>
 
 
@@ -179,7 +356,7 @@ magnet:?xt=urn:btih:A219A74FED058D50351BF5E5E7480CDFB2B73ECC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148800.jpg" />
 </div>
 
 
@@ -203,7 +380,7 @@ magnet:?xt=urn:btih:FC5CA3E95AD43FDF083221B0B803624A3C5DC200
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148801.jpg" />
 </div>
 
 
@@ -227,7 +404,7 @@ magnet:?xt=urn:btih:89239FDF2B5148D6FC092F7CF457A5DB101A58F7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148802.jpg" />
 </div>
 
 
@@ -251,7 +428,7 @@ VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148803.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148806.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148807.jpg" />
 </div>
 
 
@@ -329,7 +506,7 @@ magnet:?xt=urn:btih:1A563FDDA7D4522B61076CA6B2C6A72569693710
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148810.jpg" />
 </div>
 
 
@@ -353,7 +530,7 @@ Serpent Lord - Apocrypha (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148811.jpg" />
 </div>
 
 
@@ -380,7 +557,7 @@ VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148813.jpg" />
 </div>
 
 
@@ -407,7 +584,7 @@ magnet:?xt=urn:btih:404BDB937CA8CB196DB6B94BBF262282FFC0BA03
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148814.jpg" />
 </div>
 
 
@@ -431,7 +608,7 @@ magnet:?xt=urn:btih:386C39B04C26DE5AC57A3022E495E4C0FA652DD7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148815.jpg" />
 </div>
 
 
@@ -457,7 +634,7 @@ Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148816.jpg" />
 </div>
 
 
@@ -471,180 +648,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD700C5494B8CBCA404694F3B871598D92BBF84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969242   (148818) от 26.12.2015
-
-Пол Долан | Счастье по расчету. Как управлять своей жизнью, чтобы быть счастливым каждый день (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы все стремимся к счастью, но мало кто понимает, что на самом деле сделает нас счастливее. Может, надо сменить работу? Выйти замуж? Или развестись? Поехать в кругосветное путешествие? Или купить новую одежду? В погоне за счастьем мы пускаемся в безумные авантюры или скупаем горы ненужных вещей, но счастье все дальше ускользает от нас. Между тем к счастью зачастую (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C53265F8DFFA2552E457AACBCB72B9C0B8B2DF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519596   (148819) от 24.12.2021
-
-Diagrams 2.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D253DC02470B1372181DBDAE9FDBD19330BED4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434645   (148820) от 25.12.2020
-
-Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля до первого проекта (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для тех, кто впервые открыл редактор Unreal Engine, либо работает в нем недавно. Уроки познакомят вас с материалами, ландшафтом, работой с Blueprint и ассетами из маркета, освещением и многими другими необходимыми для создания проекта вещами.
-
-Распространенные вопросы по курсу:
-1. Что нужно уже уметь, чтобы пройти этот курс? Этот курс не (   Читать дальше...   )Производство: UdemyЖанр: Программирование, создание игрПродолжительность: 12:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA54C6527F9CE2B04242FE840994299751386CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271508   (148822) от 24.12.2018
-
-Б. Кун (ред.) | Коммунистический Интернационал в документах 1919-1932 (1933) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148822.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее издание вошли тезисы и решения шести конгрессов Коммунистического Интернационала, двенадцати пленумов ИККИ и одного расширенного заседания президиума Коминтерна, состоявшихся в период 1919—1932 гг. Все документы расположены по конгрессам и пленумам в хронологическом порядке. Исключение представляют лишь программа и устав Коминтерна, которые помещены отдельно (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8373757A3DFCAEC7AF6B4208210717B7D88C4C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519614   (148823) от 24.12.2021
-
-Timer RH PRO  2.10 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © 2021 Pavlo LiashenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C6A55D1CEC984EF7506084DDA68D01DE4C681B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271609   (148824) от 24.12.2018
-
-Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Should Care
-02. Just Too Very
-03. Still Love You So
-04. Out Lee(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434545   (148826) от 25.12.2020
-
-Видеоредактор Movavi Clips v4.4.5 Premium [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание видео профессионального качества теперь не проблема, ведь с бесплатным мобильным приложением Movavi Clips так легко делать видеомонтаж: склеивать или обрезать видео, добавлять переходы, музыку, текст, стикеры на фото и видео и многое другое! Даже дополнительные эффекты не нужны, чтобы получить хороший результат. Теперь ваши фильмы и видеоролики о путешествиях, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 18 декабря 2020 г.Разработчик: MovaviПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F470F77AF3531891059E15245A460AD5419B75EB
 ```
 
 

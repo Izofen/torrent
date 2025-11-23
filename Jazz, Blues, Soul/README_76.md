@@ -6,7 +6,7 @@ The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107883.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107884.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107888.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107892.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107893.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107897.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107908.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107962.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107976.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107977.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107980.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108006.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108012.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108013.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108024.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Left Lane Cruiser - Bayport BBQ Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108029.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108031.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108034.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108045.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108046.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108147.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108150.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108159.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108162.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108169.jpg" />
 </div>
 
 

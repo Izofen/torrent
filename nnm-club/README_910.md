@@ -6,7 +6,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (1903) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0E2C5051012FA2A605E7B7B495C14EAF7FC150E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8D8FBB451C8AE0C0077EAB16BE422C741E86776F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8C6FC16E91C1769FB2F529E749EEA48C9F008C5B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E2B4A2136D8F2C7D53B899B69026026BBC03B441
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ XnView Classic 2.52.1 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24003.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E0D45B24CFE231F231172B5024A1B8C34B512994
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ AnyDesk 9.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24005.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C7D673E1A17EEB5048FC996E42240CCFDDFF50D5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24006.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24007.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Call Filter / Фильтр Звонков v1.23.5 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24008.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:4205F1B6E31C6316CA9A78C13E896FF4076C3374
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24009.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:F4121F04D1A64E882CDEAC916FF59A20363BBB79
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24010.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:26193643F81C9DEF44ADC52CD3D20240B5B0BA50
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24011.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:9AAE147202AB499C60C3D74DA1BBB19CB57D204C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24012.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.03.18 [Ru/E
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24013.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:8E0999F72AD56B77C6F30B77FFA3A492A6BEBC8E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24014.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:BEEA337523547D88E7155EF16B07151AEC331847
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24015.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:63C22671B0E7036A3B36348C2671BC1099EFFB13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24016.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24017.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:82804797C32E0F91E6F23EB47B172BD4677B0DBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24018.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.3476 by Igors_VL [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24019.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F8FA0F65B3E9BA9D81067E4C3CDC2CD12BCAE8C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24020.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:7AC7D04020D61A2D9A2A6F50E372264A95A2B055
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24021.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24022.jpg" />
 </div>
 
 

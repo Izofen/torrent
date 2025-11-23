@@ -1,3 +1,54 @@
+###  Публикация: 1658451   (191203) от 08.09.2023
+
+Андрей Масалович | КиберДед знает (2022) [MP3, Андрей Пирог]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191203.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я опять в ж*пе! Как на этом можно заработать?»
+Андрей Масалович, предприниматель, интернет-разведчик и автор YouTube-канала «КиберДед», убежден: любой провал – это всегда космический пинок для поиска возможностей. Главное – перестать тянуть кота за хвост и наматывать сопли на кулак. Чем ниже точка, с которой ты стартуешь, тем сокрушительнее будет победа.
+Прошедший (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 04:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA89289BB51D1BFB89E5A710CCD6A464F20C36E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588656   (191293) от 05.11.2022
+
+Ванесса Ван Эдвардс | Взломай код общения (2022) [MP3, Нона Трояновская]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванесса Ван Эдвардс, автор бестселлера «Наука общения», рассказывает, как с помощью языка тела, мимики, жестов и собственно коммуникации достигать успехов в бизнесе, карьере, заключать выгодные сделки и влиять на людей.
+Вы узнаете, что делать, если вас перебивают на совещаниях, если вы испытываете неловкость во время публичных выступлений, если вам кажется, что к (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 09:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3AB8E0460608CC745AD7F22AAFFE4773FF1D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588541   (191316) от 05.11.2022
 
 Хэл Элрод | Магия утра. Как первый час дня определяет ваш успех (2017) [MP3, Кирилл Радциг]
@@ -6,7 +57,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191316.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191316.jpg" />
 </div>
 
 
@@ -30,7 +81,7 @@ magnet:?xt=urn:btih:72C1920DD97D1BEB393FE37881C2674444FC0247
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191528.jpg" />
 </div>
 
 
@@ -55,7 +106,7 @@ magnet:?xt=urn:btih:F96C3267EBCABBA43272677B475689AF261209C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191581.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191581.jpg" />
 </div>
 
 
@@ -81,7 +132,7 @@ magnet:?xt=urn:btih:CB06D9559EA0217C3975670399153D6C13F25185
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191606.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191606.jpg" />
 </div>
 
 
@@ -106,7 +157,7 @@ magnet:?xt=urn:btih:0FEA592BCE33754896A91CF2099F9D0DFD95085B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191619.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191619.jpg" />
 </div>
 
 
@@ -131,7 +182,7 @@ magnet:?xt=urn:btih:35EF0333E4A441B00864E25D364E1B2F7785AA29
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191788.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191788.jpg" />
 </div>
 
 
@@ -156,7 +207,7 @@ magnet:?xt=urn:btih:EEA574F5D0989C158A9A7FBD3DE167FF5656CB0F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191805.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191805.jpg" />
 </div>
 
 
@@ -180,7 +231,7 @@ magnet:?xt=urn:btih:3D90CFE0040B5C4FE6E1F57D543FAF99FAF75B3C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191831.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191831.jpg" />
 </div>
 
 
@@ -205,7 +256,7 @@ magnet:?xt=urn:btih:0E66572B8FA013B5D93BA011F018B2218A27B74C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191932.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191932.jpg" />
 </div>
 
 
@@ -230,7 +281,7 @@ magnet:?xt=urn:btih:EFDA04BD9F5057B7DE9878CA62E1113ABF1861CE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191949.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191949.jpg" />
 </div>
 
 
@@ -256,7 +307,7 @@ magnet:?xt=urn:btih:CB5E0E77669CF15BBE21B34BBFF15119D8A8B0C6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192046.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192046.jpg" />
 </div>
 
 
@@ -281,7 +332,7 @@ magnet:?xt=urn:btih:5018889976934017D2817FA141F33CB56C03A63B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192102.jpg" />
 </div>
 
 
@@ -305,7 +356,7 @@ magnet:?xt=urn:btih:4207C6ADE34101935E02CE88242AAF8F05A3A72D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192191.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192191.jpg" />
 </div>
 
 
@@ -329,7 +380,7 @@ magnet:?xt=urn:btih:CAB91E3FD30E5376D33349CE59E0C49D3EAEAFBA
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192329.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192329.jpg" />
 </div>
 
 
@@ -354,7 +405,7 @@ magnet:?xt=urn:btih:85DAA7B0EB4E72B3EC2031D3A6388F9E4323B5CC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192416.jpg" />
 </div>
 
 
@@ -379,7 +430,7 @@ magnet:?xt=urn:btih:0744C1F9D0F1AE5C18D9034BD4468C4F3F435EFA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192560.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192560.jpg" />
 </div>
 
 
@@ -405,7 +456,7 @@ magnet:?xt=urn:btih:A47F188C4C34556EFE134EFF68400BFDCFDBA2DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192575.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192575.jpg" />
 </div>
 
 
@@ -431,7 +482,7 @@ magnet:?xt=urn:btih:CBD9CE25F3D1D2D9BBBCC3F29BA1998675471C8D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192630.jpg" />
 </div>
 
 
@@ -455,7 +506,7 @@ magnet:?xt=urn:btih:6647F814A3EA920BBC227CBACEB92F078D87EB3F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192652.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192652.jpg" />
 </div>
 
 
@@ -480,7 +531,7 @@ magnet:?xt=urn:btih:020B106B61B56907F5F3D4CFD39A23F65640973A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192835.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192835.jpg" />
 </div>
 
 
@@ -506,7 +557,7 @@ magnet:?xt=urn:btih:40D0AE6353F87BC3F9BFD9FC8EB5786B9953FDC3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192849.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192849.jpg" />
 </div>
 
 
@@ -530,7 +581,7 @@ magnet:?xt=urn:btih:E4FAD55B8596978B5116039027245C60030CACAA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192850.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192850.jpg" />
 </div>
 
 
@@ -555,7 +606,7 @@ magnet:?xt=urn:btih:D137FFC2653DCC61E7E74BCA29C7B127B3CBB44B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192880.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192880.jpg" />
 </div>
 
 
@@ -579,7 +630,7 @@ magnet:?xt=urn:btih:502726E86908673240D89BA79FF2B4CF9B81FE13
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192881.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192881.jpg" />
 </div>
 
 
@@ -591,55 +642,6 @@ magnet:?xt=urn:btih:502726E86908673240D89BA79FF2B4CF9B81FE13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3FCF5BD3E7F717C36006AC98F1048A2D19A22F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587349   (192890) от 30.10.2022
-
-Светлана Леймах | Магия жизни. Всё к лучшему или к деньгам! (2022) [MP3, Андрей Финагин]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где искать помощь и утешение, чтобы пережить тяжелые моменты? Как принять и полюбить себя? Чем исцелять себя от моральных и физических болезней? На эти экзистенциальные вопросы отвечает автор книги «Магия жизни», проводник и парапсихолог Светлана Леймах.
-Через внешнее и внутреннее, очевидное и тайное Светлана открывает читателю универсальные правила жизни, главные (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростПродолжительность: 06:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1215E583949438D49E5662B257188B132298594A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657084   (192958) от 02.09.2023
-
-Джарон Ланье | 10 аргументов удалить все свои аккаунты в социальных сетях (2019) [MP3, Вадим Пугачев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто у вас возникает желание удалить аккаунты в социальных сетях? У Джарона Ланье, программиста, футуролога и революционера IT-индустрии, найдется целых 10 убедительных причин в пользу вашей правоты. Вы думаете, что создаете уникальный цифровой образ себя, подпитывая его лайками и социальным одобрением. На деле вы оказываетесь обезличенной жертвой бездушных (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 04:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5844EE5101EDF68F7009703F582D1062879682F
 ```
 
 

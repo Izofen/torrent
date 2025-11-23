@@ -6,7 +6,7 @@ Music Collection 3.6.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brave Browser 1.63.161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116027.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PowerDirector – Video Editor v13.2.1 b1226220 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116036.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PDF Expert 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116038.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Directory List & Print Pro 4.31 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116047.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sumatra PDF 3.6.15966 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116048.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Google Chrome 122.0.6261.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116049.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ LDPlayer 9.0.66.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116062.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ UltraSearch Professional 4.1.2.912 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116068.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Google Chrome 122.0.6261.70 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116070.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BlueStacks App Player 5.20.110.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116083.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PicPick Free+Pro 7.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116086.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MEmu 9.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116090.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Display Driver Uninstaller 18.0.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116091.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GoodbyeDPI 0.2.2 Launcher 6.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116127.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wallpaper Engine 2.4.70 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116152.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Keep It 2.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116174.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ FxFactory Pro 8.0.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116184.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Monkey's Audio 10.51 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116185.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Proxyman for Mac 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116192.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ MouseBoost pro for Mac 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116194.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ DiskDigger 2.0.1.3863 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116198.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ TweakNow WinSecret Plus! 5.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116199.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Image Uploader 1.4.0 Build 5130 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116200.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116202.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ doPDF 11.9.444 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116207.jpg" />
 </div>
 
 

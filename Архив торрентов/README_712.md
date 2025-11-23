@@ -1,3 +1,75 @@
+###  Публикация: 1271583   (149204) от 23.12.2018
+
+ProduKey 1.93 + Portabe [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149204.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProduKey - крошечная, бесплатная утилита, которая отображает ProductID и серийные ключи для MS-Office, Windows, Exchange Server и SQL Server, установленных на вашем компьютере. Данная программка может быть полезна, если вы потеряли свой CD-ключ, и вам надо переустановить какой-то из компонентов или ОС целиком.Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB97CDBFB81DA29AF0D63CA46BC3F3752CA950A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086789   (149226) от 25.12.2016
+
+ACDSee Ultimate 10.2 Build 878 RePack by D!akov [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149226.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Ultimate 10 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5396726C751909E4639CD1700E4047DFC0A420BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086634   (149230) от 25.12.2016
+
+Расплата / The Accountant (2016) BDRemux [H.264/1080p] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему «на хвост» садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США, Electric City Entertainment, RatPac-Dune Entertainment, Warner Bros. Pictures, Zero Gravity ManagementЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (Чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53859BC383A18453AF167AAA9C28E44107CDE652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519358   (149241) от 23.12.2021
 
 Enigma Virtual Box 9.90 Free [Multi/Ru]
@@ -6,7 +78,7 @@ Enigma Virtual Box 9.90 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149241.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ GOM Player 2.1.47 Build 5133 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149251.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ MAGIX Sound Forge Pro 15.0 Build 161 (x64) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149252.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Microsoft Visual Studio 2019 Enterprise 16.8.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149267.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:5A78D0A5F2E72B39C8406534D6A749F38A3F53ED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149270.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:44C8E0D2B80E899882F289C0650408FCA61FD70C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149274.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ MultiBootHDD 2018 22.12.18 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149280.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:FE57F8883FFCB509C58810E2ECF11C2CC7BDAE90
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149297.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Microsoft Visual Studio 2019 Community 16.8.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149298.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Adobe Character Animator CC 2019 2.0.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149302.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:FF1C07C34B4F3BC75F0954CC93D2A4BD5EA18DD5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149303.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:D68A0C88BF86BCC4A3C111E3FB73B7E3C0C7C601
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149312.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ IObit Smart Defrag Pro 6.6.5.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149319.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:5C7E70DA8113EF438487B4A10396B51FE9696C69
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149321.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Microsoft Visual Studio 2019 Professional 16.8.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149326.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ SPY - Jungle Mixtape (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149335.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149340.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ IsoBuster Pro 4.3 Build 4.3.0.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149353.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ Nox App Player 7.0.2.0000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149356.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:3EBE0C9BA7839B57511A01BE29176A991CBE1BB0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149395.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ Wondershare Filmora Х v10.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149409.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:6BFF72C450409F3C782D9ADB667058D659828DB6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149411.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ VueScan Pro 9.7.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149418.jpg" />
 </div>
 
 
@@ -550,79 +622,6 @@ VueScan - программа для работы со сканерами HP, Min
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDEAA3B73D09607E90A81B8D2CF9A9FB3C7C6D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271510   (149431) от 23.12.2018
-
-Universal USB Installer 1.9.8.6 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal USB Installer - бесплатная программа позволяет создавать загрузочные флешки из различных дистрибутивов Linux. Universal USB Installer очень проста в использовании - необходимо выбрать сборку, которая будет записана на носитель и указать расположение образа на жестком диске (присутствует возможность загрузить образ с официального сайта). Также присутствует (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE992BCB7E7666D81A948D30B74BFB84A4DE8EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519238   (149434) от 23.12.2021
-
-Krita 5.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Krita – профессиональный бесплатный растровый графический редактор как для любителей, так и  для профессиональных художников и иллюстраторов, использующих графические планшеты в процессе создания цифровой живописи как в домашних условиях, так и в игровых студиях, в VFX мастерских и дизайн-студиях.
-Программа имеет широкий функционал. Редактор поддерживает многослойную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0940BF9A7336D0DE63BA27FF1E3344EAA3D51D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086588   (149437) от 25.12.2016
-
-КВН-2016. Высшая лига. Финал (2016.12.24) HDTVRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132AFC4585FF1A60992D5EF4D907450CAB6EE951
 ```
 
 

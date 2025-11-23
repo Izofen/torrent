@@ -1,3 +1,178 @@
+###  Публикация: 968620   (152175) от 24.12.2015
+
+Kaspersky Software Updater 1.5.1.202 Beta [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Software Updater позволяет поддерживать в актуальном состоянии программное обеспечение, установленное на вашем компьютере. Быстрое сканирование проверит систему на наличие устаревших потенциально уязвимых программ, предоставив в результатах список необходимых обновлений, чтобы сохранить ваш компьютер в полной безопасности от возможных вредоносных атак с (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A66D99006184ABB8D6E60B417160358D88E2F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518719   (152177) от 21.12.2021
+
+Шрифты - Русские новогодние и рождественские шрифты [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник шрифтов из 25шт
+Русские новогодние и рождественские шрифты.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AECDE16AB037E58DDB1A0FA6B423895CA49B9C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271164   (152178) от 22.12.2018
+
+VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152178.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Preparty
+Продолжительность: 01:02:41
+
+01-Syntheticsax - Jingle Bells (Choir Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, Dance, Deep HouseПродолжительность: 03:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA48B61A5DF26F346FB8022D64AC521B4DE65FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086440   (152179) от 24.12.2016
+
+FastStone Image Viewer 6.1 Corporate RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152179.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - вьювер, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B79FA5C6A31221D7A5A2963F8A86F23023CFA3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738513   (152180) от 25.12.2013
+
+Современные чудеса. Запредельные самолеты / Modern Marvels. Extreme Aircraft (2004, 2007) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к взлету. В небе XXI века маневрируют запредельные самолеты всех видов. От реактивного истребителя из «Звездных войн» и сверхзвукового бомбардировщика, который считает себя истребителем, до крошечного летающего глаза в небесах. Вашему вниманию предстанут: F-35 Lightning II, YF-12, F-22, F-335 B, B-1, могущественный B-52. Летательный микроаппарат с глазом, способный нанести больше урона, чем взорвавшаяся бомба, а так же личные летательные средства будущего.Жанр: Документальный, авиация, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D345F77010CCCD64FBEA1CE313DDE60B7E47713A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347412   (152181) от 23.12.2019
+
+Блейк Пирс | Загадки Макензи Уайт (Книга 3). Прежде чем он начнёт охоту (2019) [MP3, Сергей Пухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «ПРЕЖДЕ ЧЕМ ОН НАЧНЁТ ОХОТУ», свежеиспечённый агент ФБР Макензи Уайт выпускается из Академии в Куантико и с головой окунается в неотложное расследование дела о серийном убийце.
+В национальном парке Западной Вирджинии находят тела женщин, приехавших на кемпинг. Парк огромен, и связи между убийствами нет.
+В то же время Макензи получает звонок из Небраски. Её просят (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C301C863772F6C6756DD7E13AE782C857C1D515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195146   (152183) от 27.12.2017
+
+Вернер Йегер | Пайдейя. Воспитание античного грека [2 Тома] (1997-2001) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знаменитого филолога-классика Вернера Йегера посвящена наиболее интересной и богатой событиями и идеями эпохе становления греческого воспитательного идеала.
+Книга представляет интерес для историков философии и культуры, а также для широкого круга читателей, интересующихся истоками европейского гуманизма.Жанр: Философия, культурологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242AF17E92E38FAE6C7E55E42B3031DB58F93C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434110   (152185) от 23.12.2020
 
 Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRip [H.265] [10-bit]
@@ -6,7 +181,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152185.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ magnet:?xt=urn:btih:24F886FB30A534D2168136874E09F96F0A7ECFD8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152187.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:9DEA1EDDF954C6A55FE00323FA7357F9B1CF7A36
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152188.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ CHIP - DVD приложение к журналу CHIP №1 (Январь 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152189.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ magnet:?xt=urn:btih:BBEF88EE8DD2441394ADE19A71D56E58ACAD8F75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152190.jpg" />
 </div>
 
 
@@ -126,7 +301,7 @@ magnet:?xt=urn:btih:1CAFF1422AC259608E3BBEEBFC7C01AC80AE9DAC
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152191.jpg" />
 </div>
 
 
@@ -151,7 +326,7 @@ magnet:?xt=urn:btih:78C8DC03E8FBAE6562253569741CDD1DBC0791AA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152192.jpg" />
 </div>
 
 
@@ -175,7 +350,7 @@ Glary Utilities Pro 5.134.0.160 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152193.jpg" />
 </div>
 
 
@@ -199,7 +374,7 @@ magnet:?xt=urn:btih:98D05E1309F9994BE81B03555083470BBCAE12C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152194.jpg" />
 </div>
 
 
@@ -223,7 +398,7 @@ Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152195.jpg" />
 </div>
 
 
@@ -250,7 +425,7 @@ magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152196.jpg" />
 </div>
 
 
@@ -276,7 +451,7 @@ Wolfram Mathematica 13.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152197.jpg" />
 </div>
 
 
@@ -301,7 +476,7 @@ magnet:?xt=urn:btih:C071C2A2755893224B56671E984D1BF2B77BB460
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152200.jpg" />
 </div>
 
 
@@ -327,7 +502,7 @@ News Explorer 1.9.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152201.jpg" />
 </div>
 
 
@@ -351,7 +526,7 @@ magnet:?xt=urn:btih:9E6703912DB2CB2DE84A7C483CF4F3BD41B576F5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152202.jpg" />
 </div>
 
 
@@ -375,7 +550,7 @@ magnet:?xt=urn:btih:30A55A09B75994ACB4A06851CBB45C3C1FEEDF31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152203.jpg" />
 </div>
 
 
@@ -399,7 +574,7 @@ magnet:?xt=urn:btih:E80BFE90193069E49EFAF2EB11D059FD29F56FB6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152204.jpg" />
 </div>
 
 
@@ -423,7 +598,7 @@ Rob Papen - BLUE II 1.0.3b VSTi, AAX (x86/x64) Repack by VR (Rev.2) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152206.jpg" />
 </div>
 
 
@@ -447,7 +622,7 @@ magnet:?xt=urn:btih:6FBE5E131CE63819696F5D1A103FABD9FC03985E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152207.jpg" />
 </div>
 
 
@@ -459,185 +634,6 @@ magnet:?xt=urn:btih:6FBE5E131CE63819696F5D1A103FABD9FC03985E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113B739A4E6CF9303BBD90FC746C4021D83807E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434220   (152208) от 23.12.2020
-
-Отроки во Вселенной (1974) DVDRemux [немецкое издание от IceStorm]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152208.jpg" />
-</div>
-
-
-###  Подробнее
-
-С планеты Альфа созвездия Кассиопея на Землю были посланы сигналы бедствия. В соответствии с проектом Виктора Середы туда отправляется экспедиция. Команда формируется из подростков не старше 14 лет, чтобы к концу полета экипаж составляли космонавты в самом расцвете сил. Но из-за безответственного поведения космического зайца Лобанова корабль оказывается у конечной (   Читать дальше...   )Производство: СССР / Центральная киностудия им. ГорькогоЖанр: Фантастика, комедия, приключения, семейныйРежиссер: Ричард ВикторовАктеры: Миша Ершов, Саша Григорьев, Владимир Савин, Владимир Басов, Ольга Битюкова, Дима Ледогоров, Ира Попова, Иннокентий Смоктуновский, Игорь Ледогоров, Наталья Фатеева, Анатолий Адоскин, Лев ДуровЯзык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734398093CC7299FE46185CD2A61CE28FA432806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672832   (152209) от 
-
-Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carach Angren — нидерландская симфо-блэк-метал-группа, образованная в 2003 году. Отличительной особенностью коллектива является концептуальность каждого студийного альбома, где лирическая составляющая основывается на хоррор-тематике: легендах о призраках, различных мифах, сказках и рассказах.2008 - Lammendam
-2010 - Death Came Through A Phantom Ship
-2012 - Where The Corpses Sink Forever
-2015 - This Is No FairytaleЖанр: Symphonic Black MetalПродолжительность: 05:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194963   (152211) от 27.12.2017
-
-Tenebrous Music - Label 3 Releases (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal, Dub Techno, Experimental>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Clout (06:49)
- 02. Black Room (09:10)
- 03. Forbidden Love (07:12)
- 04. Forbidden Thoughts (05:29)Жанр: Techno, Psy-Trance, Minimal, Dub Techno, Experimental |Продолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206901CB8B90D64C385DD1648DD605671E5785F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518756   (152212) от 21.12.2021
-
-Собачник / Mondocane (2021) HDRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_152212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таранто - город-призрак, в который никто не решается войти. Беднейшим остается борьба за выживание, а банды преступников ведут борьбу за территорию. Два тринадцатилетних подростка, которые росли вместе, мечтают присоединиться к одной из банд.Производство: Италия / Groenlandia, Minerva Pictures, Rai CinemaЖанр: Фантастика, боевикРежиссер: Алессандро ЧеллиАктеры: Алессандро Борги, Людовика Насти, Адриано Новелли, Лавиния Новелли, Деннис Протопапа, Барбара Рончи, Джулиано Сопрано, Федерика Торчетти, Джозафат ВаньиПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:55:26Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968622   (152213) от 24.12.2015
-
-Машина смерти / Death Machine (1994) DVDRip [H.264] [АVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боевой робот, запрограммированный только на уничтожение, вышел из-под контроля. Пульт управления этим чудовищем оказался в руках безумца-маньяка, ощутившего полную власть над людьми.
-Перед этим стальным чудовищем нет преград: огневые заслоны, бетонные стены, бронированные двери преодолеваются им без всяких усилий. Противостоять этому стальному монстру может только (   Читать дальше...   )Производство: Великобритания / Fugitive FeaturesЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Стивен НоррингтонАктеры: Брэд Дуриф, Эли Пугет, Уильям Хуткинс, Джон Шэриан, Мартин МакДугалл, Андреас Виснивски, Ричард Брэйк, Алекс Брукс, Стюарт Ст. Пол, Джеки СовирисПеревод: Авторский (С.Визгунов, С.Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEFB652BCDB6C3F77C8BFF9D0BB6DA17A0A9C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347550   (152214) от 23.12.2019
-
-Ричард Скарри | С утра до вечера в Городе Добрых Дел (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересно, а как устроен аэропорт? А как работает почтальон? Что происходит в огромном супермаркете? Что же взрослые делают на работе? Ричард Скарри помогает маленьким читателям заглянуть в мир самых разных профессий. Пробудить любопытство и интерес. Более полувека книги Ричарда Скарри читают дети во всем мире.
-Не ради одних только знаний пишет и рисует Скарри. Это (   Читать дальше...   )Жанр: Познавательная литература для детей, Развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBB0FD094A4DEB99232A7274D4DA93C83CCAA48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601235   (152215) от 30.12.2022
-
-Queen - A Kind Of Magic (1986) Japanese Edition [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision
-02. A Kind Of Magic
-03. One Year Of Love
-04. Pain Is So Close To Pleasure(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18AD7C20E8467CE9F7A046663E067934C729508
 ```
 
 

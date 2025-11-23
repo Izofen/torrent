@@ -1,3 +1,78 @@
+###  Публикация: 1708029   (113126) от 19.03.2024
+
+SiteSucker Pro 5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113126.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Rick CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB63C86E1992AA939B070C4FE3A30BF7DB5ABEF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708072   (113127) от 19.03.2024
+
+Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Haynes [4:13]
+02. Airto [6:11]
+03. Elvin Suite [12:17]
+04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708244   (113128) от 19.03.2024
+
+Hype 4 Pro v.4.1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CF2F0A8FA3C2456BC81A32B32104A7ED23230E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708028   (113129) от 19.03.2024
 
 Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +81,7 @@ Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113129.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113130.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113131.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ PullTube 1.8.5.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113132.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113133.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ AudFree Audio Capture for Mac 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113134.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113135.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Cardhop 2.2.17 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113136.jpg" />
 </div>
 
 
@@ -214,7 +289,7 @@ TunesKit Audio Capture 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113137.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ Lipz - Scaryman (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113138.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113139.jpg" />
 </div>
 
 
@@ -293,7 +368,7 @@ SiteSucker 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113140.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ EdgeView 4 v.4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113141.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Benny Golson - I Remember Miles (1992) 1996, Evidence [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113142.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113143.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Embrace Of Souls - Forever Part of Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113144.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:8F3BEB5A4DB170EB8E2C1332D587F78C38E2F4D3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113145.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ CompressX for Mac 1.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113146.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113147.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ NCH DreamPlan Plus for Mac 9.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113148.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ MWeb Pro 4.5.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113149.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ Tap Forms Organizer 5 v.5.3.41 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113150.jpg" />
 </div>
 
 
@@ -575,7 +650,7 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113151.jpg" />
 </div>
 
 
@@ -588,85 +663,6 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708013   (113152) от 19.03.2024
-
-Retrobatch Pro 2.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
-Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
-Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Flying Meat Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678AEBAF4112AAB52D487C76D5283FABB200C5C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708140   (113153) от 19.03.2024
-
-Александр Цеханович | Русский Рокамболь (2021) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113153.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русский Рокамболь» – роман Александра Цехановича, жанр классический детектив.
-
-Полон мрачных тайн уголовный мир Петербурга, причудливо соединяющий судьбы обитателей столичного дна и наследников лучших аристократических фамилий.Жанр: ДетективИздательство: ИДДКПродолжительность: 08:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C087D02B1AF3746389934B77312144A4DD947C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708171   (113154) от 19.03.2024
-
-Дельта-Оператор - Дельта-1 (1989) [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Нам не вернуться назад. (А.Кришта)
-02. Одиночный боец. (Б.Аксенов)
-03. Раб. (А.Арканов)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
 ```
 
 

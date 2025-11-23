@@ -1,3 +1,82 @@
+###  Публикация: 1708013   (113152) от 19.03.2024
+
+Retrobatch Pro 2.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
+Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
+Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Flying Meat Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678AEBAF4112AAB52D487C76D5283FABB200C5C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708140   (113153) от 19.03.2024
+
+Александр Цеханович | Русский Рокамболь (2021) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113153.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русский Рокамболь» – роман Александра Цехановича, жанр классический детектив.
+
+Полон мрачных тайн уголовный мир Петербурга, причудливо соединяющий судьбы обитателей столичного дна и наследников лучших аристократических фамилий.Жанр: ДетективИздательство: ИДДКПродолжительность: 08:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C087D02B1AF3746389934B77312144A4DD947C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708171   (113154) от 19.03.2024
+
+Дельта-Оператор - Дельта-1 (1989) [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Нам не вернуться назад. (А.Кришта)
+02. Одиночный боец. (Б.Аксенов)
+03. Раб. (А.Арканов)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708234   (113155) от 19.03.2024
 
 TechSmith Camtasia 2023 Studio 2023.3.10 [En]
@@ -6,7 +85,7 @@ TechSmith Camtasia 2023 Studio 2023.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113155.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ Folder Icons 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113156.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ Downie 4 v.4.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113157.jpg" />
 </div>
 
 
@@ -80,7 +159,7 @@ Dropshare 5 v.5.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113158.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ magnet:?xt=urn:btih:C2AA6F7E6662A8C5FB57AD46277B3DF41488D90D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113159.jpg" />
 </div>
 
 
@@ -130,7 +209,7 @@ GarageSale 9.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113160.jpg" />
 </div>
 
 
@@ -154,7 +233,7 @@ magnet:?xt=urn:btih:00BD0F9BF2D1AA53832876BB5173AA0830CE8C4D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113161.jpg" />
 </div>
 
 
@@ -178,7 +257,7 @@ magnet:?xt=urn:btih:A6167A01E25976A6D73B3C0FE1D8C6D17FC25EAB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113162.jpg" />
 </div>
 
 
@@ -203,7 +282,7 @@ Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113163.jpg" />
 </div>
 
 
@@ -230,7 +309,7 @@ magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113164.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ magnet:?xt=urn:btih:B0C0B10F15DED7D692398C0D777F24D1BE4594DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113165.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ Opera GX 107.0.5045.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113166.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ K-Lite Codec Pack Update 18.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113167.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ SSH Config Editor Pro 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113168.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ Firefox Browser 124.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113169.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113170.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ StaxRip 2.37.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113171.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ Finder Windows 1.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113172.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113173.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ Photo Studio PRO v2.7.3.2413 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113174.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ magnet:?xt=urn:btih:33A26EA5E40EB867A231692CC891EE3C201C0FE6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113175.jpg" />
 </div>
 
 
@@ -525,7 +604,7 @@ magnet:?xt=urn:btih:2731734982321637637CDEECC39C47EAD613EB06
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113176.jpg" />
 </div>
 
 
@@ -551,7 +630,7 @@ magnet:?xt=urn:btih:26419B34646790901DA0D04F353440E000F04C65
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113177.jpg" />
 </div>
 
 
@@ -565,85 +644,6 @@ magnet:?xt=urn:btih:26419B34646790901DA0D04F353440E000F04C65
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708170   (113178) от 19.03.2024
-
-Генри Слизар и др. | Единственная возможность (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113178.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Милт Кловиц не был маменькиным сынком, но кроме работы в рекламной конторе и книг фантастического жанра ничем не интересовался. Несколько раз он встречался с Наоми Уинклер, машинисткой из офиса, но дальше пары поцелуев дело не пошло.
-Но, однажды вернувшись домой, Милт обнаружил в своей квартире зеленого человечка.." (с)Жанр: Фантастика, ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 00:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3FF35003B82E9EF3E76FFB912671AC8FE5C96C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708005   (113179) от 19.03.2024
-
-Craig Erickson - 12 Albums (1992 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский блюз-роковый гитарист, добавляющий в свою музыку изрядную долю фанка и тяжелый гитарный фьюжн с характерным влиянием 70-х годов. Craig Erickson родился в американской глубинке в небольшом городке штата Айова. В детстве его окружали звуки джаза и классической музыки, поскольку отец Erickson, сам поклонник этих направлений, держал своего сына на музыкальной (   Читать дальше...   )Список альбомов:
-1992 - Roadhouse Stomp!
-1994 - Retro Blues Express
-1995 - Two Sides Of The BluesЖанр: Blues RockПродолжительность: 11:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0193A46BB480A6CDBD0FBC49F2ADC9B1DA8BFC79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707641   (113180) от 19.03.2024
-
-Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-Bring Your Love To Me
-A2-I Want You
-A3-One Day Fool
-A4-Life Can Be Some Better(   Читать дальше...   )Жанр: Pop, Electronic, DiscoПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 ```
 
 

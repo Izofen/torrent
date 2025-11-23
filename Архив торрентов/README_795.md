@@ -1,3 +1,77 @@
+###  Публикация: 1674083   (162241) от 04.11.2023
+
+4K Video Downloader + 1.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 11.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517764   (162249) от 16.12.2021
+
+Opera GX 82.0.4227.44 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97A95B46FC9AB995C189530867BE34ECC5CCF9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598436   (162272) от 19.12.2022
+
+Не звезди! / Menteur (2022) BDRip [H.264/1080p] [TS]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жером всегда врет, да так, что и глазом не моргнет! Он врет постоянно и с особым размахом: глядя прямо в глаза, он будет утверждать, что лично знаком с Мисс Мира, что он чемпион по карате и, по совместительству, астронавт. Но однажды Жером просыпается в мире, где вся его ложь становится правдой и все выдуманное начинает происходить с ним на самом деле.Производство: Франция / Gaumont, M6 Films, M6Жанр: комедияРежиссер: Оливье БарруАктеры: Тарек Будали, Арту, Полин Клеман, Катрин Осмален, Карим Белхадра, Луиз Колдефи, Бертран Юскла, Филипп Вие, Ги Леклюиз, Флоранс МюллерПеревод: Дублированный (TS)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced), Английские, Французские (Forced)Продолжительность: 01:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AE5C6604F5426E778B23DD8EBF2FF445043A73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598522   (162283) от 19.12.2022
 
 Topaz Gigapixel AI 6.2.2 RePack (& Portable) by elchupacabra [En]
@@ -6,7 +80,7 @@ Topaz Gigapixel AI 6.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162283.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Topaz Photo AI 2.1.0 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162289.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ IObit Uninstaller Free 11.2.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162293.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Pixelmator Pro 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162299.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Easy Data Transform 1.23.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162303.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ DVDFab StreamFab 6.1.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162304.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Spotify 1.2.0.1165 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162305.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ WiFi Scanner 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162310.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Prism 9 v9.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162315.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Luminar Neo 1.15.0.12363 (x64) Portable by conservator [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162317.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162322.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ Serial Box & SerialSeeker 11-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162325.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ Topaz Photo AI for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162331.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ NCH Debut Professional 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162339.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ MemTest86 10.1 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162343.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ Atrise Lutcurve 4.0.5 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162353.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ Dropshare 5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162359.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ Pro Microphone: Audio Recorder 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162360.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ Postico 1.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162363.jpg" />
 </div>
 
 
@@ -472,7 +546,7 @@ SignFlow - eSign PDF Editor for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162365.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ Typinator 8 v8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162367.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ MacPilot 12 v12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162375.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ Hyperkey 0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162376.jpg" />
 </div>
 
 
@@ -559,81 +633,6 @@ Hyperkey 0.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C02259C664D70E56BDD26D6D9C7851DC576021DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517712   (162377) от 16.12.2021
-
-HighTop 1.2.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162377.jpg" />
-</div>
-
-
-###  Подробнее
-
-HighTop - самый удобный способ работы с любимыми локальными папками, Google Диском или Dropbox. Вам больше не понадобится поиск окон Finder, скрытого рабочего стола или загрузки вкладок браузера.
-Проще говоря, HighTop - это представление ваших файлов в иде «дерева», которое интегрировано в macOS.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220DDBDDDD6E6CAB471238B8E420CD8E0F88D141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673832   (162382) от 04.11.2023
-
-Radiant Photo 1.1.2.327 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC430F1CB3917218B100474F915833B7710831F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433006   (162383) от 19.12.2020
-
-Application Wizard 4.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Application Wizard для Mac OS - Дает возможность быстрого доступа к приложениями, документам, папкам и дискам.
-Application Wizard позволит запускать, завершать и активировать приложения, запускать AppleScript и режим "одного приложения" для уменьшения беспорядка на рабочем столе.
-С Application Wizard так же можно извлекать и монтировать диски, просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC02925B5A73E6B4291FB593879CCCDDC57C8D0
 ```
 
 

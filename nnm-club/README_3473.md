@@ -1,3 +1,84 @@
+###  Публикация: 1721617   (109980) от 08.05.2024
+
+Richard Dean - Billionaire Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving Duck Blues (2:12)
+02. Billionaire Blues (2:28)
+03. Halfway There (3:07)
+04. Good Luck (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8B7D4E8A758B7E38CCDFEF91F44C94458C633D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721482   (109981) от 08.05.2024
+
+Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004-2024) (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bloodtale (00:01:30)
+02 - Tales from the North (00:04:31)
+03 - Slayer of Kings (00:05:13)
+04 - In the Name of Metal (00:04:25)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F501056DB53CD45BED6FBCF553DA830E8533194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721752   (109982) от 08.05.2024
+
+Gary Cain - Outside The Lines (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got The Blues (3:11)
+02. Resting On My Mind (3:14)
+03. Pretty (3:27)
+04. Ain't Giving Up (2:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD80D86AC31FB6F7BAA6E2D4305F5B4C2E1D910F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721588   (109983) от 08.05.2024
 
 Icecream Screen Recorder PRO 7.41 [Multi/Ru]
@@ -6,7 +87,7 @@ Icecream Screen Recorder PRO 7.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109983.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:3F8396BB87682EA279D6113C8C43F7D12B5BC88E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109984.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:AE9A2D9E09A3879CA8FA39AA380892122651D376
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109985.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ magnet:?xt=urn:btih:6E024F2ED86366A9F656E3D1FB80AD3901649269
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109986.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ n-Track Studio Suite 10.1.0.8667 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109987.jpg" />
 </div>
 
 
@@ -126,7 +207,7 @@ magnet:?xt=urn:btih:296F52231D61A307C1BC53F06DDD1D50266DF6EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109988.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ magnet:?xt=urn:btih:BCA47974EF6D546B966BC70C8BB8DF99041B13A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109989.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ magnet:?xt=urn:btih:EAC7FBAFE49576439F8EC0DA27FA0233B52F3682
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109990.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ Dug Masters - Teleport (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109991.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ Image Uploader 1.4.0 Build 5141 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109992.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Vivaldi 6.7.3329.26 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109993.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ magnet:?xt=urn:btih:C0AF754E0A06AE51A1F8AE231B963EEBF801AE23
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109994.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ magnet:?xt=urn:btih:8C8E0F4863105445ED31762AED07E1FFECECF167
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109995.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Hana Vu - Romanticism (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109996.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Velveteen Queen - Consequence of the city (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109997.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ Kee Avil - Spine (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rock pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109998.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ magnet:?xt=urn:btih:44A2925FE32DAEF7550CF4628570C0F5B909A2A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109999.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ magnet:?xt=urn:btih:61CE6E70EF4485EFB5A2F7C87EDE3EA4FADD47CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110000.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ Little Bobby - Dealing from the Bottom of the Deck (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110001.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ Skype 8.119.0.201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110002.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ Slimjet 43.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110003.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:557596326C8333270DCF7827E3275A45EFB5145E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110004.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ Sensual Lounge Music Universe, Romantic Jazz Music Club - Sex Before Noon: Morni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110005.jpg" />
 </div>
 
 
@@ -566,78 +647,6 @@ Sensual Lounge Music Universe, Romantic Jazz Music Club - Sex Before Noon: Morni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053957B97EEFF65ED6B797F72D600C8CD26A7416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721634   (110006) от 08.05.2024
-
-Дмитрий Леонидович | Попавший в некроманта (Книга 2). Сэр студент (2023) [MP3, Александр Воробьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так ли весело и просто учиться в магической академии, даже если ты имеешь титул, деньги и сильный дар? Если ты не готов принять роль сверчка, который тихо сидит на своем шестке, – у тебя проблемы.Или у твоих недоброжелателей проблемы.В общем, у кого-то точно будут проблемы.Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A79C8A23BA3E73447B5730DD18841D263033BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721589   (110007) от 08.05.2024
-
-Icecream Video Editor Pro 3.19 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Video Editor - простой редактор видео для Windows. Наша программа для монтажа видео позволит редактировать и создавать новые ролики из фото и видео. Добавляйте переходы, обрезайте видео, объединяйте видео и фото, добавляйте заголовки, фоновое аудио и визуальные эффекты.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33B8939D98A1930CAD57B353E55737BE84C218C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721649   (110008) от 08.05.2024
-
-Валерий Шарапов | Тени возмездия (2024) [MP3, Олег Томилин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Враг умен и хладнокровен. В его арсенале – логика, упорство и точный расчет. Он уверен, что знает, как победить нас в этой схватке. Но враг не учитывает одного: на его пути стоят суперпрофессионалы своего дела, люди риска, чести и несгибаемой воли – советские контрразведчики...Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6E4CFC95F3AE94AA4692C67331CFBDC77B3B7B
 ```
 
 

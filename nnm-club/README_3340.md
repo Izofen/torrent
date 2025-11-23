@@ -1,3 +1,84 @@
+###  Публикация: 1737361   (106522) от 17.07.2024
+
+Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watermelon [2:48]
+02. Little Joanie Walks [4:06]
+03. Two Brothers [3:32]
+04. I Should Care [4:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDCF301AD8EB5BA15A5C208D31F8B1C54156EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737365   (106523) от 17.07.2024
+
+Devastation Inc. - Beyond The Shape Of Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds Burst 00:53
+02. The Golden Horde 04:16
+03. Spear of Victory 03:43
+04. The Perfect Shape of Oppression 03:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE31DFA79A6C408A3F189EE80B98CD136EEC620C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737269   (106524) от 17.07.2024
+
+Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kadavar - немецкая рок группа из Берлина, основанная в начале 2010 года. Выбрав для названия своей группы немного измененное латинское слово «Cadaver» — переводится как «зомби» или нечто неживое, но выполняющее действия, свойственные живому существу, Kadavar отправились покорять музыкальный олимп. Черпая своё вдохновение в звучании рок-н-рола 70-х годов, группа воссоздала (   Читать дальше...   )--------------------------
+
+01. From Deep Within (9:33)
+02. In The Way (5:39)(   Читать дальше...   )Жанр: Vintage Hard Rock, Psychedelic Rock, Acid Rock, Stoner Rock |Продолжительность: 07:58:18 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9924E445BDCE80F2FBB06941191C5AD7694A6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737478   (106525) от 17.07.2024
 
 Sandboxie plus 1.14.4 [Multi/Ru]
@@ -6,7 +87,7 @@ Sandboxie plus 1.14.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106525.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ CudaText 1.215.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106526.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ magnet:?xt=urn:btih:687D852A82B662917333178A8D4CA5A31889A565
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106527.jpg" />
 </div>
 
 
@@ -79,7 +160,7 @@ magnet:?xt=urn:btih:FB87D68A4B561D4B0BEA1EA9E4736C5CD8746A43
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106528.jpg" />
 </div>
 
 
@@ -106,7 +187,7 @@ Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106529.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:6EB7A76B65DA2BD52CADD17E7263B2BB80ED5F78
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106530.jpg" />
 </div>
 
 
@@ -157,7 +238,7 @@ magnet:?xt=urn:btih:E2111C508790DF5EFD8127D81A7D3573C25F3D96
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106531.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106532.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ Remi Wolf - Big Ideas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106533.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ Sandboxie 5.69.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106534.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ Alex Morning.Vibes - Acoustic Blues To Ease Your Soul (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106535.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106537.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ magnet:?xt=urn:btih:3DBEF8F4795A2FC4EAFA9E480B8AC230E593D10F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106538.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ Catfish John Tisdell - Ain't That the Blues (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106539.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:888A1DC9004B3B56183F7E142C36C1115C7DD827
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106540.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106541.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106542.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106543.jpg" />
 </div>
 
 
@@ -497,7 +578,7 @@ Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106544.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106545.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ Dwayne Dopsie, Zydeco Hillraisers - Now Is The Time (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106546.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Dave Alvin & Jimmie Dale Gilmore feat. The Guilty Ones - TexiCali (2024) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106547.jpg" />
 </div>
 
 
@@ -592,87 +673,6 @@ Dave Alvin & Jimmie Dale Gilmore feat. The Guilty Ones - TexiCali (2024) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C35503A554DA94C7E41EE5781918010E4B389C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737059   (106548) от 16.07.2024
-
-Denise La Grassa - Sundown Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundown Rising (2:42)
-02. None of Your Business (3:35)
-03. Hope in Love (3:49)
-04. Key to the Highway (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CF07F0E9A8A0C08D6497BAB63E5635CDC981E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737046   (106549) от 16.07.2024
-
-Blues Corner - Lonely Mile (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Job Aint Worth My Life (3:48)
-02. Moving Forward (4:04)
-03. In a Corner of My Heart (3:49)
-04. Blues Band (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB44AA0823544CF31E2D76DAC4BDBC428AF888E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737055   (106550) от 16.07.2024
-
-Craig Pilo & Jeff Pescetto - Comfort in the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Some Answers (3:00)
-02. I Can't Wait Til the Sun Comes Out (2:36)
-03. Kaddia (3:42)
-04. I Got Something to Say (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44747C71085F04B2D0CF967E7B9E07C8888578B7
 ```
 
 

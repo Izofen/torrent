@@ -6,7 +6,7 @@ PrivaZer Pro 4.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52767.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skype 8.122.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52777.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52796.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 126.0.6478.115 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52810.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Memento Database + ключ активации 5.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52817.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:33C6074F44BA365D20E3463789176CA86EF3DD49
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52821.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Google Chrome 126.0.6478.115 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52829.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9703F9278DB4696E1AF8E07067BEC18EA0012171
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52835.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:CC8EA2D7C05B0DB02B612509EA12DE475B10A9FC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52838.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ O Launcher 12.3 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52844.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ IPTV Pro v8.0.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52845.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe After Effects 2024 24.5.0.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52854.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CA47AA9515BA3363130983016F43C1C636DD26D6
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52862.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Media Encoder 2024 24.5.0.50 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52867.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ CCleaner 6.25.11093 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52869.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Google Chrome 126.0.6478.62 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52874.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ ApowerREC 1.7.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52876.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6171F56278DCA6E40FA9E93B72F55EE4609DF15B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52909.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.0 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52910.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ WinSCP 6.3.4 Build 14955 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52911.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ LibreWolf 127.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52914.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.2 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52926.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PotPlayer 240618 (1.7.22260) (unofficial) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52930.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Avidemux 2.8.2 Nightly (r240531) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52932.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AIMP 5.30 Build 2555 RePack (& Portable) by elchupacabra (Extended + Standard) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52947.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ JetBrains PyCharm Professional 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52948.jpg" />
 </div>
 
 

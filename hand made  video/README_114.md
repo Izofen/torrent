@@ -1,3 +1,75 @@
+###  Публикация: 1640810   (211156) от 19.06.2023
+
+Злой дух Ямбуя (1977) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211156.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Григория Федосеева, основанной на реальных событиях. Первые послевоенные годы. В таежных лесах Восточной Сибири проводятся геодезические исследования. В лагере экспедиции готовятся к возвращению на базу. Радиограмма из штаба о том, что на гольце Ямбуй бесследно исчез наблюдатель, заставила изменить планы.Производство: СССР, киностудия им. М. ГорькогоЖанр: триллер, драма, приключенияРежиссер: Борис БунеевАктеры: Ольга Ензак, Родна Ешонов, Юрий Заборовский, Феликс Сергеев, Александр Кавалеров, Владимир Зимин, Владимир Круглов, Зинаида ПикуноваПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B61D924D8D762D7FBFBCB4C00817B08BA71645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567335   (211164) от 04.08.2022
+
+Апокалипсис / Apocalypto (2006) BDRip [H.264/2160p] [Handmade upscale AI] [DVO]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211164.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме показана жизнь народа майя до прихода испанских конкистадоров: жестокие войны с соседними племенами, человеческие жертвоприношения, загадочные мистические ритуалы. В один день рушится мир индейца по имени Лапа Ягуара. Его деревню захватывает соседнее племя, уничтожая хижины, забирая местных жителей в плен. Его ведут в город, чтобы принести в жертву богам. (   Читать дальше...   )Производство: США / Icon Entertainmnet International, Icon Productions, Touchstone PicturesЖанр: боевик, триллер, драма, приключенияРежиссер: Мэл ГибсонАктеры: Руди Янблад, Далия Эрнандез, Джонатан Брюэр, Моррис Бердйеллоухэд, Карлос Эмилио Баез, Рамирез Амилкар, Израэл Контрерас, Израэль Риос, Мария Исабель Диас, Эспиридион Акоста КачеПеревод: Двуголосый профессиональный, авторский одноголосыйЯзык озвучки: Руссский, МайяСубтитры: русский, английский, украинскийПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78F52DCFEB7DF2942CEE6CA26A87005262BF794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640273   (211269) от 17.06.2023
+
+Возвращение с орбиты (1983) SATRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211269.jpg" />
+</div>
+
+
+###  Подробнее
+
+На орбитальной космической станции из-за метеоритного потока происходит авария, в результате которой командир корабля получает тяжелое ранение. Его необходимо срочно доставить на Землю и продолжить испытания. Сделать это может только экипаж Кузнецова-Мухина, много лет готовившегося к полету...Производство: СССР, Киевская киностудия им. А. П. Довженко, ТО «Радуга»Жанр: фантастикаРежиссер: Александр СуринАктеры: Юозас Будрайтис, Виталий Соломин, Александр Пороховщиков, Тамара Акулова, Игорь Васильев, Валерий Юрченко, Михаил Чигарёв, Игорь Дмитриев, Галина Долгозвяга, Владимир КостюкПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A592D133E7ADCC9D05943B9F7B6C65D7FB25ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640061   (211403) от 16.06.2023
 
 Баллада о Беринге и его друзьях (1970) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211403.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211403.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:FAC874B30C49F81B37676823300242D93010881C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211448.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211448.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:49DA25CDDDC65ACD1DBAFA5770EB1D30450F2D7C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211535.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:06239A2A1814C42ED87BED5381EFE1EBFF7DD1B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211550.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211550.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:7F53FF2AE264B5A9AB691A02A4291A034187BF62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211555.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:B57EDF3944E5008FCE360D9EAC8CB5EE3C9DD7FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211562.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211562.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:4F38238968AEDA2C625FBF413C8109D93CF3119E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211578.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211578.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:D36FF1ED1398A9CA0647E6625BC730CCAAFCED49
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211614.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211614.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:496C04FCECA7C55CD380B509E2A19082F13BA941
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211644.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211644.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:9D5D82D0C1DAB479A42BFD7B6AAFB26338DDB005
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211686.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211686.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:98E2221968ADA115947597CDB5DBBAC2663207C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211708.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211708.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:817DC3476EFADE21096954B625EFE7E27F957968
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211794.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:049356601AF0CD50A051AB1591FA3CB966E7C471
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211965.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211965.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:B7E0F38211788DDF9D73839DB912DE32E288282A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211972.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_211972.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:C2D07B6D05D17D2432E921635C7C3A4A47FE98AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212061.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212061.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:C20C0D0562723CC85F5E2FBCCBDEEA3EFFB1F0F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212064.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:DE343DB92AC47A1A0426F5CDDE179FC9064A120F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212325.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:01B9084FB309997F4E3E39EA9A2C7D5E1F088E8F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212510.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212510.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:9E1D3DC993335732D25B0164D2117933C6219857
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212820.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212820.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:DA8576758E1A6834E5F20B89D3689DB5CE25A29F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213037.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213037.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:B6CE72DA85207679B0FB9C9A8AC5049CA4E7E17C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213293.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213293.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:1A5F23B00DA7B9EC3E4B3B7A2464EFFF179173FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213410.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213410.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:B26AD68FB7E3B4F3333E347F37A3358763E514E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214631.jpg" />
 </div>
 
 
@@ -556,81 +628,6 @@ magnet:?xt=urn:btih:B26AD68FB7E3B4F3333E347F37A3358763E514E9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73E334F6AEF3B280C3AF21A74DB573D6D4F40FAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269650   (217482) от 16.12.2018
-
-Bryan Adams - Video Collection от ALEXnROCK (2018) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это почти полное собрание клипов великого музыканта, а так же бонус дополнение, лучшие концертные выступления. Ремастеринг видео и звука. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Bryan Adams - Intro
-01 Bryan Adams - All I Want Is You
-02 Bryan Adams - Summer Of '69
-03 Bryan Adams - (Everything I do) I do it for you(   Читать дальше...   )Жанр: RockПродолжительность: 03:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E2FC9ACE7385BC34D722F778DFA39371862F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737589   (217524) от 22.12.2013
-
-Кейт и Лео / Kate & Leopold (2001) HDRip [Hand Made Director's Extended Cut]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сквозь прореху во времени Лео, герцог Олбанский, попадает в будущее, а точнее — в современный Нью-Йорк. Обаятельный джентльмен XIX столетия неожиданно оказывается в стремительном мире, где успешно завоевывает высоты деловая женщина — Кейт Маккей. Невероятное случилось, и они встретились! Теперь Лео нельзя оставлять без присмотра ни на минуту! Во всяком случае, до (   Читать дальше...   )Жанр: Комедия, Мелодрама, ФэнтезиРежиссер: Джеймс МэнголдАктеры: Мег Райан, Хью Джекман, Лив Шрайбер, Брекин Мейер, Наташа Лионни, Брэдли Уитфорд, Пэкстон Уайтхед, Сполдинг Грей, Джош Стэмберг, Мэттью СуссманПеревод: Дублированный, со вставками двухголосого на расширенные местаПродолжительность: 02:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE71C35D005021764596292E3397482CF5E632E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586991   (219253) от 11.12.2012
-
-Тор / Thor (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D] [Hand Made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпическое приключение происходит как на нашей планете Земля, так и в вымышленном королевстве богов Асгарде. В центре истории — Могучий Тор, сильный, но высокомерный воин, чьи безрассудные поступки возрождают древнюю войну в Асгарде. Тора отправляют в ссылку на Землю, лишают сил и заставляют жить среди обычных людей в качестве наказания…Жанр: Фэнтези, Боевик, ПриключенияРежиссер: Кеннет Брэна, Джосс УидонАктеры: Крис Хемсворт,  Натали Портман,  Том Хиддлстон,  Энтони Хопкинс,  Стеллан Скарсгард,  Кэт Деннингс,  Кларк Грегг,  Колм Фиор,  Идрис Эльба,  Рэй СтивенсоПеревод: ДублированныйПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 

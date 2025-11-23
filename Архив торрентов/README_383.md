@@ -6,7 +6,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89484.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89491.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Botanicula (P) [Milti12/+] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89500.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:207CE82FA9C8877862E6F696DF209934EEC1DD4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89507.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:207CE82FA9C8877862E6F696DF209934EEC1DD4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89525.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Sniper Elite [Ru/En] (RePack) 2005 | Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89530.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Весенний заряд. Треки то,что надо! (2012) [MP3|2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89556.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:6751F41C483360BEF566AF5F885C88BAB2ECCD05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89565.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:3AA42618E458DB735ED0E2A463BEBE5E3C3565F0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89571.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Lovelock - Burning Sound (2012) [MP3|320 кб/с]<Tech House, Electronic, Nu Dis
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89574.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EFA6FC5EA9072BB0C221301DD188C90E7853C43D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89586.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cookie Monsta - Riot (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89588.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ HyperSnap 7.14.01 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89589.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ HyperSnap - инструмент для захвата изображения, �
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89592.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:3B8FFA0367AB59BC207049A586FB971D94EE3705
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89602.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89604.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89607.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:CB8CA40340548B94EA21515B5EB0B5F8D8ECDF87
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89620.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:CB8CA40340548B94EA21515B5EB0B5F8D8ECDF87
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89621.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC Radio 1 - Essential Mix (1993) [MP3|128-192 кб/с]<House, Electro-House, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89634.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:4731A0CC6BF9360E39840732CCEA28C4D39F7BCA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89648.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:7420459208DF1D329B75936752EBA5AC4225F34F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89658.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7420459208DF1D329B75936752EBA5AC4225F34F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89669.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Everimaging Great Photo 1.0.0 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89673.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Everimaging Great Photo— новый универсальный фотоком�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89675.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Everimaging Great Photo— новый универсальный фотоком�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89684.jpg" />
 </div>
 
 

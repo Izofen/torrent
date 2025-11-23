@@ -1,3 +1,51 @@
+###  Публикация: 1628599   (199458) от 23.04.2023
+
+Роман Борсук | Обретение силы. Метод Сильвы для мужчин (2008) [MP3, Роман Борсук, Галина Борсук]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - путеводитель по жизни для настоящего мужчины. Прочитав ее и выполнив упражнения, приведенные на прилагаемом компакт-диске, вы освоите основы тантрического секса и сможете застраховаться от любовных неудач, узнаете шесть основных правил общения с женщиной и научитесь понимать "женский язык". А многочисленной армии желающих бросить курить поможет (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ADB632B0B39B89B85E60A2EEC90057F9E65ACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626099   (199994) от 13.04.2023
+
+Никита Самохин | Латынь по-пацански (2020) [MP3, Павел Курилин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осторожно: после прослушивания могут возникнуть побочные эффекты в виде разжигания интереса к Древнему Риму и латинскому языку! Что вспоминается в первую очередь, когда вы слышите про Древний Рим? Рем, Ромул и волчица? Цезарь и галлы? Нерон, сжигающий Рим? Гладиаторы в Колизее? Что из этого было раньше, а что позже? И как все было на самом деле? На все эти вопросы (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 04:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ABDE338AC7B06B7A50410B7F5A369B25ED2468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625896   (200012) от 12.04.2023
 
 Патрик Кинг | Эмоциональный интеллект (2022) [MP3, Дмитрий Шабров]
@@ -6,7 +54,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200012.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:CEC8D34436014EE0C4ADA15F9949AA6827DBE222
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200046.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200046.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:8423F5E4E5453F75B59B0166E782F02577139B0F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200472.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200472.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ magnet:?xt=urn:btih:187746DC4123F848AEE03A5C20C477DD9D8490BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200544.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:F7DD6270EF0D1AD6E3ECF7C4D7F0B448B1B05062
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200547.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200547.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ magnet:?xt=urn:btih:83A4BFEC5CED9A00B42CEC3EF03ED965E38188E8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200784.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200784.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ magnet:?xt=urn:btih:37ACF34509341CB1D2D1A5C0B6B3EE9F4990044A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201284.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201284.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ magnet:?xt=urn:btih:870F2CE4527DF92551A3BED7255211331CF36482
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201381.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201381.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ magnet:?xt=urn:btih:1A9ACECBE9EFF2D1AE7310B2C5750D6D8BB67D4B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201763.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201763.jpg" />
 </div>
 
 
@@ -227,7 +275,7 @@ Sir A. Conan Doyle / Артур Конан Дойль | Sherlock Holmes. Short S
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201823.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_201823.jpg" />
 </div>
 
 
@@ -254,7 +302,7 @@ magnet:?xt=urn:btih:D0BB5A34813E916FDDC74672E9939012687E0FDE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202407.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202407.jpg" />
 </div>
 
 
@@ -278,7 +326,7 @@ magnet:?xt=urn:btih:B83EC63553956E1EA266E19328E6D0C4C5C74BE5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202408.jpg" />
 </div>
 
 
@@ -303,7 +351,7 @@ magnet:?xt=urn:btih:DDC6C64AE70280295C301A3071F30A97ECEE3404
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202761.jpg" />
 </div>
 
 
@@ -327,7 +375,7 @@ magnet:?xt=urn:btih:7EDB16F6B74A5F9A1AA835C56518883564289F22
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202830.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202830.jpg" />
 </div>
 
 
@@ -351,7 +399,7 @@ magnet:?xt=urn:btih:47D228BD36564CE140342E4223882F83457109C6
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203096.jpg" />
 </div>
 
 
@@ -375,7 +423,7 @@ magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203130.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203130.jpg" />
 </div>
 
 
@@ -399,7 +447,7 @@ magnet:?xt=urn:btih:293CE8E014228F0D1B8D58D9FF301DF6F1423DC4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203361.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203361.jpg" />
 </div>
 
 
@@ -424,7 +472,7 @@ magnet:?xt=urn:btih:21CBD27705B1A496AD739425A278EA9CD57ECFA9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203637.jpg" />
 </div>
 
 
@@ -448,7 +496,7 @@ magnet:?xt=urn:btih:6C2EB94FCF4676785EFA19FE61EAA754AC3A59AE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203666.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203666.jpg" />
 </div>
 
 
@@ -472,7 +520,7 @@ magnet:?xt=urn:btih:1CF6B8846490988B6EA77753FF6B520D8623736F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203953.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203953.jpg" />
 </div>
 
 
@@ -497,7 +545,7 @@ magnet:?xt=urn:btih:3B40AB7DAF4DF0AF907C775FE68A20D44892B1E7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204137.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204137.jpg" />
 </div>
 
 
@@ -521,7 +569,7 @@ magnet:?xt=urn:btih:BAEABA446857F4CFF2B65CB59A41A492F8E04997
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204153.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204153.jpg" />
 </div>
 
 
@@ -545,7 +593,7 @@ magnet:?xt=urn:btih:E4C856DBFDF2967100C88E440411333CBF322E18
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204285.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204285.jpg" />
 </div>
 
 
@@ -569,7 +617,7 @@ magnet:?xt=urn:btih:A105C7391C7F35560E6733CB60877EFA68F8F7E5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204993.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204993.jpg" />
 </div>
 
 
@@ -581,54 +629,6 @@ magnet:?xt=urn:btih:A105C7391C7F35560E6733CB60877EFA68F8F7E5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF46E930E3076CDD9888E08695E1F4EB28959B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654482   (205173) от 21.08.2023
-
-Александр Свияш | Советы брачующимся, забракованным и страстно желающим забраковаться (2019) [MP3, Марина Сушицкая]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь, брак, семья, секс – неотъемлемая часть жизни любого человека. Они служат источником радости, вдохновения, счастья. Но и они же могут стать причиной бесконечных страданий. Почему так происходит? Потому что люди не знают тех простых закономерностей, которые управляют нашим поведением, неосознанно относятся к выбору, предъявляют чрезмерные требования к любимому (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 11:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F16A554BDC33354D7F06A3010787512618231DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654092   (205346) от 19.08.2023
-
-Елена Тамазова | Ты стоишь больше (2023) [MP3, Люба Петрова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите повысить свой доход, не меняя работы, и не нагружая себя дополнительными обязанностями? Вложитесь в свою профессиональную репутацию. Сделайте так, чтобы вас знали и ценили не только внутри компании, но и за ее пределами. Повысьте свою капитализацию на рынке труда. В основе программы Елены Тамазовой, бизнес-тренера и коуча с 15-летним опытом работы в сфере (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 07:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D3D4C1B9E16E06F1FC4C438F021D298B08332A
 ```
 
 

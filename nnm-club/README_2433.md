@@ -6,7 +6,7 @@ Animal Planet: Дом для рептилий. Агамы Дикого Запа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DA182805136EF494AF1435A853934855843E27DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63624.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63625.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0A5FA5497CF9652F3F48CEE1ABC78D20D6BD3723
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63626.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8A9DF3D810EBBDFC621F8C9FABA9976990C7E763
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63627.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A0113508E65E792292845802F11E10A85C754002
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63628.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:54E9FF2D90D98F7FAB33AE080B59B0F0A30C1522
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63629.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F4B288CFC60940B3E1C0699C4890C6D171FD314A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63630.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ABC2AF4AE83EAEF5D6835F71AB90E450FB80E2A6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63631.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4ED2AF860ADD270472415C451033986D44DD5E66
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63632.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ DefenderKiller 11.3 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63633.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3B522867F0E74DD918CD4EADACF4D1908A497A1F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63634.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A85FCF540180114ECB72C262BD5175AA7F58F245
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63635.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Animal Planet: Живой или вымерший. Флоридский черн
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63636.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:64A6358BBE9EA3657CB77B68C0C64519C7E72B79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63637.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:00EBDDCD28BE6B312FAFD4E4B5FF8D9D811453B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63638.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:EAE8839F4CC9EF8066FE6EA35D67634EF61D7A1A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63639.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AEC013FCCA454837708A455D19512611D05BE2BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63640.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5048B1936F8E3108E5ECEC8EE2D70FA257F3687C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63641.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63642.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:596274ED5FB7EA4DCEC5AB6F6F6189C80C628F1C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63643.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CDCBC9E344E7BD175D7D6ED2B9446E299EC4F924
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63644.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.08 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63645.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63646.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:4708007C10BBAC655F7DB0C081BEB74B06F3D7CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63647.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4708007C10BBAC655F7DB0C081BEB74B06F3D7CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63648.jpg" />
 </div>
 
 

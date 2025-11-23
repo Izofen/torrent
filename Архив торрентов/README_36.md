@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13210.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander 11.55 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinRAR 7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13239.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FFC71F34519DCD94D84533B830C42EE10A57345F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13240.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ StartAllBack 3.9.12 build 5283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13291.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Aru Majo ga Shinu Made | Once Upon a Witch's Death | Пока ведьма не 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13296.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ kiloHearts Subscription 2.4.1 VST/VSTi, VST 3/VSTi 3, AAX (x64) RePack by R2R [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13306.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:635D6BE16534E496AAB81845B88AB1387DFB8BE5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13318.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe Photoshop 2025 26.8.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13330.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe Photoshop 2025 26.8.1.8 Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13334.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ StartAllBack 3.9.12 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13336.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ IK Multimedia - T-RackS 6 6.2.1 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13366.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13373.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Fan Control V227 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13375.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ OCCT 14.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13376.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Imagine 2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13377.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Telegram Desktop 5.15.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13379.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:40E5E5BEC20502A8FBD7F275406C7701D1E497BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13382.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wise Disk Cleaner 11.2.4.844 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13386.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ HWiNFO 8.28 Build 5770 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13401.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.17.6 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13405.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:42153FC60D73BCEF0D115D1184820914CCF46BF1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13409.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ CCleaner 6.37.11523 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13414.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Tor Browser Bundle 14.5.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13429.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WinRAR 7.12 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13445.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ LazyMedia Deluxe v3.388 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13452.jpg" />
 </div>
 
 

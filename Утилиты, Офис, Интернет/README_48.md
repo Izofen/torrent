@@ -6,7 +6,7 @@ TrayStatus Pro 4.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162040.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MyLanViewer 6.6.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162092.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Any Video Downloader Pro 9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162179.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows EducationPack 19.11 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163350.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ChromePass 1.58 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163842.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Clipboard Fusion Pro 6.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164172.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:675B6DA473600F91072BF6EB4BC53169CEDE917E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164211.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Wi-Fi Scanner 4.7.1.189 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164797.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ YTD Video Downloader Pro 7.6.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164908.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SiSoftware Sandra Lite 20/21 R25 (версия 31.137) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164925.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165694.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166371.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hetman Partition Recovery 4.5 Unlimited Edition Portable by FC Portables [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167263.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vkontakte Online 6.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168779.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wondershare PDFelement 12.0.7.3749 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169034.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Allway Sync 20.2.1 Pro [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169361.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ SoundPad 3.3.2.0 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170065.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:CCAA69B76ECA9A994DEE62EF18E038480037B59A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170139.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ True Burner 9.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170913.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ O&O Defrag Professional + Server 30.0 Build 1069 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170944.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sumatra PDF 3.5.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171140.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171143.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171620.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ StrokesPlus.net 0.5.7.8 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171890.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172058.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172248.jpg" />
 </div>
 
 

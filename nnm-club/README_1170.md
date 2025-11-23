@@ -6,7 +6,7 @@ Aiarty Image Enhancer 3.1 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30773.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F2E9EEA78828A43E6637C76E2B02192917681A0B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30774.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - All About Blues Music (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30775.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Nu Disco (2025) [MP3|320 Kbps] <Nu Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30776.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Wise Care 365 Pro 7.1.1.694 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30777.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:835E504DBF029D82545A8272A06D358A93B50800
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30778.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30779.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30780.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:5F9C6D15A46B3ECF63D428B98050237DE70CF3D7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30781.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:1E5F115B2C2C9327750AFC3C18A50FB4036C9E72
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30782.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Pop Hits 2000 - 2024 - 100 Best Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30783.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:7DE6FDD2220E90276FBD0ABC834DAFB517802996
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30784.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:AB6399361FA4D9EE7CC516C09357EDCBC5103697
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30785.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:CEB4501588833042257E178FDF2C49CE4C1315EA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30786.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B6CA132BD78BDA68E2369A1827B7D824F8D0E797
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30787.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Topaz Gigapixel AI 8.1.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30788.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:FF01A804CA00B6F3ED789F45DA0160EDE40081EE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30789.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F95E5D0769E590ECF5CB76200A0FFDC5546E3B7F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30790.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7594CB7429E4C21F0E4A0B6E3EAA00B5E1269ED7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30791.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:9E2B5957DC2F09F505E2C36AFC07D132724FD51C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30792.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E7ED0871397993BFE98DABA20D36EF3EF3C978A8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30793.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:0BDE851CEB100D4FD5859A63FDB47728730B4F6C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30794.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:4A5EFB8BCD024F6C8D290839934D19003A275E27
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30795.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FastStone Capture 11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30796.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:C415FFF76EB118DF3AEFC523A25C58B153487378
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30797.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:FFA16ADD0A142BF6F0AC04E7DC81AB6599D04655
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30798.jpg" />
 </div>
 
 

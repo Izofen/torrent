@@ -1,3 +1,79 @@
+###  Публикация: 1680121   (134621) от 28.11.2023
+
+Convusic for Mac 1.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Convusic позволяет автоматически открывать ссылки с Apple Music, Amazon Music, Deezer, Pandora, Spotify, Tidal и YouTube Music в любом другом музыкальном приложении, не пошевелив и пальцем.
+После загрузки Convusic и настройки его на предпочитаемый музыкальный сервис ссылки с любого другого музыкального сервиса будут автоматически открываться в выбранном вами приложении. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2022Разработчик: © 2021-2022 Varun SanthanamПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C640491BDE1DA5D5D4DD95765AA12311FFF430F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680286   (134623) от 28.11.2023
+
+Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Народная [00:04:33]
+02. Нахт [00:04:12]
+03. Дождь [00:03:45]
+04. Манка [00:03:26](   Читать дальше...   )Жанр: Progressive Metal, GrungeПродолжительность: 00:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5E3378724EB967704168598A13B6B4B8506195
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593677   (134624) от 24.12.2012
+
+Работы художников - Художник John Silver
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Художник John Silver
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06B7F711759890EF126FC91D46094819A7940EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680262   (134625) от 28.11.2023
 
 Bike Outliner for Mac 1.17.2 [En]
@@ -6,7 +82,7 @@ Bike Outliner for Mac 1.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134625.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Silverbones - Brethren Of The Coast (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134627.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:69A67B9052020B0019F24D7B365D18015210A346
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134628.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Cisdem ContactsMate 6 v.6.7.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134629.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:805BF495DC154D57BC6E5F07641C8EB5823FA3E8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134630.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ ZoneClock for Mac 3.65 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134631.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ Arturo O'Farrill - Legacies (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134633.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ Of Darkness - Missa Tridentina (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134634.jpg" />
 </div>
 
 
@@ -209,7 +285,7 @@ magnet:?xt=urn:btih:7338A9061CADD692D65B007020C1D2DA9A6268E9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134635.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ magnet:?xt=urn:btih:E764300FC8D3A6A98DFB5DAB95ABF1E84B907753
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134639.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ magnet:?xt=urn:btih:9B489B177E222C8C723B07D622BC88E85297A858
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134640.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ White Heat UK - White Heat Perfect Storm (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134642.jpg" />
 </div>
 
 
@@ -310,7 +386,7 @@ magnet:?xt=urn:btih:624424595B7F92D71D002BDCCD9B486BD7A9A31F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134643.jpg" />
 </div>
 
 
@@ -334,7 +410,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134644.jpg" />
 </div>
 
 
@@ -361,7 +437,7 @@ Sonus Mortis - Of Red Barren Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134645.jpg" />
 </div>
 
 
@@ -388,7 +464,7 @@ wordCount 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134646.jpg" />
 </div>
 
 
@@ -413,7 +489,7 @@ BatchOutput PDF 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134647.jpg" />
 </div>
 
 
@@ -438,7 +514,7 @@ Dropzone 4 Pro v.4.80.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134648.jpg" />
 </div>
 
 
@@ -463,7 +539,7 @@ Movavi Video Editor 24.0.2.0 (x64) Portable by 7997 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134652.jpg" />
 </div>
 
 
@@ -487,7 +563,7 @@ magnet:?xt=urn:btih:9F9D47929454A6C9C18F58AE457710E12FD70FC3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134653.jpg" />
 </div>
 
 
@@ -512,7 +588,7 @@ magnet:?xt=urn:btih:F7CA420089A61A0DF7012F46756C12C5D75E15E8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134654.jpg" />
 </div>
 
 
@@ -537,7 +613,7 @@ magnet:?xt=urn:btih:741E1555A4A492819C82B719F3ACE70564A3BF67
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134656.jpg" />
 </div>
 
 
@@ -561,7 +637,7 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134657.jpg" />
 </div>
 
 
@@ -575,80 +651,6 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE7E97F6E043669AB8FD4115548D8ECDBD146C31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679207   (134658) от 27.11.2023
-
-Одержимые злом / Cuando acecha la maldad / When Evil Lurks (2023) WEB-DLRip [H.264/1080p] [MVO]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-фермеры Педро и Хайме обнаруживают в лесу изуродованное тело чистильщика, который, как выясняется, направлялся в соседний дом убить одержимого. Когда имеешь дело со злом, нужно соблюдать определённые правила, поэтому братья вместе с соседом Руисом решают отвезти заражённого подальше и там оставить, но тот по дороге исчезает. На следующий день демоническая (   Читать дальше...   )Производство: Аргентина, США / Machaco Films, Aramos Cine, ShudderЖанр: ужасыРежиссер: Демиан РуньяАктеры: Эсекьель Родригес, Демиан Саломон, Сильвина Сабатер, Луис Цимбровски, Марсело Мишино, Эмилио Воданович, Вирджиния Гарофало, Паула Рубинштейн, Лукреция Нирон Талазак, Исабель КинтеросПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, ИспанскийСубтитры: АнглийскиеПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A312A6F2AB2BD4018286B9316C6605B5EDCB61EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669878   (134660) от 27.11.2023
-
-Уроки химии / Lessons in Chemistry (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound, TVShows
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134660.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1950-х годах мечта Элизабет Зотт стать ученым сталкивается с общественным мнением, согласно которому место женщин — в домашней сфере. Она соглашается на работу в телевизионном кулинарном шоу и намеревается научить нацию обделенных вниманием домохозяек не только рецептам. Экранизация одноименной книги Бонни Гармус.Производство: США, Aggregate Films, Apple Studios, AppleЖанр: ДрамаРежиссер: Сара АдинаАктеры: Бри Ларсон, Стефани Кениг, Элис Холзи, Джошуа Хувер, Ясир Хашим Лафон, Брэндон Гибсон, Джой Джейкобсон, Шу-Шу Парселлс, Хиро Хантер, Льюис ПуллманПеревод: Многоголосый профессиональный (Red Head Sound, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEE9A8F3A4C3703BAE91D34A23DB5A1E019A1D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588651   (134662) от 27.11.2023
-
-Однажды в Ирландии / The Guard (2011) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщины, выпивка и веселые шутки — вот радости добродушного ирландского полицейского, сержанта Джерри Бойла. Он никогда не помышлял о геройстве, пока однажды в Дублине не появился агент ФБР, который призвал незадачливого служителя порядка помочь ему накрыть международную банду наркоторговцев. Смогут ли сработаться веселый рыжий ирландец и решительный афроамериканец? (   Читать дальше...   )Производство: Великобритания, Ирландия, США / Reprisal Films, Element Pictures, Hindsight MediaЖанр: триллер, комедия, криминалРежиссер: Джон Майкл МакдонаАктеры: Брендан Глисон, Дон Чидл, Марк Стронг, Лиам Каннингэм, Финола Флэнаган, Дэвид Уилмот, Лоуренс Кинлан, Катарина Час, Доминик МакЭллигот, Гари ЛайдонПеревод: Авторский (Д. Пучков/Гоблин, Ю.Сербин), двухголосый профессиональный (студия Elrom)Язык озвучки: Русский, английскийСубтитры: Русские (Гоблин, Full), английский (Full, SDH, Commentary)
-
-ВНИМАНИЕ: В фильме присутствует ненормативная лексика в необходимом и достаточном количестве.Продолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B7D7FFCF85D37A45811B79732638CE405EF887
 ```
 
 

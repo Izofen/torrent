@@ -1,3 +1,84 @@
+###  Публикация: 1707546   (113230) от 18.03.2024
+
+Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Experimental, Industrial, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02
+DISC 03(   Читать дальше...   )Жанр: Experimental, Industrial, AmbientПродолжительность: 5CD, 02:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193A2D8F3029CDD2BC8589E2E830388FDEB792A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707802   (113231) от 18.03.2024
+
+Reza Khan - Mystical (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falcon (5:14)
+02. Mystical (5:04)
+03. Language of Love (5:04)
+04. Catalina's Dream (5:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4793475311D0B22123D7B6AE7118DE8A2152FF36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707800   (113232) от 18.03.2024
+
+Carlos Camilo - Love Affair (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black G String (4:06)
+02. Craving your touch tonight (4:30)
+03. Ecstasy (4:45)
+04. High Heels On (4:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB10EA6039E62EE31845AFD261432F867A24DB50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707852   (113233) от 18.03.2024
 
 Expiatoria - Shadows (2022) [MP3|320 Kbps] <Gothic, Doom, Heavy Metal>
@@ -6,7 +87,7 @@ Expiatoria - Shadows (2022) [MP3|320 Kbps] <Gothic, Doom, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113233.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:6DD5A23C3A82C6915566A74B78E14D7E4C95F3D5
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113234.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Sacha Perry, Ben Street & Kresten Osgood - Low Tide (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113235.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Sol Anahata - Syncretic Sovereignty (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113236.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113237.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ magnet:?xt=urn:btih:CF795B033FDE94726B8ADCEDEE9F55A97F013044
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113238.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113239.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113240.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ magnet:?xt=urn:btih:7FAA0C09B6E1009F767B58CDD830CF50B5B47EBE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113241.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Early Moods - A Sinner's Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113242.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ magnet:?xt=urn:btih:20603633723707F9EE4DB9281917060E9455B5D8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113243.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ magnet:?xt=urn:btih:4762E609AD4270905A27F5ABEB14AEF2733D29D2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113244.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113245.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ magnet:?xt=urn:btih:532190A0D6587877B0C7CF12014F4E07FDC0167C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113246.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113247.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113248.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113249.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113250.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ magnet:?xt=urn:btih:BBB0623154273C78DB133B52608209F2EA2D3521
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113251.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113252.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113253.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113254.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113255.jpg" />
 </div>
 
 
@@ -605,85 +686,6 @@ A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707660   (113256) от 17.03.2024
-
-M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Land Of The Free
-A2 Devolution
-A3 Repent
-A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707671   (113257) от 17.03.2024
-
-Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Return to Salem's Gate (00:05:08)
-02 - Live to Suffer (00:04:24)
-03 - Early Moods (00:04:37)
-04 - Defy Thy Name (00:04:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411CF1B9E26F27B326F94074AD06F0B655E2987A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707723   (113258) от 17.03.2024
-
-CudaText 1.211.0.0 Portable + addons [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113258.jpg" />
-</div>
-
-
-###  Подробнее
-
-CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
-Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F50F20AE6CD27557F3661DD53523F87C1B1DB7
 ```
 
 

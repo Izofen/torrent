@@ -6,7 +6,7 @@ Ashampoo WinOptimizer 27.00.05 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37325.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37326.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37327.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3F27CD8B0566F6D748CB047EFC1CA0D5EC5C79CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37328.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1C4BAC42FD0E02C17DC70E9C2E55C4CEA2430CD1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37329.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Capture One 23 Enterprise 16.5.1.2546 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37330.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2FE165A773BAFE2537D81E41F703A8C4A5C0FEE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37331.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Ahab - Collection (2006 - 2023) 6 CD [FLAC|Lossless|image + .cue] <Funeral Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37332.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E45F48333005152286159141D3BC5A9C64579C3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37333.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E45F48333005152286159141D3BC5A9C64579C3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37334.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Topaz Video AI 5.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37335.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ DjVu Reader & Viewer (читалка) v1.0.125 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37336.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.13) Repack =nemos=
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37337.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6FCF6D1F305BA6B480A3598461A5AD93B6FEC9E7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37338.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F7B24D1BD7ABAF2CCFC58A606FAAD2B363F8BD78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37339.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37340.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37341.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A66C60804711713955713E4A3A11BB6A7CD11051
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37342.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:F748AA74D8F3729A649D047E76F6461C3C7B654E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37343.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4CB4E5C2686D15EEB989B443C1FCBC2B175F6DA5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37344.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4CB4E5C2686D15EEB989B443C1FCBC2B175F6DA5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37345.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:25239C4C3E7DDCAAF5E02C0CFA29F1DC7F5C2300
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37346.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37347.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6DD364E49C45D6AC4081B78C95FF773EDD685E5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37348.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:6DD364E49C45D6AC4081B78C95FF773EDD685E5A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37349.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:62CA3D85E7E8CF10FFFEB5834CEBCC033851C250
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37350.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17974.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18087.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18093.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18360.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D4ED19D8980FDB217E8F917F40DE00346986B9C3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18706.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19002.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:58E8F4A72808B72D91694A013D09129EB46ECADC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19781.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:1BDF5F007B7982AFC855EDEF6C835CAE67AB7DA5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20066.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20815.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20857.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20857.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20862.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20921.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20926.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E8CA315D0124377DA04792A46B76FC2877EAF9E1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21003.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:DB28A2C4203A0EE6B23A8D4317D8EF0F82FD2C6E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21009.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21260.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21666.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22205.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22205.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23090.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23096.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BC4C3E715B11B42B973C4264B2E31A85C90680AD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25796.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25816.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25936.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26695.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26695.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27226.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27226.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Scooter - The stadium techno inferno - Live in Hamburg (2011) DVDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27398.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27398.jpg" />
 </div>
 
 

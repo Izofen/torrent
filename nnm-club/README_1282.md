@@ -6,7 +6,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:77DE3CDDCB3BE0223FA86788EE841F50796E38BD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33686.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:252B99499753BD183FC4AE2012EC85155904CCB4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33687.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Orientalia - the Best of 2024 (Tibetania Orient) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33689.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Kekkon Surutte, Hontou Desuka / 365 Days to the Wedding / Вы правда же
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33690.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0B705D8A3348A839C5346BD98B500D22D19E1677
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33691.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2FE63872F1E14E7A7AEDC4D8DEECBF9532A150D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33692.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Therion - Studio Albums (21 releases) (1991-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33693.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ FliFlik KlearMax for Photo 2.1.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33694.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:EE4B529F5BB2052A295DB173A9804353D6820B61
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33695.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Google Chrome 131.0.6778.205 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33696.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ INDIKA (2024) [Ru/Multi] (Build 15648284) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33697.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:74F8F67C7BDC5D064053FF5AFC15B07E45891F69
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33698.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ W10Privacy 5.1.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33699.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FabFilter - Total Bundle 2024.12.16 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33700.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ OCCT 13.1.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33701.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DC0D1DA273C9E37A73C5CAF8DFD2B37C3AF781B3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33702.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8E0B4B338026604B341CE340A991A714E5E00950
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33703.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A954DC766F8872E08DE838EFEFC337A5748F2A28
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33704.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ White Day - The School v21.1.109 + v3.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33705.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Topaz Photo AI 3.4.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33706.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:1892D3C61E9B720B5E210D99E414B206A23162F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33707.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Chess Assistant 25 (2024) [En] (12.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33708.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D63E91DA9ED9F5798623DDEFA799909465E248D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33709.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F0334336E499A2DB3D9B7C10317388571A727051
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33710.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E634E197AEFDD6A4A635E9265E4A9225914EF156
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Video AI 5.2.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ JetBrains DataSpell 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Радио новинки 2024, Часть 5 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46899.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5D80421850DB334257E7ED4F2D71CCB0CD5877B8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46900.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:94DD7DEFA9BF86928A7DAB03C78C96689FBBB108
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46901.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B8264E88B33AAD6290EE020606B393EBD0B86825
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46902.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B8264E88B33AAD6290EE020606B393EBD0B86825
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46903.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ FanControl V199 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46904.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DD1AD8964EDB4D73E6B8241864B77EA0512D26DB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46905.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D682F5BEA57F6288B3009CC09CFD70227B1EF786
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46906.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Music Collection 3.6.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46907.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Devious Machines - Complete Effects Bundle 2024.8.12 VST, VST 3, AAX (x64) RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46908.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B83B34DE703961EFE0E55F08D3CD0CEBE5924301
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46909.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:62D8C82D2A592BBF2706F1B05D564F1E518F4139
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46910.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:21C2B6AC86E539E884BEB82970F7F018C25E82A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46911.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Белый пепел (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46912.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C61C9C21A2AE43D3C7764AD323FEB2DDE0EBA36B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46913.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Песни хорошего настроения (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46914.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46915.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Гуляй, душа! (Душевные песни) (2024) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46916.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Новые хитовые песни 2024, Часть 8 (2024) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46917.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sonible - pure:comp 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46918.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:D5E59BB8E930205728DD63CEC520CF55FC74136D
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46919.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:FB7D1A7791356D9C70059E725A02093B8D0C2925
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46920.jpg" />
 </div>
 
 

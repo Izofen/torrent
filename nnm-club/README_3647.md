@@ -1,3 +1,81 @@
+###  Публикация: 1704160   (114504) от 03.03.2024
+
+The Steve Klatt Project - Dreams & Reality (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Void (04:57)
+02. Exile (03:49)
+03. That Feeling (04:40)
+04. Cosmic Perspective (04:27)(   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CB793A6220251BBDC2CC183D67DFFCD419C844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704300   (114505) от 03.03.2024
+
+BBEdit 15.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114505.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2024Разработчик: © 1992-2021 Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.15.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC9A011DDBF9E3BF53524F0A868837BAC68CF23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704329   (114506) от 03.03.2024
+
+Jesse James Dupree - Breathing Fire (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay It On Me
+02. Never Gets Old
+03. Breathing Fire
+04. It's Not Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110FB3E171B866CAA3B83E19927E63AEC1710250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704094   (114507) от 03.03.2024
 
 Chicane - Far From The Maddening Crowds (1997) 2024 Symphonic Rehearsals [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
@@ -6,7 +84,7 @@ Chicane - Far From The Maddening Crowds (1997) 2024 Symphonic Rehearsals [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114507.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114508.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114509.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Angels Of Babylon - Aquarius (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114510.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:E5705A03EDA647906CBF37661FAB8E6972C487CE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114511.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Ulysses 33.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114512.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ magnet:?xt=urn:btih:3FF2E86EBE5F862927979090A8C5B50554EFD78D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114513.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ magnet:?xt=urn:btih:C4904A0BD6897FB69629B95A9A4D6515E7431AF2
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114514.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Sy
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114515.jpg" />
 </div>
 
 
@@ -232,7 +310,7 @@ Hollan Holmes - Sacred Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Spa
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114516.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|image + .cue] <El
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114517.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ DRmare Tidal Music Converter 2.14.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114518.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ magnet:?xt=urn:btih:AABB1E618AD8AD96521D83DEAFE9C3DE5D242BEA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114519.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ magnet:?xt=urn:btih:4A9BE21C8F5618C4721B49662DC9E991157B8B07
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114520.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ Madis - Live in Krakow (2023) [MP3|320 Kbps] <Electronic Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114521.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:DFF73D55A0DA1B231E4A83F9A9121BD7151D81D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114522.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ The Lachy Doley Group - Compiliation 2013-2019 (2024) [MP3|320 Kbps] <Hammond, B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114523.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ Topaz Video AI for Mac 4.2.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114524.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ magnet:?xt=urn:btih:28B3C4FF826CCDC73EEF49FBFF55C4A8AA2BECDA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114525.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ magnet:?xt=urn:btih:1E2F1247437953DB8767773EC681C7EE3D2BC245
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114526.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ magnet:?xt=urn:btih:4FAD97CADF0637ADA8655A7B57EFEE3AF1AC8EFF
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114527.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ magnet:?xt=urn:btih:F35DCDBCCF6375FA9B794E7C0C480A07E058675D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114528.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:22E382863BA5C5E3A0929450D1DE5238D7A92097
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114529.jpg" />
 </div>
 
 
@@ -568,82 +646,6 @@ magnet:?xt=urn:btih:22E382863BA5C5E3A0929450D1DE5238D7A92097
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF4B4012AACE3E1CC64F0CE74648DF8DF722BB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704171   (114530) от 03.03.2024
-
-Ричард О’Коннор | Перепрограммируйте свой мозг (2024) [MP3, Алексей Воскобойников]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы часто попадаем в ловушку своих плохих привычек, будь то неудачные попытки соблюдать диету, провальные попытки бросить курить или вечное откладывание дел в долгий ящик. Известный психотерапевт Ричард О'Коннор раскрывает, как с этим бороться.
-У нас есть два мозга – один – вдумчивое, сознательное, совещательное «я», а другой – автоматическое «я», которое принимает (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 11:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B57C9A7FB32158507A5CC50590AC819F03800D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694943   (114531) от 03.03.2024
-
-Жизнь и смерть живого мертвеца / Life and Death of a Living Dead (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятная история любви между таинственной молодой женщиной и живым мертвецом. Фантастическая история, полная страсти, насилия и эмоций.Производство: ФранцияЖанр: Короткометражный, фантастика, ужасы, мелодрамаРежиссер: Gautier BabeАктеры: Alizée Linavert, Jacques VanelПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22857C48C126638FFA6D62D6ACC0663A4F25BD47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704317   (114532) от 03.03.2024
-
-Chris Norman - Junction 55 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil In Your Heart (4:27)
-02. Tears Will Fall (3:54)
-03. Tell Her She Can (3:58)
-04. Crazy (3:43)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D947233CDF1234E89E155A233423766DEE45C7
 ```
 
 

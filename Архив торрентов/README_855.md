@@ -1,3 +1,104 @@
+###  Публикация: 1515403   (170356) от 06.12.2021
+
+Live Home 3D Pro Edition 4.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: © 2021 Belight Software, Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317E1CC4DD318324731DE6A47CCC3FF422A61CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430455   (170364) от 10.12.2020
+
+Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515401   (170372) от 06.12.2021
+
+GoodNotes 5 v5.7.52 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00A8DA3F5B31EB511AE806AA5665B179A795D42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344307   (170373) от 10.12.2019
+
+VA - Psygressive Vol. 5 (2019) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindwave - Soyuz (Original Mix)
+02. Flexus & Estefano Haze - Time Spirit (Original Mix)
+03. Mindbenderz - Processing… (Original Mix)
+04. Reverse - The Ritual (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C07A75110E08929202C56DFFDD0740B5065381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344351   (170378) от 10.12.2019
 
 DiskTrix UltimateDefrag 6.0.46.0 RePack (& portable) by elchupacabra [Ru/En]
@@ -6,7 +107,7 @@ DiskTrix UltimateDefrag 6.0.46.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170378.jpg" />
 </div>
 
 
@@ -30,7 +131,7 @@ VueScan Pro 9.7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170380.jpg" />
 </div>
 
 
@@ -54,7 +155,7 @@ Ocenaudio 3.11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170395.jpg" />
 </div>
 
 
@@ -78,7 +179,7 @@ Capture One 21 Pro 14.0.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170397.jpg" />
 </div>
 
 
@@ -103,7 +204,7 @@ O&O DiskImage Professional 18.2 Build 196 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170402.jpg" />
 </div>
 
 
@@ -127,7 +228,7 @@ Mate Translate 8.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170404.jpg" />
 </div>
 
 
@@ -152,7 +253,7 @@ Sumatra PDF 3.2.11582 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170406.jpg" />
 </div>
 
 
@@ -177,7 +278,7 @@ VA - Psygressive Vol. 6 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170410.jpg" />
 </div>
 
 
@@ -204,7 +305,7 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170413.jpg" />
 </div>
 
 
@@ -228,7 +329,7 @@ BBEdit 14.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170420.jpg" />
 </div>
 
 
@@ -252,7 +353,7 @@ WinTools.net Premium 20.12.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170440.jpg" />
 </div>
 
 
@@ -276,7 +377,7 @@ Caffeinated 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170441.jpg" />
 </div>
 
 
@@ -300,7 +401,7 @@ Ashampoo Burning Studio 21.0.0.33 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170443.jpg" />
 </div>
 
 
@@ -324,7 +425,7 @@ Project Office Pro 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170448.jpg" />
 </div>
 
 
@@ -348,7 +449,7 @@ Skype 8.55.0.123 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170450.jpg" />
 </div>
 
 
@@ -372,7 +473,7 @@ MenuBar Stats 3 v3.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170452.jpg" />
 </div>
 
 
@@ -398,7 +499,7 @@ MaxCommander 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170458.jpg" />
 </div>
 
 
@@ -425,7 +526,7 @@ Sound Studio 4 v4.9.6 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170465.jpg" />
 </div>
 
 
@@ -451,7 +552,7 @@ Sensei 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170467.jpg" />
 </div>
 
 
@@ -475,7 +576,7 @@ Typora 1.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170471.jpg" />
 </div>
 
 
@@ -499,7 +600,7 @@ ReviverSoft Driver Reviver 5.31.4.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170474.jpg" />
 </div>
 
 
@@ -523,7 +624,7 @@ Nisus Writer Pro 3.2.2 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170475.jpg" />
 </div>
 
 
@@ -534,105 +635,6 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71B487B3481B07F50AF6B0FE57CD55BE13726C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430573   (170476) от 10.12.2020
-
-ФотоМАСТЕР 9.15 RePack (& Portable) by elchupacabra [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170476.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоМАСТЕР - мощная программа, позволяющая быстро и качественно улучшать фотографии. Благодаря инновационной архитектуре, "ФотоМАСТЕР" даёт возможность изменять любые параметры фотоснимков и отменять эти изменения в любом порядке без потери качества.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F0219822D1C8F9AA36C7CFFFC4BE44146CF403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344343   (170477) от 10.12.2019
-
-360 Extreme Explorer 12.0.1010.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170477.jpg" />
-</div>
-
-
-###  Подробнее
-
-360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76464FC04383B7DD126A4AF4A95EF82DA3B59816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672128   (170478) от 27.10.2023
-
-SILKYPIX Developer Studio Pro 11 v.11.0.12.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170478.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601C7BC54800F09BF07706D1A45D5211171C992B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344313   (170480) от 10.12.2019
-
-VA - Psygressive Vol. 7 (2019) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus - Mdma (Original Mix)
-02. Stayos - Wake Up (Original Mix)
-03. Yahel - Voyage (Cosmic Flow Remix)
-04. Hinap & Reverse - Chaotic Nature (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDAF36B25695F5A13870454981522BBFDE4BE06
 ```
 
 

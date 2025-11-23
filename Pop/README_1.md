@@ -6,7 +6,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10362.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10364.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10395.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Satin Jackets - Cruise Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10575.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:ED743CC1E36ED939A3DB1262589CC3EB9C5B327B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10773.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:42BCCB388584D02D826C256286CFBA3FB0CA3C3C
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10787.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:A8B5C0BFE7279C2CED1A5AA4F75E58DD3ECB445D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10854.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DAD23521ABE84993E41A04BE487305988BE3D063
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10865.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6DE2FFFD44199EA7197FD30B7925DF0FF5BDF992
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10867.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DD2DA118F3BC57E8EF0E9D91CE7E7B050FAE9118
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11302.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11530.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11824.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12007.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12116.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12135.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12136.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12143.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:1F045336C8973D5B2CEF2E190D4DC53DB82FBFC4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12215.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:453A4F3E6B7317E6A3C08E5C09251DE5BA3368CD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12239.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12351.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Marc de Loutchek - 2 Albums (2007,2010) [FLAC|Lossless|WEB-DL|tracks] <Русс�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12431.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:37D8802054DE82324C72886456870C003408493A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12536.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12552.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12562.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:6DE5DCA4A78860FBA538B30D4D7486107A22BFE8
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12640.jpg" />
 </div>
 
 

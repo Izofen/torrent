@@ -1,3 +1,84 @@
+###  Публикация: 1739354   (106106) от 27.07.2024
+
+Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чем кончается родина [00:02:52]
+02. Если в этот раз пронесет [00:03:40]
+03. Страшнее смерти [00:03:02]
+04. Чем кончается родина (Acoustic) [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB23AF27CC12B45A9056866BE1967DD9A0FD74CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739310   (106107) от 27.07.2024
+
+VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Relax, Take It Easy [02:37]
+02. Silk Department - All Of My Love [02:47]
+03. Gelow - You Tell Me [03:10]
+04. Echevo - Breath The Sun [02:48](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11298179FEA7C5AEE5AF497E80EF44064E5BC45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739309   (106108) от 27.07.2024
+
+VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - She's Not Me [02:33]
+02. Declan Drake - Lights Out [02:45]
+03. Deep Emotion - One More Night [02:36]
+04. Dani Corbalan - Promise Me [02:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E60CC30E0143C4380AD0555C1604A22A4451FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738762   (106109) от 27.07.2024
 
 Сергей Дубровин - Лучшие песни (2014) Remastered, 2024, United Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +87,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106109.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:CF874A9B8774FFABD3D266FAC422F36C38A48AB1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106110.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ RSS Guard 4.7.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106111.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:4CAFB712F5A3195A3C0A22A9C999AC1AD530E74B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106112.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:B43E7E5272B6120309EDF728D46D900915DD4E8E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106113.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ ExamDiff Pro 15.0.1.8 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106114.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ PictureThis - Plant Identification v4.2.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106115.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106116.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ digiKam 8.4.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106117.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ magnet:?xt=urn:btih:3E9312D4B0BF7F720C8EE6C2260FBB0FA401C3D2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106118.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106119.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106120.jpg" />
 </div>
 
 
@@ -309,7 +390,7 @@ magnet:?xt=urn:btih:041B796015591AFB5DA82AE13B2B26E4CDF4BE00
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106121.jpg" />
 </div>
 
 
@@ -333,7 +414,7 @@ magnet:?xt=urn:btih:CE0EE8016BEF86F725D59800517243051E7DF156
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106122.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ WinMerge 2.16.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106123.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ magnet:?xt=urn:btih:5A57230041F862AE2749300252BBC743F6EBCDD7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106124.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ FanControl V198 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106125.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ magnet:?xt=urn:btih:4A6A93986495C9FEBB51CA5CD34E6D3CB1A9AB27
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106126.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ Text Editor Pro 29.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106127.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106128.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ magnet:?xt=urn:btih:C884C7B906CA6774F78EFD699C596D49DBD437FF
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106129.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ magnet:?xt=urn:btih:7419F303AA63DCAB31D0B13552F13D75C518E7C2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106130.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106131.jpg" />
 </div>
 
 
@@ -566,78 +647,6 @@ magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D74670667C093ED01A48574CC42EB3730E50BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739446   (106132) от 27.07.2024
-
-Бартон Финк / Barton Fink (1991) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106132.jpg" />
-</div>
-
-
-###  Подробнее
-
-1941 год. Молодой драматург Бартон Финк приезжает в Голливуд, чтобы писать заказной сценарий для одной из крупных кинокомпаний. Остановившись в ужасном отеле, он приступает к работе. Но дело движется медленно. Бытовые проблемы постоянно выбивают Бартона из колеи. К тому же, будучи человеком закомплексованным, он постоянно терзается муками творчества, отчего настроение (   Читать дальше...   )Производство: Великобритания, США / Circle Films, Working Title FilmsЖанр: драма, триллер, комедияРежиссер: Джоэл Коэн, Итан КоэнАктеры: Джон Туртурро, Джон Гудман, Джуди Дэвис, Майкл Лернер, Джон Махони, Тони Шэлуб, Джон Полито, Стив Бушеми, Дэвид Уоррилоу, Ричард ПортноуПеревод: Многоголосый профессиональный (Первый канал)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0CF9F1A06BABE1DAA38C4396E5EF9AA453B3D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739258   (106133) от 27.07.2024
-
-Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magical Delicacy - это не просто пиксельный платформер, а настоящая кулинарная метроидвания, которая погрузит вас в уникальный ведьминский мир. Вы играете за молодую ведьму Флору, которая приехала в отдаленном поселении, чтобы воплотить свою мечту и стать настоящей ведьмой. Вы открываете свой магазинчик в портовом городе Грат, где приключенцы начинают свое исследование (   Читать дальше...   )Тип издания: SceneРазработчик: SkauleЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B5BCC4E4CFEA696728074D93A04543F137AACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739197   (106134) от 27.07.2024
-
-Поселенцы / Los colonos / The Settlers (2023) WEB-DLRip [H.264] [UKR, звук с TS]
-
->>Горячие новинки
->>Экранки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чили, 1901 год. Три всадника отправляются охранять обширную территорию. Британского солдата и американского наемника сопровождает метис Сегундо, который осознает, что их истинная миссия — уничтожить коренное население, уроженцев архипелага Огненная Земля. Сегундо становится невольным соучастником жестокой охоты.Производство: Чили, Аргентина, Великобритания, Тайвань, Германия, Швеция, Франция, Дания / Quijote Films, Rei Cine, Quiddity FilmsЖанр: драма, криминал, вестерн, историяРежиссер: Фелипе ГальвесАктеры: Марк Стэнли, Камило Арансибия, Бенжамин Уэстфолл, Альфредо Кастро, Сэм Спруэлл, Агустин Риттано, Мариано Льинас, Mishell Guaña, Adriana Stuven, Луис МачинПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: АнглийскиеПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDF857F61319C3C29F59EEEA5AB0A71358BB96E
 ```
 
 

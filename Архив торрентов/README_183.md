@@ -6,7 +6,7 @@ Blackmagic Design Fusion Studio 19.0.1 Build 5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44523.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TweakNow WinSecret Plus! 5.6.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44527.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Internet Download Manager 6.42 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44538.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Guitar Pro 8.1.3 Build 120 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44545.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.1 Build 6 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44548.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Wondershare PDFelement 11.0.7.3119 x64 Portable by 7997 + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44550.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DiskDigger 2.0.3.3989 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44552.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera One 113.0.5230.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44554.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adobe Acrobat Pro 2024.003.20054 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44555.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Wondershare PDFelement 11.0.7.3119 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44565.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ CrystalDiskInfo 9.4.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44567.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.1 Build 6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44571.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7205 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44572.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Serif Affinity Photo 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44595.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fast Video Cutter Joiner 5.4.0.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44596.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ InnoExtractor Ultra 8.1.0.615 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44599.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Audacity 3.6.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44600.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Microsoft PowerToys 0.84.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44608.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Music Collection 3.7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44611.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0309) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44613.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Serif Affinity Publisher 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44614.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:1018B9AE040BE98B0D70BD02D4153041B706FD1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44618.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Serif Affinity Designer 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44619.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ JetBrains DataSpell 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44623.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ TechSmith Camtasia 24.0.4 build 2964 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44625.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:2458D33E4915D8BFF234571559031B44C53AF635
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44627.jpg" />
 </div>
 
 

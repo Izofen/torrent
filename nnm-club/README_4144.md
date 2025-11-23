@@ -1,3 +1,76 @@
+###  Публикация: 1684896   (127431) от 17.12.2023
+
+Ледяная грудь / Les seins de glace (1974) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сценария роман Ричарда Мэтисона 1953 года «Кто-то истекает кровью»... Сценарист Франсуа Роллен знакомится на пустынном берегу в Ницце в январе с Пегги Листер и влюбляется в неё. Пегги - загадочная женщина. Когда Франсуа встречается с её другом Марком Рильсоном, тот, в качестве предупреждения, выдает её секрет: как только мужчина сближается с ней, она превращается (   Читать дальше...   )Производство: Франция, Италия, Lira Films, Belstar Productions, Capitolina Produzioni CinematograficheЖанр: драма, детектив, триллерРежиссер: Жорж ЛотнерАктеры: Ален Делон, Мирей Дарк, Клод Брассёр, Николетта Макиавелли, Андре Фалькон, Фьоре Альтовити, Эмилио Мессина, Мишель Пейрелон, Филипп Кастелли, Жан-Пьерр Лоррен, Жан Луизи, Марк ДарсакПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1D292EC5580BD2EEAE9235AAFADF966B94F96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553428   (127432) от 17.12.2023
+
+Наталья Щерба | Часодеи (Книга 3). Часовая башня (2019) [MP3, Юлия Яблонская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127432.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Часовая башня» – третья книга знаменитой серии молодёжного фэнтези «Часодеи» о юной волшебнице Василисе Огневой, умеющей управлять временем.
+Все ключники должны попасть во Временной Разрыв и найти Расколотый Замок. Василиса готова сделать всё, чтобы доказать умение управлять временем. Но Елена Мортинова обязательно встанет на её пути. Сможет ли девочка противостоять (   Читать дальше...   )Жанр: Детская фантастика, Книги про волшебниковИздательство: ВИМБОПродолжительность: 11:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCE1D46A14452CD55EB51A6E0DE976817FC7C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684890   (127433) от 17.12.2023
+
+Журнал | Новый очаг №07 (зима 2023/2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Новый очаг» (в прошлом "Домашний очаг") адресован современным женщинам, для которых одинаково важны и интересная работа и уютный домашний очаг. В журнале - всё о семье и детях, здоровье и диетах, обустройстве дома и интерьера. Полезные советы, вкусные рецепты и последние новости дома и семьи. Секрет успеха издания в том, что каждая женщина может (   Читать дальше...   )Жанр: Женский журналИздательство: ООО "Фэшн Пресс"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723DECEF2978ED75F1FE7B3755BBC74CF706A159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601030   (127434) от 17.12.2023
 
 Карл-Йохан Форссен Эрлин | Кролик, который хочет уснуть. Сказка в помощь родителям (2018) [MP3, Марина Лисовец]
@@ -6,7 +79,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127434.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127435.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:C6C848E9B6DEFC63809AC550EAE6C36946CF2BF5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127436.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:F60E4838DF330A8DC0C49A2A69833E15B84E9044
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127437.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ Babooshka - Чёрный список (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127438.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:DE3E0C6DFB21973B0398DAABB1156842E2DB1424
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127439.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:00EA75D930A4819945110F9B359779315078FCB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127440.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:BBFC8999C82F783DF89D4BA435FB8932EDCEA513
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127441.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:4C00824DFAF8A1A54A4CAB40571D7C4778DE186B
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127442.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ magnet:?xt=urn:btih:6E8D9037BBED7B15EF9D0756BF0EE787EC780E07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127443.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:949E39F43A4FCBDE4CFB4846B60CF01A697288D1
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127444.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:8A1DBC5C9FA34C24C338A6E5AA5B87E2A98FFEDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127445.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:2D7AF84AFF8C3A513781A490E8C9EC633122D16A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127446.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:251ADA3CC2BB7CFA0152C0713C6DA3AD4BCC7941
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127447.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:6CEDD135894579D06FD8819EAC59304D84983023
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127448.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127449.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Bratec Lis School, Элиза Талентино | Эффекты гравюры
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127450.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ magnet:?xt=urn:btih:CABC1FB487E5EAFD5DBF5E28BF26C7A417C85F84
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127451.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ VA - Music News vol.324 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127452.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ magnet:?xt=urn:btih:109008D0FE871F1B4B78E6B902EBEF1B0AB94464
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127453.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:01AF7CED36F8ABE0C3AEFD7172B5DD4E86573C5B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127454.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ magnet:?xt=urn:btih:47C4CF2B3BFC2A1A76F474D962CBB0F36E0B4A31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127455.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.7 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127456.jpg" />
 </div>
 
 
@@ -561,80 +634,6 @@ OsmAnd+ является приложением с открытым исходн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9D5E8993C6A847E3354B6771C938528F2E2421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684817   (127457) от 17.12.2023
-
-Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о машинном обучении освещает многие алгоритмы с геометрической точки зрения и знакомит с инструментами сетевой науки, метрической геометрии и топологического анализа данных на основе их практического применения.
-
-Обширная подборка примеров из разных сфер, а также мягкое объяснение математических основ десятков алгоритмов позволяют всесторонне и в то же (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DE10B342BDB7FE12A69865E433295B5C48425B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523200   (127458) от 17.12.2023
-
-Мэри Элизабет Мэйпс Додж | Серебряные коньки (2017) [MP3, Вадим Максимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Элизабет Мэйпс Додж (1831–1905) – известная американская писательница, издатель журналов для детей. Повесть «Серебряные коньки» (1865), безусловно, относится к классике детской литературы: она выдержала свыше ста изданий на многих языках мира. Её действие происходит накануне Рождества в Нидерландах. Маленький городок Брук готовится к состязаниям юных конькобежцев. (   Читать дальше...   )Жанр: Детская проза, Зарубежная классика, Зарубежные детские книги, Литература 19 векаИздательство: 1С-ПаблишингПродолжительность: 06:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC87236937D2ED1BB536302DE0D0CF116624C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684883   (127459) от 17.12.2023
-
-Слова из Слов v11.0.3 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова из Слов – игра головоломка, покорившая миллионы игроков по всему миру. Ее принцип знаком многим еще с детства - составить слова из слова. Если ты любишь отгадывать слова, разгадывать кроссворды, головоломки и прочие игры для ума, то эта игра на поиск слов тебе определенно понравится! Ты даже можешь устроить батл слово за слово со своими друзьями - отгадай слово (   Читать дальше...   )Тип издания: Premium / AdfreeРелиз состоялся: 19.11.2023Разработчик: Uga DoogaПоддерживаемая ОС: Android 6.0+Жанр: Словесные игрыЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49CC55B28DED379F273986A5FBD8308BDD09031
 ```
 
 

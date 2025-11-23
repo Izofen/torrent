@@ -1,3 +1,27 @@
+###  Публикация: 736561   (223895) от 20.12.2013
+
+Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый альфа релиз следующей версии Kubuntu Trusty. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.04 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736442   (226455) от 19.12.2013
 
 openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
@@ -6,7 +30,7 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226455.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226455.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Ubuntu Gnome 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226681.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226681.jpg" />
 </div>
 
 
@@ -56,7 +80,7 @@ Lubuntu 15.04 Vivid Vervet  Alpha I (легкий дистрибутив) [i386,
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226697.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226697.jpg" />
 </div>
 
 
@@ -82,7 +106,7 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226885.jpg" />
 </div>
 
 
@@ -106,7 +130,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228519.jpg" />
 </div>
 
 
@@ -130,7 +154,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228765.jpg" />
 </div>
 
 
@@ -154,7 +178,7 @@ Tor Browser 2.3.25-1 [x32, x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228770.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228770.jpg" />
 </div>
 
 
@@ -180,7 +204,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228774.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228774.jpg" />
 </div>
 
 
@@ -204,7 +228,7 @@ pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229065.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229065.jpg" />
 </div>
 
 
@@ -230,7 +254,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233177.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233177.jpg" />
 </div>
 
 
@@ -256,7 +280,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233365.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233365.jpg" />
 </div>
 
 
@@ -281,7 +305,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239989.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239989.jpg" />
 </div>
 
 
@@ -307,7 +331,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240167.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240167.jpg" />
 </div>
 
 
@@ -332,7 +356,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240228.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240228.jpg" />
 </div>
 
 
@@ -357,7 +381,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240245.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240245.jpg" />
 </div>
 
 
@@ -382,7 +406,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240254.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240254.jpg" />
 </div>
 
 
@@ -407,7 +431,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240518.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240518.jpg" />
 </div>
 
 
@@ -432,7 +456,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240559.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240559.jpg" />
 </div>
 
 
@@ -457,7 +481,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240592.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240592.jpg" />
 </div>
 
 
@@ -482,7 +506,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243659.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243659.jpg" />
 </div>
 
 
@@ -507,7 +531,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248306.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248306.jpg" />
 </div>
 
 
@@ -531,7 +555,7 @@ Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_249326.jpg" />
 </div>
 
 
@@ -555,7 +579,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249347.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249347.jpg" />
 </div>
 
 
@@ -579,7 +603,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250305.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250305.jpg" />
 </div>
 
 
@@ -605,7 +629,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250316.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250316.jpg" />
 </div>
 
 
@@ -618,32 +642,6 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624801   (251905) от 31.05.2023
-
-TrueNAS CORE 13.0-U4 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251905.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrueNAS CORE (ранее FreeNAS) — это бесплатная операционная система для хранения данных на базе ОС FreeBSD с открытым исходным кодом, которая дает возможность создать собственный сервер для хранения данных без затрат на программное обеспечение.
-
-Для нормальной работы системы TrueNAS на компьютере должно быть, как минимум 8 ГБ оперативной памяти, если планируется установка (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 ```
 
 

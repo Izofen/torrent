@@ -6,7 +6,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165144.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165277.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165302.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165849.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Psycho-Pass 3 | Психопаспорт [ТВ-3][2019, TV, 8 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166052.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166103.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168589.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168705.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169015.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169055.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169174.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Urara Meirochou / Город предсказательниц [2017, TV, 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169515.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ganbare Douki-chan | Доки, ты справишься! [2021, Web, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169840.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Obsolete | Устаревший [2019, ONA, 6 эп.] WEB-DL 2160p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170061.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Grand Blue / Grand Blue Dreaming / Необъятный океан [2018, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170398.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173813.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173813.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174395.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174395.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176114.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Toji no Miko: Kizamishi Issen no Tomoshibi | Жрицы с мечами: Раз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176563.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176563.jpg" />
 </div>
 
 
@@ -507,6 +507,54 @@ magnet:?xt=urn:btih:2ED349B80F1BC7256CED9305AEBDFC0542BF86AA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521857   (177636) от 01.12.2022
+
+Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177636.jpg" />
+</div>
+
+
+###  Подробнее
+
+События сериала разворачиваются вокруг мальчишки по имени Шики, живущего на Гранбелле. Гранбелл — это планета, заселённая роботами, где каждый из них выполняет отведённую ему роль. От того одинокая душа единственного живого обитателя роботизированной планеты преисполнена желанием найти себе много хороших друзей. Однажды на родину Шики прибывает девушка Ребекка вместе (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, комедияРежиссер: Исихира СиндзиПеревод: NaikoSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9E08FDC6746121ED67C372B6517929C691F358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428567   (179188) от 03.12.2020
+
+Makai Ouji: Devils and Realist | Принц Преисподней: Демоны и реалист [2013, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Твайнинг, представитель древнего и знатного рода, имеет все основания гордиться собственной родословной, природными талантами и учебой в лучшем колледже Англии. Как человек разумный и современный, он спланировал жизнь на годы вперед и спокойно шел к успеху, когда вдруг узнал, что дядюшка-опекун его благополучно разорил, не оплачен даже следующий семестр. Ректор (   Читать дальше...   )Производство: Doga Kobo / 動画工房Жанр: комедия, мистикаРежиссер: Кон ТиакиПеревод: YakuSub Studio (Nika_Elrik, Harushechka, KeeperRus)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3359F0DEB00BE7910875718F596B7E158A3B000E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594131   (179203) от 29.11.2022
 
 Negima!? Haru Special!? | Negima!? Magister Negi Magi: Spring | Волшебный учитель Нэгима! OVA-1 [2006, OVA] DVDRip 396p raw
@@ -515,7 +563,7 @@ Negima!? Haru Special!? | Negima!? Magister Negi Magi: Spring | Волшебны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179203.jpg" />
 </div>
 
 
@@ -539,7 +587,7 @@ Natsuki Crisis | Кризис Нацуки [1994, OVA, 2 из 2] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179222.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179222.jpg" />
 </div>
 
 
@@ -563,7 +611,7 @@ Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179226.jpg" />
 </div>
 
 
@@ -574,55 +622,6 @@ Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D626C17D67352AAF3EDCE441173D22021AA5EF9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593924   (179798) от 28.11.2022
-
-Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [2021, TV, 24 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция XIX века, мир, где бок о бок с людьми живут вампиры. Один из них - Ной - прибыл в Париж, чтобы отыскать некую проклятую книгу. Но во время инцидента, произошедшего на дирижабле, он знакомится с человеком, который называет себя вампирским доктором. Встреча с ним становится началом истории о проклятье и спасении.Производство: Студия Bones / ボンズЖанр: приключения, фэнтезиРежиссер: Итамура ТомоюкиПеревод: официальный (crunchyroll) 1-21, Anilinria 22-24Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687F36BAF1F3CDC783E8985911D056CB33F9A594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593545   (180422) от 27.11.2022
-
-Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца богов [2021, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна — 12-летняя девочка, рожденная потомком богов. У ее семьи есть миссия доставить подношения со всей Японии на собрание богов в Идзумо. Хотя мать Канны должна была завершить миссию, ее смерть побудила Канну закончить остальное, надеясь, что она сможет воссоединиться со своей мертвой матерью в стране богов в конце своего путешествия.
-Что такое месяц Камьяри? Японцы (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: драмаРежиссер: Сираи ТаканаПеревод: официальный (Netflix)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375A26FCB6691A7A6D93C348F9C3D5F3893F95ED
 ```
 
 

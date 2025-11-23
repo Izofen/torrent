@@ -1,3 +1,76 @@
+###  Публикация: 851711   (224624) от 20.12.2014
+
+Virtual CD 10.6.0.0 Retail [En/De]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания H+H Software сообщает о выходе новой версии программы Virtual CD 10, одного из лучших в отрасли эмуляторов оптических дисков. Среди нововведений программы – поддержка операционной системы Windows 7, модифицированный графический интерфейс, поддержка носителей Blu-ray и HD DVD, встроенные инструменты для записи данных, а также целый ряд других усовершенствованных (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9428C524391E520D02EB1325019D2BF1354E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965583   (224779) от 14.12.2015
+
+AOMEI Partition Assistant Professional Edition 6.0 WinPE [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aomei Partition Assistant WinPE – загрузочный диск для работы с дисками и разделами, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?”.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3B088C838535D7C7D76B1DF681FEC9FC82ED88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584106   (226047) от 17.10.2022
+
+WebDrive NextGen (ex. Webdrive Enterprise) 1.1.14 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_226047.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebDrive представляет собой мощный и простой в использовании FTP-клиент для подключения к удалённым FTP-серверам как к обычным локальным дискам.
+Утилита создаёт виртуальный диск, после чего происходит перенос данных с подключённого сервера на диск, из которого можно производить различные файловые операции (копирование, удаление, чтение/редактирование атрибутов и (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD421072CBE6AB6D898B6563E51448BC81E17DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342042   (226389) от 30.11.2019
 
 Free YouTube Download Premium 4.3.4.1127 [Multi/Ru]
@@ -6,7 +79,7 @@ Free YouTube Download Premium 4.3.4.1127 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226389.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Echosync 7.0.1.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227263.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227263.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Mindjet MindManager 21 v21.0.261 x64 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228021.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Compare Plugin for Notepad++ 1.5.6.2 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228293.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228293.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Active@ Boot Disk 14.0.0.4 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228484.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228484.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Aiseesoft FoneLab iOS 10.1.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228492.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228492.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Mindjet MindManager 2020 v20.1.231 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228495.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228495.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ R-Studio Technician 8.17 Build 180955  RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228668.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228668.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ ScanMyReg 3.2 RePack by tolyan76 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229062.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229062.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ Acronis Universal Restore 2016 11.5 Build 40010 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229127.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229127.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ Network Scanner 4.4 build 221 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229801.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230036.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Ashampoo UnInstaller 16.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230236.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230236.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ File Viewer Plus 6.1.0.60 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230243.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230243.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ MAX Desktop 25.15.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230247.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ SmartGit 25.1.093 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230267.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230267.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ Cisdem Duplicate Finder 4.1.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230326.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230326.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ Tenorshare 4DDiG 10.6.3.7 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230332.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230332.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ PDF Compressor 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230395.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230395.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ PDF Password Remover 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230400.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230406.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230406.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ Frappe Books 0.17.1 + Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230791.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230791.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ Ant Download Manager Pro 2.10.2 Build 86016 (акция Comss) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231234.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231234.jpg" />
 </div>
 
 
@@ -563,78 +636,6 @@ Ant Download Manager - отличный менеджер загрузки сам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635420   (232513) от 25.05.2023
-
-Photo Album GPS Mapping Tool 2.8.4.777 [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Album GPS Mapping Tool - это программа, которая поможет вам просмотреть GPS-координаты ваших фотографий на карте. Она способна легким движением извлекать данные о местоположении, хранящиеся в метаданных ваших фотографий, сделанных телефонами и планшетами, и отображает их на карте в стиле Google Earth. Вы также можете использовать эту разработку для добавления (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579793   (232546) от 28.09.2022
-
-Яндекс.Браузер для геймеров 22.9.2.1500 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F511326FD740EEA3769C084AD00C49619FCEC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579490   (232738) от 27.09.2022
-
-Universal Maps Downloader 10.103 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Maps Downloader - программное решение для скачивания карт заданной местности. Позволяет загрузить автономные карты созданные со спутников, которые также используются сервисами Google, Yahoo, Bing и Microsoft Maps.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999C2EB520AB33BC6B5D1836A05096F402A36712
 ```
 
 

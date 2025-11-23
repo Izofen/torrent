@@ -1,3 +1,159 @@
+###  Публикация: 969954   (143100) от 29.12.2015
+
+The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol ...
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Sebastian Bach (1685 - 1750)
+"Nun komm, der Heiden Heiland", BWV 62
+01. Chorus "Nun komm, der Heiden Heiland" (04:31)
+Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жанр: Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol, Chorale, Concerto Grosso, Pastorale, Kyrie, NoelПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272665   (143101) от 28.12.2018
+
+Надежда Чубарова | Слуга тьмы (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внецикловый роман.
+Так ли беззаботна жизнь колдуна, который с легкостью перемещается в пространстве и одним только взглядом вызывает огонь? И так ли безопасна встреча с себе подобным?
+Найдана ищет обычной тихой жизни, но сама жизнь постоянно напоминает ей, кто она есть на самом деле. И вот ей снова приходится переживать потери, сражаться с сильнейшими, бороться за (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E58CC7A23F49A796E65C055248145971DE363C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432354   (143103) от 28.12.2020
+
+Операция "Ы" и другие приключения Шурика (1965) DVDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из трех новелл, объединенных фигурой главного героя Шурика, попадающего в самые невероятные ситуации. В «Напарнике» Шурик сражается с хулиганом Верзилой; в «Наваждении» весьма оригинальным способом готовится к экзамену; в «Операции «Ы» предотвращает «ограбление века», на которое идет знаменитая тройка — Балбес, Трус и Бывалый.Производство: СССР / Киностудия «Мосфильм»Жанр: Комедия, Мелодрама, КриминалРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Селезнёва, Алексей Смирнов, Юрий Никулин, Евгений Моргунов, Георгий Вицин, Михаил Пуговкин, Виктор Павлов, Владимир Басов, Рина ЗеленаяСубтитры: Русские, английские, французские, испанские, немецкиеПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41192D331ED912EC6BED6B926F70C5E66C1F374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678746   (143104) от 22.11.2023
+
+Adobe Bridge 2024 14.0.1.137 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1C3F8B255678D92312C0370CEB659612471807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087859   (143105) от 29.12.2016
+
+Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  A Sultry Summer Day [00:05:08]
+02 -  My Toes in the Earth [00:05:18]
+03 -  I See Iris and Her Rose [00:05:07]
+04 -  A Starlit Summer Eve [00:04:49](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:54:21
+Лейбл: Davisounds - 763846976389
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970306   (143107) от 29.12.2015
+
+Afternova - For All Mankind (2015) [MP3|320 кб/с] <ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together Again (3:00)
+02. Winter Dust (3:43)
+03. As The Hero Returns (2:36)
+04. A Summer Day (4:51)(   Читать дальше...   )Жанр: ChillOutПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AC9DD4C94B3BA90FCC4B78D88F6619539379F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590618   (143108) от 17.12.2012
 
 Александр Белогоров | Явление Люцифуга [2007] [RTF, FB2]
@@ -6,7 +162,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143108.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143109.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143110.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143111.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ magnet:?xt=urn:btih:2FDB9EE93346CCAB5C5AD5B21AF21B3C235D3E79
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143113.jpg" />
 </div>
 
 
@@ -134,7 +290,7 @@ magnet:?xt=urn:btih:9428201C4DBBA2C70F0EF02C07D18AB22C7E7085
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143114.jpg" />
 </div>
 
 
@@ -158,7 +314,7 @@ VA - Moulton Music Presents Best Of 2018 (2018) [MP3|320 Kbps] <House, Soulful, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143115.jpg" />
 </div>
 
 
@@ -185,7 +341,7 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143117.jpg" />
 </div>
 
 
@@ -212,7 +368,7 @@ magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143118.jpg" />
 </div>
 
 
@@ -237,7 +393,7 @@ magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143120.jpg" />
 </div>
 
 
@@ -261,7 +417,7 @@ VA - Best Of Phoenix Music (2018) [MP3|320 Kbps] <House, Soulful, Funky>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143124.jpg" />
 </div>
 
 
@@ -288,7 +444,7 @@ magnet:?xt=urn:btih:224D46CC9DE528A950ABF4056EB8D8CABA12D201
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143125.jpg" />
 </div>
 
 
@@ -312,7 +468,7 @@ magnet:?xt=urn:btih:140F11E728647DBDFCFC8C47516CD672680C2AD5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143126.jpg" />
 </div>
 
 
@@ -336,7 +492,7 @@ magnet:?xt=urn:btih:D588E13B2CD3575DD9D50025F768D359142F86B1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143127.jpg" />
 </div>
 
 
@@ -360,7 +516,7 @@ YOHANE THE PARHELION -BLAZE in the DEEPBLUE- (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143128.jpg" />
 </div>
 
 
@@ -384,7 +540,7 @@ magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143131.jpg" />
 </div>
 
 
@@ -409,7 +565,7 @@ magnet:?xt=urn:btih:CBEEB1CFECC23ABC9CFFBEDF7B9383809E7AE060
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143132.jpg" />
 </div>
 
 
@@ -434,7 +590,7 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143133.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143134.jpg" />
 </div>
 
 
@@ -484,7 +640,7 @@ magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143135.jpg" />
 </div>
 
 
@@ -495,153 +651,6 @@ magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:429C25DF934C0F4BCB8741E21DC465129363146F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348459   (143136) от 28.12.2019
-
-Felix: The Reaper v.1.12.0 (2019) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феликс работает в Министерстве Смерти, а его возлюбленная, Дева Бетти, — в Министерстве Жизни. Феликс надеется, что, оказавшись в мире людей под личиной Мрачного жнеца, он обязательно встретится с ней. И вот теперь задача Феликса — обрекать людей на смерть. А чтобы покорить любовь всей своей (не)жизни, он учится танцевать.
-
-Поскольку Феликс может двигаться только (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 17.10.2019Разработчик: Kong OrangeПоддерживаемая ОС: macOS 10.11 и вышеЖанр: Adventure, IndyЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD2EA767BDDA2CC2A216E36A168E8B619939E78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970194   (143137) от 29.12.2015
-
-Е. Левашева (ред.) | Встречаем вкусно Новый год. Праздничные блюда и сервировка (2015) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы главный зимний волшебник не обошел ваш дом стороной и наступающий год сложился наилучшим образом, нужно встретить его как полагается! Украсить дом, накрыть стол нарядной скатертью – новой или «счастливой», достать парадную посуду… А мы вам подскажем интересные идеи сервировки, подарков и сюрпризов для гостей и близких, предложим рецепты новогодних блюд, большинство (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D40A751FFEFF4243F067151F069BAB0DC49CA6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678690   (143139) от 22.11.2023
-
-Keep It 2.3.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2004 - 2023 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D50891683AC0BA5807428995AE7B9ED382F1D49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435618   (143140) от 28.12.2020
-
-Проекты - VideoHive - Christmas Magic - 25045726 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143140.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas Magic» - это шаблон After Effects премиум класса к Рождеству.
-Не тратьте время на поиски Рождественских видеопоздравлений. Просто используйте эту волшебную Рождественскую открытку, которая хорошо организована и легко настраивается. Все, что вам нужно, просто добавьте текст и вставьте свой логотип.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE98E31B88737FC6BA6848F63D3A768CD2A3475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286136   (143142) от 22.11.2023
-
-Теофиль Готье | Эмали и камеи (2007) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готье Теофиль (1811–1872) – блестящий французский писатель, поэт  и критик, духовный отец парнасской школы, авторству которого принадлежит идея программы «искусства для искусства», бунтарь-романтик, «Заблудившийся в литературе живописец», как его называли. Готье хотел жизни, но без реальных конфликтов и «пошлости» и выбрал роль фрондирующего «романтического варвара», (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: МедиаКнигаПродолжительность: 03:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0B111CAF058F5383EDF359E96446D97C99EB69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088089   (143144) от 29.12.2016
-
-Default Folder X 5.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B137A0A4B7504823F83F3859596F6963FEFC1D
 ```
 
 

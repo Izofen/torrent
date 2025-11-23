@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Moon+ Reader Pro v9.8 (build 908000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30358.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:476F76E2815CC78A07B6DC845445C3F291FFC584
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30359.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Pepakura Designer 6.0.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30360.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Macrorit Disk Scanner 7.1.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30361.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E0F44A5F3AD9E540D22FC94E1FD599BADDD0D216
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30362.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6BA6EFB8900538A0149AA85F4EB0BD8CAEF4E824
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30363.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30363.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30364.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30364.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ v2rayN 7.7.0 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30365.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30365.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:37BA0A3874B2F37DB4A925FDB9B3180F04D8271C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30366.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:82C1EF3CDD05DF8FB6123C066C45E1D8716AA61E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30367.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:109BE110A01872842644A8EADFDF4CD67E056AF1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30368.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:72519B5A3FDE96EB5C897157F31A67926EECF425
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30369.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:8A72A8106C44A76526FE98B2BBC20FF3B8BD6FAB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30370.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30370.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30371.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:655CBF489656BE81EB879F7B1F35AF3FF2344EB1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30372.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30372.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:ACD3EB262A37AFC7491234B69A0719F47D9A7D3B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30373.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30374.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Movist Pro 2.11.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30375.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30376.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:ACFB47624BA9BBCA11D537F81C6C9B396CCDA65F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30377.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30377.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:C7BAAD54C2EFAB343F1361114B39C13321E94322
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30378.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:6A927B17D5A0EEC861D781349483E896B9AAE28A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30379.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:14597F58BFA62F9D47865ADD545D962E83D14EA7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30380.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Reg Organizer 9.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30381.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:8990D684419A3707EF675AB054103AC3C8301898
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30382.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30382.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126587.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126611.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - VK ПОД ШУБОЙ 2 (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126639.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Новый год с Первым музыкальным 2024 (2023) [MP3|3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126665.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Christmas Time Is Here:  The Greatest Holiday Songs (2023) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126765.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126877.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Bravo Hits 12 (1996) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126895.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126897.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126907.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Michael Cretu - Ausgewahlte Goldstucke (1994) [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126923.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kylie Minogue - Extension (The Extended Mixes) (2023) 2 x CD [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127088.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ NeoMaster - Марафон (2006) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127369.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127389.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127422.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0A1D84C8D61CA605B89D6457420EECA8F4A6B281
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127585.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127640.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127811.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5F2D86854D8F2741BC6EDA097A8361ECEBD0EC40
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127965.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Bravo Hits 11 (1995) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127994.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Siobhan Donaghy - Revolution In Me (2003) 20th Anniversary Edition, 2023, London
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128101.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A926792776A8469571A27D3CD45981407F96E796
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128108.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Edith Piaf - Symphonique (2023) [FLAC|Lossless|image + .cue] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128113.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:9E1B2ED7344BCC6B8834AE3BD92D08C7F6954D3E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128118.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Eddy Huntington - Bang Bang Baby (1989) Reissue, 2023, ZYX Music (2) [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128146.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:70598A9CA9794C50BF9205AE51756231E8424F93
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128295.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ EMIN - 44 (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128395.jpg" />
 </div>
 
 

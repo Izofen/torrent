@@ -1,3 +1,84 @@
+###  Публикация: 1729292   (108108) от 10.06.2024
+
+Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely-Lonely (6:47)
+02. Ragged Soul (7:16)
+03. Once So High (4:22)
+04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13042C4FA5EB599F7AD2AFF4B180565D1D91EB53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729150   (108109) от 10.06.2024
+
+Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I See Your Face (5:00)
+02. Summer Blues (5:00)
+03. It Seems to be the End (5:00)
+04. Sneaking Around (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441FFD2FB6D2955920FA922CCCE7411CAF616A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729154   (108110) от 10.06.2024
+
+Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 Blues (5:48)
+02. Spring Swing (3:50)
+03. Candlelight Memories (4:38)
+04. Bel-Stones (Doodle Cats Theme Song) (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E27E423DDDA8CDCAA497BD5E50D802D2E727272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729158   (108111) от 10.06.2024
 
 Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Technical Brutal Death Metal>
@@ -6,7 +87,7 @@ Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108111.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108112.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Gone til Winter - Hiding from the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108113.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ magnet:?xt=urn:btih:73C8E86DC7C26D97146E7861AA78CF4874E804D4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108114.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ magnet:?xt=urn:btih:8B9D42D954D868443360584631A15D52C58E80EA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108115.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Discotron, Sandy's Groove - Crying At The Discoteque (2022) [FLAC|Lossless|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108116.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ VA - DJ Hits 40 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108117.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ magnet:?xt=urn:btih:98CFB0AA54DEB38FD66A99D12C2592F5754590CA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108118.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108119.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ magnet:?xt=urn:btih:E999F11E89425E99A08FE2523F38F2588C9767C9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108120.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108121.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ Joanne Shaw Taylor - Heavy Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108122.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Lucassen & Soeterboek's Plan Nine - The Long-Lost Songs (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108123.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108124.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108125.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108126.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108127.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108128.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108129.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108130.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108131.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ magnet:?xt=urn:btih:F84D2BCFEEBAEC58CA4007807718DD126FE31482
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108132.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ magnet:?xt=urn:btih:1C6417327A47206C6585005FD6D3C31E2FA55643
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108133.jpg" />
 </div>
 
 
@@ -592,82 +673,6 @@ magnet:?xt=urn:btih:1C6417327A47206C6585005FD6D3C31E2FA55643
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:646DF8393733619F166524794342127F6DB863C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729252   (108134) от 10.06.2024
-
-Иеромонах Елпидий | Пророчества. Сценарий конца времён (2023) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикуемая беседа (2013 года) современного греческого подвижника иеромонаха Елпидия содержит эсхатологические пророчества о событиях и знамениях приближающегося конца времён существования нашего мира. Автор-современник упоминает всем хорошо знакомые из СМИ реалии духовного, экономического и политического кризиса современности, которые верующий христианин сможет (   Читать дальше...   )Жанр: Духовно-просветительное изданиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6380D868E4DC9592C4E0702525F99EB8413EEA87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729305   (108135) от 10.06.2024
-
-VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - Lost Island (432 Hz) (4:06)
-02. Marc Hartman - Crystal Sea (5:16)
-03. Ljay - Let Me Chill (3:58)
-04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D37CE617AC881A74118DE9150AD2445CD9E73BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729214   (108136) от 10.06.2024
-
-The Distance And Franky Miller Feat. Easi - Crying At The Discotheque (2023) [FLAC|Lossless|tracks] <Electro House, Electro-Disco, Nu-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying At The Discothèque (00:02:20)
-02. Crying At The DiscothèqueЖанр: Electro House, Electro-Disco, Nu-Disco, Synth-PopПродолжительность: 00:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6408DA0A6FFE1828B14C875DF72F46ED2FE8EB
 ```
 
 

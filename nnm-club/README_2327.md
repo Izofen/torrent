@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:427D9E27BE4F66F55152641649E3B9B5E1E066EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60868.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:753DB94B69F71E72D1F6AD545B9F1878CF1DD385
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60869.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:81F63019A39624A35226C194B3BED51D5C54FBAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60870.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AEBA949752489A0BE87A9377F09BEDF6615C66E2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Bigasoft Audio Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60872.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60873.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:4CD248FA5FF7376EF395105742A0490F04AE7F33
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60874.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Kingston SSD Manager 1.5.4.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60875.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ StartAllBack 3.7.8 build 4901 (DC-02-04-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60876.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:49006FA88657C780E98F7D1FA698E429A1E57CA4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60877.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ FileOptimizer 16.60.2819 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60878.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E07ECC70BF8FB492FB1FCBB2F5BFB5E40075228A
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60879.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60880.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Acrobat Reader 2024.001.20643.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60881.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:435CDDC6F02407D9718464ADC2A7CE87BF342CE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60882.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.1 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60883.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:43C5B624C43111DEC68DBB41BDF73D2B9F12E777
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60884.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:651416450149460A61725629937CF26E743993C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60885.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Cisdem PDFMaster 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60886.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:BE785D8E6215ECBACB3297C122B26F82337ED062
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60887.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Bigasoft Total Video Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60888.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:DF8B1E3D1D9CDE7FC01D178C65764BAB91F30AC5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60889.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:B76A49D63B13688CB1E8328EE4984EB1C9674E73
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60890.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:8FF9D05579372B455426E3AEC983AAE939EE56FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60891.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Midori Browser 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60892.jpg" />
 </div>
 
 

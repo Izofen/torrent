@@ -1,3 +1,84 @@
+###  Публикация: 1686181   (126729) от 21.12.2023
+
+Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chainsaw Death 03:00
+2. Injected Corpse 05:31
+3. Hooks in Flesh 03:50
+4. Assimilated Life 06:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEB001DD4F5C9633827770F8C76DB36EA756D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685976   (126730) от 21.12.2023
+
+Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Recordings [FLAC|Lossless|image + .cue] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffer In Silence
+02. Sacraments Of Retribution
+03. Johnny Law Die
+04. Accuser Of Brethren(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E8A5DFBFB26DB72171E0BA8883BD4377A839D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685906   (126731) от 21.12.2023
+
+Uncircle - Via Dolorosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Dolorosa [00:03:26]
+02. Social Death Works [00:03:43]
+03. #JeSuis [00:03:07]
+04. Behind The Smile [00:03:47](   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB81EF82611DA44024AE0B2B440EFBD68DED2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686124   (126732) от 21.12.2023
 
 V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
@@ -6,7 +87,7 @@ V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126732.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:66A1286BB056540B39DF5BA02E9F38B142A103F4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126733.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126734.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ PhotoRoom 4.7.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126735.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:5EF3F3AC57748A50156144C1DD49B7D0B299608E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126736.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ magnet:?xt=urn:btih:DDD8DD417487322605810336EB37FC67AE3E2DA4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126737.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:FA8F8CFB3D88F5D1D68E79855C61F7A7760A1C46
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126738.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:0AB00DC7D3533E338A1D5080734D8300A23746B6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126739.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ magnet:?xt=urn:btih:95B07D899F454F779118684AFFEEA59C104AD7E3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126740.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ Demon - The Plague (1983) Japanese Edition, Reissue, Remastered, 2020, Rubicon M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126741.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ magnet:?xt=urn:btih:5896102D0F1FF029B20BA2DF8CF6096474373DF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126742.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ magnet:?xt=urn:btih:F6E43CEB0DA96A31A7BAC80ADE75317BF9B35D71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126743.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ DGonemanband - Clown Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126744.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ Darnell Cole & The Vibe - A Man Of Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126745.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ David Place - Lyrics for Pauline (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126746.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ magnet:?xt=urn:btih:B0E0FFA7444C7D2C5A8A77BD9AA2AF8188FCEE8C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126747.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126748.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126749.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126750.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBH
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126751.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126752.jpg" />
 </div>
 
 
@@ -544,7 +625,7 @@ magnet:?xt=urn:btih:18F059BC6F57C11AB2F3CFC60A070072CDBB06CA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126753.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ magnet:?xt=urn:btih:0380BC76D6294F230E81E9DE7F842737D8DF6F65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126754.jpg" />
 </div>
 
 
@@ -580,84 +661,6 @@ magnet:?xt=urn:btih:0380BC76D6294F230E81E9DE7F842737D8DF6F65
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2B646A049440961F811FA5A66717F7A2D058E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686088   (126755) от 21.12.2023
-
-VA - Music News vol.325 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. sozONik - Я Верила (02:20)
- 002. ADO - Сон (02:14)
- 003. Alina Eremia - Dans (02:39)
- 004. Alina Eremia - Nu Te Mai Astept (Chopin Remix) (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D840E1E52AEA6EFB1B1A9F018E8E2A4D0AA78D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675822   (126756) от 21.12.2023
-
-У меня проблема / Bir Derdim Var (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) SesDizi
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал является ремейком итальянского сериала "Oltre La Soglia". Он расскажет о реабилитации группы молодых ребят, некоторые из которых являются преступниками, в клинике при поддержке доктора-психолога Нилюфер.Производство: Турция / AyNA YapimЖанр: драмаРежиссер: Бурак МюждеджиАктеры: Бирдже Акалай, Мерт Фырат, Энгин Хепилери, Эрдем Ченочак, Башак Гюмюльджинелиоглу, Неслихан Арслан, Идил Сивритепе, Шеннур Ногайлар, Угур Карабулут, Ата Артман, Эзги Гёр и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5DB7347C5AE51BEBF463BDEE29E7C05350FAA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686176   (126757) от 21.12.2023
-
-Animal ДжаZ - Корни (2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никогда
-02. Оранжевый Дао
-03. Лёд.жесть
-04. Уходишь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A66F2CEF483FAACF197CE0BED0EC5DD04CBD14E
 ```
 
 

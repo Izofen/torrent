@@ -1,3 +1,75 @@
+###  Публикация: 489880   (102018) от 29.04.2012
+
+Железная леди / The Iron Lady (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102018.jpg" />
+</div>
+
+
+###  Подробнее
+
+События картины развернутся в 1982 году. Тогда премьер-министр Великобритании Маргарет Тэтчер пыталась спасти свою карьеру накануне Фолклендской войны.Жанр: Драма, БиографияРежиссер: Филлида ЛлойдАктеры: Мэрил Стрип, Джим Броудбент, Сьюзэн Браун, Элис Да Кунья, Фиби Уоллер-Бридж, Айэйн Глен, Александра Роач, Виктория Бьюик, Эмма Дьюхерст, Оливия КолманПеревод: Одноголосый закадровый Ю.СербинПродолжительность: 01:44:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489881   (102020) от 29.04.2012
+
+Софья Прокофьева | Не буду просить прощения (Радиоспектакль) (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один упрямый капризный мальчик Вася обидел свою маму и не стал просить прощения. И тогда в город, где жил Вася, пришли Великие Холода. О том, что приключилось с Васей, и чем закончилась его удивительная история, вы узнаете из данной сказки.Жанр: Детская литератураИздательство: запись эфира Детского радио
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3981C89E80E8B18C2BB9A882D2639069A00A50A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489668   (102023) от 29.04.2012
+
+Изумрудный лес / The Emerald Forest (1985) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия фильма — бразильские джунгли. Племя индейцев похищает пятилетнего мальчика, в то время как его отец, американский инженер, занят строительством дамбы. В течение десяти лет отец ищет сына, и после многочисленных приключений, полных экзотики, они встречаются в дебрях Амазонки.Жанр: Приключения, Драма, БоевикРежиссер: Джон БурменАктеры: Пауэрс Бут, Мег Фостер, Яра Вано, Уильям Родригез, Эсте Чэндлер, Чарли Бурмен, Дира Паис, Эдуарду Конди, Ариэл Коэлью, Питер МаринкерПеревод: Профессиональный многоголосыйПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B9AC8F6256C3CE14278CF9968EC5F162156FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489713   (102025) от 29.04.2012
 
 Владимир Бутромеев | История в лицах детям: Великие правители России [2012] [MP3]
@@ -6,7 +78,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102025.jpg" />
 </div>
 
 
@@ -35,7 +107,7 @@ magnet:?xt=urn:btih:C0D0E8DBE17666A4D620BF93F5EE648069E1D8ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102026.jpg" />
 </div>
 
 
@@ -59,7 +131,7 @@ magnet:?xt=urn:btih:73DADA686028D28FB8D983D2D063374D007B6005
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102029.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102032.jpg" />
 </div>
 
 
@@ -116,7 +188,7 @@ magnet:?xt=urn:btih:9CF6F669DD6876F102E62F8F6623661F905B8E44
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102033.jpg" />
 </div>
 
 
@@ -140,7 +212,7 @@ magnet:?xt=urn:btih:D784BCD801EC95921CBD6BEC19EACB072356257D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102035.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102035.jpg" />
 </div>
 
 
@@ -164,7 +236,7 @@ magnet:?xt=urn:btih:D784BCD801EC95921CBD6BEC19EACB072356257D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102036.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ magnet:?xt=urn:btih:429CF78CE589CE6451453F6FE9F83AFECC1AF9C5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102042.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ magnet:?xt=urn:btih:705BD37C4045597F63E7388EC25153FF070B4D3A
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102043.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ magnet:?xt=urn:btih:041A3B3AE27B472EDBB7C0E31CA304DD2D1AC184
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102044.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102044.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ magnet:?xt=urn:btih:041A3B3AE27B472EDBB7C0E31CA304DD2D1AC184
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102046.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ magnet:?xt=urn:btih:8B8385BFE2BDB180212D152F56919E8CC4373FCC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102049.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:DEC9EA22CC88DB294F790E8B0B8723D5F0F71718
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102050.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:6E1150A88F20C7AEBAA8C9F0E11C6FF30EC3B365
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102051.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102053.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102053.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102059.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102059.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102062.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102063.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102063.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102064.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102064.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102067.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102068.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102068.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:55042C2EF252FD1A30B10B05F20A00943E4C26EA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102069.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:269580D4ECF5EF0AC4ECA8EAA0F120AD20FDA06B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102072.jpg" />
 </div>
 
 
@@ -572,88 +644,6 @@ magnet:?xt=urn:btih:269580D4ECF5EF0AC4ECA8EAA0F120AD20FDA06B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB0578CAAA534B15366F7907324037F930AB5E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489428   (102074) от 29.04.2012
-
-VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Real O - Луна (Я В Белом Платьице)
-002 Marina and The Diamonds - Primadonna
-003 T-Killah feat. Виктория Дайнеко - Mirror Mirror
-004 LMFAO - Sorry For Party Rocking
-005 Elvira T - Все Решено (Rodion Gordin Remix Radio)
-006 Mishelle feat. Randi - Feels So Good (Radio Edit)
-007 Влад Соколовский - Ливни
-008 Aura Dione feat. Rock Mafia - Friends
-009 Иракли и Даша Суворова - Нелюбовь
-010 Madonna - Masterpiece2012Жанр: PopПродолжительность: 05:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F816AB9F600C2D6A12AAA401BB5FBE1F9BD52A96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489915   (102075) от 29.04.2012
-
-Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jungle Strike – это доведенный до ума Desert Strike, пусть и с энным количеством новинок. Геймплей, по большому счету, остался без изменений. Нам всё так же предстоит управлять вертолетом, у которого кончаются топливо и патроны, запасы которых нам надо постоянно пополнять, а также получает повреждения броня, которую надо восстанавливать. На мой взгляд, очень удачным нововведением стало появление новых транспортных средств. Это просто находка, которая в свое время не дала серии Страйков превратиться в средненькую «мыльную оперу» и затеряться на просторах посредственных игр.Тип издания: RePackЖанр: Аркадная леткалкаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489659   (102079) от 29.04.2012
-
-Сваты. Нам 5 лет! (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102079.jpg" />
-</div>
-
-
-###  Подробнее
-
-За пять лет зрители прожили со сватами пять телевизионных сезонов. Иван, Валюха, Ольга, Анатолич, Женек, Беркович, Митяй и многие другие герои стали родными миллионам телезрителей.
-На концерте соберутся все главные виновники торжества –  члены большой и дружной семьи. Зрителей ожидает большое количество сюрпризов, музыки и шуток. Актеры сериала исполнят полюбившиеся песни из фильма, расскажут интересные и занимательные истории и преподнесут множество веселых подарков. Ведущими юбилея будут Владимир Зеленский и Евгений Кошевой. Компанию актерам составят популярные коллективы и исполнители: группы "Дискотека Авария" и "Город 312", Леонид Агутин, Ани Лорак, Сосо Павлиашвили.Жанр: ТелепередачаВ ролях: Ольга Аросева, Владимир Зельдин, Татьяна Кравченко, Федор Добронравов, Людмила Артемьева, Александр Феклистов ,Николай Добрынин, Олеся Железняк, Соня Стеценко, Анна КошмалПродолжительность: ~ 02:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37F7EB8023043201B620A6F5911045E4FB7F531
 ```
 
 

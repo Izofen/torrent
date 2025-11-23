@@ -6,7 +6,7 @@ HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122541.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122589.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ MP3 Encoder 2.18.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122731.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Pro Audio Converter 1.9.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122762.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122801.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Little Snitch 5.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122871.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Tagr 5.6.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122896.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Speedio: Internet Speed Test 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122938.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ iON: Internet Status 5.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123060.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ TransData: Internet Data Speed 3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123066.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Butler 4.4.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123071.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ EzyCal: Time & Date 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123073.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Clipsy: Clipboard Manager 2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123074.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cover Desk 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123075.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Translator App : Linguist 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123076.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.5.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123078.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Alarm Clock Pro 15 v.15.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123087.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ FonePaw iOS Transfer for Mac 6.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123115.jpg" />
 </div>
 
 

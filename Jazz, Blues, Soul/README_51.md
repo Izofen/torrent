@@ -6,7 +6,7 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96512.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96531.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96543.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96555.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96556.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96569.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96646.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ David "Fathead" Newman - Davey Blue (2001) [FLAC|Lossless]<Hard Bop, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96686.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96686.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96784.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96784.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96820.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96820.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97145.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Anna Luca - Listen And Wait (2012) [MP3|320 кб/с]<Acoustic, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97384.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97453.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Herbie Mann, Phil Woods -(2 альбома) [WMA, MP3|128 - 192 Кбит/сек]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97536.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Gustav Lundgren - Plays Django Reinhardt (2012) [MP3|256 кб/с]<Gypsy Swing, J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97701.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Steve Turre - Woody's Delight (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97846.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:517DF82C6503A9EDC89C248A9F08E643F7D05980
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98040.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98052.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98057.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98057.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98067.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Jazz Legends 3CDs (Collection) (1998) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98071.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98073.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98077.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98081.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98081.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98153.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98153.jpg" />
 </div>
 
 
@@ -798,7 +798,7 @@ Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy List
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98264.jpg" />
 </div>
 
 

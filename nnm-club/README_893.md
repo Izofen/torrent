@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23555.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9E51D79DEF8B35BD5C9ED2CAF179C38FAFD1CCEB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23556.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23556.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ WPS Office + PDF v18.16.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23557.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23557.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3574B299FE45BFDD6A64042EF44E956D7BF2A5FF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23558.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3BC5D64C53CECBF48B02E81EF1211E319FF14515
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23559.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7C8514C99EF27EE14996299DC400F565E7FAE61E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23560.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23560.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23561.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ RAR for Linux 7.11 [x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23562.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23562.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23563.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23564.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8F63BAA5D112E8AFD04E8B2619FD04FC8FCF8616
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23565.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ HDCleaner 2.089 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23566.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:596EFF7568D344F12517FB12DFC7E754A8899B20
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23567.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.10.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23568.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23569.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:3C2C53A368286D96A379959E5A56A5C5FFBE25F1
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23570.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:411DC8580AA1CB38E4EED7C1317375F5ECA070A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23571.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23572.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:F5E000E9840C20EE48983CEDCA607E5139C1BA35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23573.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23573.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:16D8C58373A365DE99152989BC5086ADDDB15123
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23574.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23575.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23575.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23576.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23576.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23577.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23577.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23578.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Udemy, Hussein Nasser | NodeJS Internals and Architecture (2025) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23579.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23579.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23580.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23580.jpg" />
 </div>
 
 

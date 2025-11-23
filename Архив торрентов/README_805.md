@@ -1,3 +1,76 @@
+###  Публикация: 1346487   (163661) от 19.12.2019
+
+YTD Video Downloader PRO 5.9.13.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163661.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC4378419E09FA29AB247880C19A739A5D69BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673641   (163663) от 02.11.2023
+
+IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BE5417E9730ED5DB050F7312E74EB9F9DE217C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517230   (163664) от 14.12.2021
+
+SILKYPIX Developer Studio Pro 10E v10.0.17.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163664.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощное приложение, которое предназначено для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D73CDD50F4858D887EFE06100E0F1DECFB1F9E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432407   (163667) от 17.12.2020
 
 Bandicam 5.0.0.1796 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +79,7 @@ Bandicam 5.0.0.1796 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163667.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Olly James - Live @ Rave Culture Liveset, Netherlands (2021-12-05) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163671.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:37885A97299029BA43E38A6ED36CDC084280B79C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163676.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Comodo Dragon 79.0.3945.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163682.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Adobe After Effects 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163689.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Wise Program Uninstaller 2.3.9.143 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163692.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ DoYourData Start Menu Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163696.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163697.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Cockos - REAPER 6.02 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163706.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Process Lasso Pro 9.5.0.40 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163711.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ Pixelmator Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163714.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ Ashampoo WinOptimizer 18.00.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163715.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Nox App Player 7.0.0.8003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163724.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ LibreOffice 7.0.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163728.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ Imperator: Rome v.1.3.2 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163741.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ Donemax DMmenu 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163753.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ Pixelmator 3.9 Classic [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163756.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ LiteManager 5.1 (5105) Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163757.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ MacClean360 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163759.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ Adobe After Effects 2024 24.0.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163761.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Chromium 79.0.3945.88 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163763.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ PCalc 4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163767.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:6C2B0892B33FDB0C5BB317C208DA3FDE8665244E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163772.jpg" />
 </div>
 
 
@@ -553,82 +626,6 @@ magnet:?xt=urn:btih:6C2B0892B33FDB0C5BB317C208DA3FDE8665244E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7ACB131D36FA932283563AE6D331A209810E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346493   (163780) от 19.12.2019
-
-PTE AV Studio Pro 10.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163780.jpg" />
-</div>
-
-
-###  Подробнее
-
-PTE AV Studio Pro - дальнейшее развитие программы PicturesToExe Deluxe.
-Используя PTE AV Studio вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск.
-К каждому слайду можно добавить текстовый и звуковой комментарий (wav, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA0541C0B04CB5A7174D52E2930DCB23C3ADCD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346289   (163784) от 19.12.2019
-
-Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Калгари Флэймз (17.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163784.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 декабря 2019 года, среда 05:00 МСК
-Стадион: Скотиабанк Саддлдом (Калгари, Канада), 18 412 зрителей (95 % при вместимости 19 289)
-Главный судья: Гарретт Рэнк (Канада); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5080702001768A9DF9D4EB3F9B4D6BB4DADF38E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517164   (163796) от 14.12.2021
-
-Sublime Merge Dev Build 2065 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C710E15F237FC10BC5B01DD7FC2BE0138A8487
 ```
 
 

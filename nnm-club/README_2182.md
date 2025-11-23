@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57098.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:272D59F2BD49EE33AB62CA4F05937A4D11F4F19F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57099.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E24F1027990D3747A6C368206D8CED96BCD31460
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57100.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Advanced SystemCare Pro 17.4.0.242 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57101.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57102.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57103.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57104.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PDF-XChange Editor Plus 10.3.0.386 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57105.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B8501B1F68D0BD3166FBC00F3BE139C18AAD93E9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57106.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:13AF0754AB07045D541F3088EDED9AFC7367F298
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57107.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0CCF176C994D85BC0FF9C266344A60DD2012E9F6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57108.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:72C7741972E54271E36010659BAC627F134E9012
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57109.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2AC4FC8875639144FCD75025D2FB78244A9701A8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57110.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:99D903BBBF989E71D691241108A9770F00B1B695
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57111.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:81EBDFF5C59632D9480C1011C3AD6A5D1033385A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57112.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:81EBDFF5C59632D9480C1011C3AD6A5D1033385A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57113.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:501D998286A9D98FF54969FB154DDC352B79AF4F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57114.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B03BAE9D3E8C50BC1F997A7CDB009959E365F512
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57115.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:672C0A7EEBA60797BC1C21525A43215C12D06AA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57116.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:001F96A34CA1860C9B4A15F306977396FE00D4A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57117.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Divinity Chronicles: Journey to the West (2023) [Multi] (1.14.20b/dlc) Scene Ten
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57118.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C80AA8FBA71A62710B6FD0225F87E5DA74DC8C03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57119.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Udemy, Александр Малейко | Тестирование API (Postman
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57120.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B46BBA99FB035DFBB810EB324DCBBDCE15B7148D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57121.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F8F314EF17CF4AFB2F54EC68A04EC209D64DED5B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57122.jpg" />
 </div>
 
 

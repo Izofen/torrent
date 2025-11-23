@@ -6,7 +6,7 @@ Microsoft Activation Scripts (MAS) 3.5 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7016.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 142.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7109.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare UniConverter 16.5.9.323 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7120.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ USB Device Tree Viewer 4.6.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7123.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bandicam 8.2.0.2524 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7126.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser ESR 115.27.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7132.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:ED88C43E78200D48302C21828D692A74982C5ED2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7139.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FxSound 1.1.34.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7151.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Cent Browser 5.2.1168.76 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7153.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ XYplorer 27.10.0500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7262.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Fort Firewall 3.19.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7281.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Google Chrome 139.0.7258.128 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7296.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ R-Drive Image Technician 7.3 Build 7308 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7305.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Advanced Renamer 4.15 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7311.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIDA64 v2.11 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7318.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Flyoobe 1.2.152 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7328.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Display Driver Uninstaller 18.1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7351.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:777110A26C6A38EDEAC450C35DC4CE6A8079CF9B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7356.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:739004F63943C9E33192A9D87664D777F095BFE4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7358.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cent Browser 5.2.1168.75 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7371.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7383.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7411.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:EACB51E7F35CE58D813BF0E87EC99381F889B187
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7508.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FacePic - AI Face App v2.6.3 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7512.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Any Video Downloader Pro 9.3.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7527.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:046C0ACAE0408A5FC1D2FAC0912C337263CE8A0D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7561.jpg" />
 </div>
 
 

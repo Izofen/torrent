@@ -1,3 +1,83 @@
+###  Публикация: 1681698   (132338) от 04.12.2023
+
+Квартирник у Маргулиса. Группа «25/17» (03.12.2023) WEBRip [H.264/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь пойдет о группе, которая одной ногой в рэпе, одной в русском роке.
+«25/17» – российская группа, играющая альтернативную музыку. В начале творческой деятельности коллектив играл традиционный рэп, однако по мере взросления музыканты стали00:00:05 Подорожник
+00:04:27 Русская
+00:09:42 Пограничник
+00:18:19 Шей меня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альтернативный рок, хип-хопЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC30CD4BC90B7E1F0C9727102AD8180CB157D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681748   (132339) от 04.12.2023
+
+VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma - Save Me (3:33)
+02. Gordo - With You (5:29)
+03. Franky Wah - Lost In Space (7:33)
+04. John Summit - Where You Are (3:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681762   (132340) от 04.12.2023
+
+NIUBI Partition Editor 9.9.0 Pro / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132340.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662A38A16A7411EE94093F49339830C2E19027F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542714   (132341) от 28.12.2012
 
 Линн Бейли, Майкл Моррисон | Изучаем PHP и MySQL [2010] [PDF] + CODE
@@ -6,7 +86,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132341.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132342.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132344.jpg" />
 </div>
 
 
@@ -81,7 +161,7 @@ Far Cry 3 Deluxe Edition [Ru] (RePack/1.04) 2012 | Fenixx
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132345.jpg" />
 </div>
 
 
@@ -107,7 +187,7 @@ magnet:?xt=urn:btih:DED3ACFB35E6891F34354DAD3FF4ACB9FA932E34
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132346.jpg" />
 </div>
 
 
@@ -131,7 +211,7 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132348.jpg" />
 </div>
 
 
@@ -158,7 +238,7 @@ magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132350.jpg" />
 </div>
 
 
@@ -182,7 +262,7 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132352.jpg" />
 </div>
 
 
@@ -206,7 +286,7 @@ Recovery Partition for Lenovo G480 / Windows 7 Home Basic (х64) SP1 [русск
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132353.jpg" />
 </div>
 
 
@@ -232,7 +312,7 @@ Recovery Partition for Lenovo G480 / Windows 7 Home Basic (х64) SP1 [русск
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132354.jpg" />
 </div>
 
 
@@ -256,7 +336,7 @@ magnet:?xt=urn:btih:D416E39A3253353A236C10150342C4FD5DCC4AF2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132357.jpg" />
 </div>
 
 
@@ -280,7 +360,7 @@ VirtualDub 1.10.3 Final Portable by SamLab [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132358.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132360.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ SoundHound∞ 10.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132362.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ Macrorit Partition Expert 8.1.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132364.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ Another / Иная [2012, TV, 12 из 12] BDrip 1080p raw + rus x2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132365.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ Revo Uninstaller Pro 5.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132366.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ TeleInet 1.52 Portable [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132367.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ VA - Michiel Van Der Kuy Dance With Me  Ultimate Collection Part 3 (2022) [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132368.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ magnet:?xt=urn:btih:5E00860A7B3897682F8B9DFE1410B03B43634934
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132370.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ magnet:?xt=urn:btih:54D0A22F11EDEA3B896743A0D459E1C65CFC165C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132371.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132372.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132373.jpg" />
 </div>
 
 
@@ -572,85 +652,6 @@ magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B46985102AF6E4E3987F3B6CBAF68DFF2E10D23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681853   (132374) от 04.12.2023
-
-PortableApps.com Platform 27.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132374.jpg" />
-</div>
-
-
-###  Подробнее
-
-PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
-
-Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7528B26EDFCDFD7735E6F2C4B042C6ADE6A7CD3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595240   (132375) от 28.12.2012
-
-Singularity [Ru/En] (L/1.1) 2009
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами. Оказавшись в этом странном, постоянно меняющемся месте, где внезапно происходят скачки во времени, игроки пройдут серьезные испытания. Используя мощное оружие и уникальное экспериментальное устройство — мобильный временной преобразователь, они будут сражаться с врагами в прошлом и в настоящем, уничтожать кошмарных тварей в параллельных измерениях. Однако самая главная и сложная задача — найти способ предотвратить страшную катастрофу в 1950 году, чтобы в 2010 году все вернулось на круги своя.
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F2939D4F1B19CAACF6165B3877C56A4312CB62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681765   (132376) от 04.12.2023
-
-Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Set Free
-02. Alive
-03. One Million Bullets
-04. Move Your Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121DC070CFCBCAF566638B8CD58F35BB44B6E989
 ```
 
 

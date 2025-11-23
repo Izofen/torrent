@@ -1,3 +1,88 @@
+###  Публикация: 487093   (100276) от 23.04.2012
+
+[Wallpapers] Wallpapers - Miscellaneous topics (24.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486619   (100277) от 23.04.2012
+
+Нильс (REGATO) - Зима (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима
+02. Простуда (feat. LowKick)
+03. Минус
+04. Солнце
+05. Не про тебя (feat. Никита Стихами)
+06. Периметр чувств (feat. Спрут (REGATO))
+07. За глаза
+08. Она запомнит
+09. Нечто
+10. Эксперимент(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487120   (100280) от 23.04.2012
+
+[Wallpapers] HD Wallpapers №20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100280.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №20
+Название: HD Wallpapers №20
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487092   (100281) от 23.04.2012
 
 [Wallpapers] Abstract HD Wallpapers (24.04.12)
@@ -6,7 +91,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100281.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100282.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100283.jpg" />
 </div>
 
 
@@ -89,7 +174,7 @@ magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100284.jpg" />
 </div>
 
 
@@ -117,7 +202,7 @@ magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100285.jpg" />
 </div>
 
 
@@ -141,7 +226,7 @@ magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100287.jpg" />
 </div>
 
 
@@ -165,7 +250,7 @@ magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100290.jpg" />
 </div>
 
 
@@ -189,7 +274,7 @@ magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100291.jpg" />
 </div>
 
 
@@ -213,7 +298,7 @@ magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100292.jpg" />
 </div>
 
 
@@ -237,7 +322,7 @@ magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100293.jpg" />
 </div>
 
 
@@ -261,7 +346,7 @@ magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100295.jpg" />
 </div>
 
 
@@ -285,7 +370,7 @@ VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100296.jpg" />
 </div>
 
 
@@ -318,7 +403,7 @@ Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100303.jpg" />
 </div>
 
 
@@ -342,7 +427,7 @@ magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100305.jpg" />
 </div>
 
 
@@ -370,7 +455,7 @@ magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100309.jpg" />
 </div>
 
 
@@ -394,7 +479,7 @@ magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100315.jpg" />
 </div>
 
 
@@ -418,7 +503,7 @@ magnet:?xt=urn:btih:64ED958A11144F72C23038EEA755667B8735EE6E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100316.jpg" />
 </div>
 
 
@@ -442,7 +527,7 @@ Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100317.jpg" />
 </div>
 
 
@@ -475,7 +560,7 @@ Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100320.jpg" />
 </div>
 
 
@@ -499,7 +584,7 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100321.jpg" />
 </div>
 
 
@@ -531,7 +616,7 @@ Ilkan Gunuc ft. JJ - Rain (Vdj Rossonero) (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100322.jpg" />
 </div>
 
 
@@ -555,7 +640,7 @@ magnet:?xt=urn:btih:EE3E08ADFAB1E5EBC6AB1FB3C63127AC0D3376B1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100325.jpg" />
 </div>
 
 
@@ -579,7 +664,7 @@ magnet:?xt=urn:btih:7E9FFE8BFE701708ADD0AB833F0D61899128B761
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100332.jpg" />
 </div>
 
 
@@ -594,78 +679,6 @@ magnet:?xt=urn:btih:7E9FFE8BFE701708ADD0AB833F0D61899128B761
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC0E11E6CF55069C4EE4D8220AAAEFDACBEF12B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486594   (100337) от 23.04.2012
-
-Bob Berg - 4 альбома (1990-2000) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486826   (100340) от 23.04.2012
-
-Sexy Anime Girls
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.Разрешение файлов: Разное.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0ED9F2930E65E596BB9FBDD26C2717C311967A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486829   (100342) от 23.04.2012
-
-[EN] Коэффициенты / The Odds (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100342.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летний Дессон (Tyler Sohnson) находит своего лучшего друга и компаньона по нелегальным играм Барри (Callum Worthy) повешенным в его гараже. Хотя Барри по уши в долгах, ничего не указывало на то, что он может покончить жизнь самоубийством. Дессон начинает собственное расследование и должен закончить его прежде, чем пострадает еще кто-нибудь из его друзей. Пистолет, таинственная смерть, портфель с деньгами, карусель персонажей с непроницаемыми лицами, туго сжатый острый сюжет и вывод, что игра гораздо более сложный процесс, чем это может показаться на первый взгляд.Жанр: Криминал, ДетективРежиссер: Саймон ДэвидсонАктеры: Тайлер Джонстон, Джулия Максвелл, Кэлам Уорси, Роберт МолониПеревод: ОтсутствуетПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AA03857561B0C359DF014449160B0F138E7ADE
 ```
 
 

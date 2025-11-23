@@ -6,7 +6,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fae Farm (2023) [Multi] (20240620/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dystopika (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51505.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51506.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51517.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51518.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51526.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.24.3) Repack FitGirl [Soundtrack Bundle
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51530.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51532.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51541.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51542.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51543.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1.5) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51550.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Backpack Hero (2023) [Ru/Multi] (7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51555.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51558.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Curious Expedition 2 (2021) [Ru/Multi] (1844/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51561.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51577.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51579.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mystery Detective Adventure / Мистическое детективное пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51643.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51652.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51664.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Sunless Skies (2017) [En] (2.0.5.6e8c8ff) License GOG [Sovereign Edition] (об�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51671.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51676.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Ghostboy (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51689.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51694.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51714.jpg" />
 </div>
 
 

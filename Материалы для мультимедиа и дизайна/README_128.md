@@ -1,3 +1,147 @@
+###  Публикация: 1540247   (245532) от 29.03.2022
+
+Звуковые библиотеки - Unreal Engine - Ultimate SFX Bundle [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245532.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "Наш долгожданный ремастеринг наконец-то вышел! Мы полностью переработали некоторые из наших самых востребованных пакетов, используя совершенно новую настройку микрофона, чтобы обеспечить максимально высокое качество пакетов! Вы можете использовать звуки в своих играх, видео, стримах или где-либо еще! Когда мы начинали этот пакет, у нас было всего (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540121   (245613) от 28.03.2022
+
+Звуковые библиотеки - SOUNDPUNCH Ultimate Suite [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245613.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOUNDPUNCH Ultimate Suite - Звуковая библиотека, состоящая из эффектов перехода TRANSITIONPUNCH, нагнетающих напряжение звуковых эффектов TRAILERPUNCH, и различных окружающих звуков SOUNDPUNCH, подходящих для фильмов ужасов, триллеров и боевиков, трейлеров, игр, музыки и многого другого!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC11073C8E8ED147396C2CAB03FFFDAD5706D398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833611   (246073) от 01.11.2025
+
+Оверлеи - Creative Market - Lightning Transparent PNG overlays - 280451561 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246073.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 реалистичных прозрачных PNG-оверлеев с эффектами освещения и ударов молнии.Формат: PNG, JPGРазрешение файлов: 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2C9E304392AC36813D1E35406C2ABB20E90FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833499   (246075) от 01.11.2025
+
+Оверлеи - Envato - Realistic Fireworks Overlays - 52437936 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя завораживающую магию прозрачных PNG-наложений Fireworks. Эти высококачественные прозрачные PNG-наложения добавят вашим изображениям нотку праздника, радости и яркости. Идеально подходит для создания атмосферы на фотографиях или в дизайн-проектах.Формат: PNG, JPGРазрешение файлов: 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E10EF5A3B632518DF5E08FD72CC4D60CF182B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833609   (246076) от 01.11.2025
+
+Сборник - Nerd or Die - Synthwave Stream Pack [PSD, PNG, WEBM]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоновые огни и темы 80-х. Synthwave предлагает множество цветовых вариантов, мощную ретро-тему и полностью анимированные компоненты наложения.Формат: PSD, PNG, WEBM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833607   (246087) от 01.11.2025
+
+3D print - Cults3D - NachoCG - Storm Shadow from GI Joe [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мой фан-арт по Шторм Шэдоу из GI Joe. Модель поставляется с двумя вариантами головы: с капюшоном и без него. Эта работа была создана в ZBrush и полностью детализирована. Масштаб модели составляет 1:8, ее высота составляет приблизительно 9,4 дюйма (24 см).Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16474A0081C9DE4020888628144241BEFA360454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833106   (246094) от 31.10.2025
 
 Шрифты - Behance - Graviton Font Foundry - Estricta Font Family - 48445059 [OTF]
@@ -6,7 +150,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246094.jpg" />
 </div>
 
 
@@ -31,7 +175,7 @@ magnet:?xt=urn:btih:7D053BAE8B79C9B355C7B742CFF941E631B2FB07
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246097.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246097.jpg" />
 </div>
 
 
@@ -56,7 +200,7 @@ magnet:?xt=urn:btih:32952396AD160E474A0F4F9962C896034F77336F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246117.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246117.jpg" />
 </div>
 
 
@@ -83,7 +227,7 @@ magnet:?xt=urn:btih:8E6D5572142434FC31330C34842450198EC569E7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246127.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246127.jpg" />
 </div>
 
 
@@ -107,7 +251,7 @@ magnet:?xt=urn:btih:E7317B08992303AA15A64527850907A23A188961
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246129.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246129.jpg" />
 </div>
 
 
@@ -131,7 +275,7 @@ magnet:?xt=urn:btih:B03A75AF6696D622490EC57592C3B27CBC22C31A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246131.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246131.jpg" />
 </div>
 
 
@@ -155,7 +299,7 @@ magnet:?xt=urn:btih:0E3AC244998C1F9D98C2E9A676532FA769B2B1B4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246211.jpg" />
 </div>
 
 
@@ -179,7 +323,7 @@ magnet:?xt=urn:btih:AEAD1766968F7C22F5CADA281771B8C720E797A3
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246213.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246213.jpg" />
 </div>
 
 
@@ -203,7 +347,7 @@ magnet:?xt=urn:btih:BE883F81ECC324CE2A2CCE380331FD299470D886
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246223.jpg" />
 </div>
 
 
@@ -227,7 +371,7 @@ magnet:?xt=urn:btih:995A1597C4B76CB9041E2B6BC47B82B2EFE973D0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246226.jpg" />
 </div>
 
 
@@ -251,7 +395,7 @@ magnet:?xt=urn:btih:01BC56B85BF06238D8DD6C6B109AD3ACF0A8169D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246238.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246238.jpg" />
 </div>
 
 
@@ -275,7 +419,7 @@ magnet:?xt=urn:btih:D32341CEDAF9A034288A459B67B65CE4047010B8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246240.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246240.jpg" />
 </div>
 
 
@@ -299,7 +443,7 @@ magnet:?xt=urn:btih:E7247851567A8E708C9E7C8273580AC6863ED8FD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246245.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246245.jpg" />
 </div>
 
 
@@ -324,7 +468,7 @@ magnet:?xt=urn:btih:205FBD0C85A9560611A579FCED8C3A3883FB5078
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246272.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246272.jpg" />
 </div>
 
 
@@ -349,7 +493,7 @@ magnet:?xt=urn:btih:982870974902B65E0B96F63A4BFF3AB37DCBBD41
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247817.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247817.jpg" />
 </div>
 
 
@@ -373,7 +517,7 @@ magnet:?xt=urn:btih:24E5362E8C7EAC27309E862DC85992F7143B1624
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247819.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247819.jpg" />
 </div>
 
 
@@ -399,7 +543,7 @@ magnet:?xt=urn:btih:A1A92C3D063AEF0A521AF16B55D62F691CD1ED69
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247825.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247825.jpg" />
 </div>
 
 
@@ -424,7 +568,7 @@ magnet:?xt=urn:btih:6880236AAB1BBF55D8149FD7892E88D6F2C16C45
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248332.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248332.jpg" />
 </div>
 
 
@@ -448,7 +592,7 @@ magnet:?xt=urn:btih:DED64B976B7DF161A944F8D285EB45FB20A93B98
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248583.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248583.jpg" />
 </div>
 
 
@@ -472,7 +616,7 @@ magnet:?xt=urn:btih:A2E25854060FFAAB5F3E4E50B780AF3590451A90
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248584.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248584.jpg" />
 </div>
 
 
@@ -483,165 +627,6 @@ Alliant Audio с гордостью представляет Neo Soul Essentials
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA57A6E1BA2E1B0EBF0785C0328D9278C72EA67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493139   (248654) от 07.05.2012
-
-Digital Juice - Ready2Go: Collection 11 (AE) (.djprojects)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ready2Go 11 for AE - одинадцатый сборник настраиваемых проектов и шаблонов для After Effects, сочетающих в себе чистые линии и профессиональный вид популярных корпоративных и вещательных тем. Проекты из этой коллекции могут быть использованы без изменений или легко приспособленные для любого типа производства. Эти динамичные, отшлифованные и, прежде всего, полезные шаблоны предлагают вам различные настраиваемые проекты, идеальное сочетающие вспышки и моду шоу трансляции с открытым и чистым профессиональным стилем - то, что нужно для вашего следующего корпоративного видео.
-
-Настраиваемые проекты анимированных композиций всегда пользовались наиболее высоким спросом. Эти Ready2Go-проекты являются настраиваемыми шаблонами для After Effects, которые дают вам законченный вид вместе с вашим собственным текстом и видео. Независимо от того, над каким типом продукции вы работаете, у вас есть идеальной отправной шаблона. Будь то промо, трансляции, реклама, корпоративное видео, коллажи, меню DVD, или крутые переходы, теперь (   Читать дальше...   )Разрешение файлов: 1920 x 1080 @ 29.97 fps
-1920 x 1080 @ 23.976 fps
-1280 x 720 @ 29.97 fps
-1280 x 720 @ 23.976 fps
-720x480 @ 29.97 fps
-720x576 @ 25 fps
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494106   (249285) от 09.05.2012
-
-Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека ударных - Analogue Drums - BuckShot (KONTAKT/EXS24/WAV Samples - 24 bit, 44.1 kHz, stereo) - Винтажная ударная установка 1970s Gretsch Stop-Sign Maple с тарелками фирм Zildjian и Sabian. Установка записывалась в большом, старом деревянном театре, это позволило получить более плотное и широкое звучание. Как обычно при записи использовалось только лучшее оборудование, включая микрофоны Neumann, винтажные предусилители Neve 1064. а также компрессоры DBX 160 "VU".
-Этот продукт требует полной версии Kontakt 4 и выше.
-Дата выпуска: 30.04.2012
-Формат: KONTAKT/EXS24
-Релиз-группа: KRock
-Качество: 24 bit, 44.1 kHz, stereoНазвание программы: Analogue Drums - BuckShotЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538769   (249651) от 22.03.2022
-
-Звуковые библиотеки - Epic Stock Media - Sound Design Starter Kit [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свою звуковую палитру на новый уровень с помощью 11 158 звуковых эффектов, используя стартовый комплект звукового дизайна от Epic Stock Media! Это начало счастья для звукорежиссеров, звукоинженеров и аудиотворцов любого уровня. Sound Design Starter Kit — это идеальная звуковая библиотека, которая поможет приступить к работе над любым аудиопроектом или проектом (   Читать дальше...   )Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6071E1DFD1E68E1CCCB2F86223DA09904607B6E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537159   (250158) от 15.03.2022
-
-Звуковые библиотеки - Epic Stock Media - Smart UI [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart UI от Epic Stock Media — это единственная в своем роде коллекция современных звуковых эффектов пользовательского интерфейса, которая действительно помогает, когда вам нужно, чтобы ваш звук был замечен. Мы воплотили в жизнь эту бесплатную звуковую библиотеку, создав и собрав динамический выбор из более 1000 звуков пользовательского интерфейса, уведомлений и (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1E2390363F561E98238A3567A0127F0916E8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834660   (250383) от 04.11.2025
-
-Шрифты - Behance - VP creativeshop - Vintage Mintage - 213031505 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage Mintage - жирный, округлый шрифт. Шрифт с ретро - засечками, дополненный альтернативными и лигатурными глифами, которые сделают вашу типографику поистине уникальной!Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04946702F16B3BC3299BE6AA2294329F55A63C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834661   (250385) от 04.11.2025
-
-Шрифты - Behance - Vika Usmanova - Trappist - 80064573 [TTF, EOT, OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно для одного бельгийского кафе в Санкт-Петербурге был создан леттеринг.
-Со временем он превратился в шрифт под названием Trappist.
-Теперь он готов присоединиться к вашим смелым идеям и стать частью крутых проектов.
-Материал раздаётся с официальной документацией.Формат: TTF, EOT, OTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD018B7C88992FB7FD61DAC3B118EC599832A78B
 ```
 
 

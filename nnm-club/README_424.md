@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11235.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A382477D45DB5DEDC5D969F545F5E3AAA547A461
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11236.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DB5A8025DC85F0FE6E216F112575B24F7B57C811
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11237.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:556000B183A389F29EF2082C95545B6D387B4C47
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11238.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A5663DC9750DEB2EB55570194524C1B0DF3DF1FB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11239.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B858CFEB853DEF9FEEAF1D7062BE7DFC37BF0A55
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11241.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B858CFEB853DEF9FEEAF1D7062BE7DFC37BF0A55
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11242.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2FD6E2B356F3243AD3E40E41FDAF81476CA14F49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11243.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:EEB37F4DB71E99FE1C318E83FD4BAA39238B03F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11244.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Proton VPN 5.12.36.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11245.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11248.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:171B382B4A9C6A9A231AD520F1821F78D38AA8C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11249.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:F1391B5913A595C7E740D1DE5772A9F34A7345EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11250.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11251.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A133EC46E14CEBABB911D048101071A6E6DEF2BA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11252.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:928456AF5144979F828E612363937562D32B7DB8
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11253.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Elder Scrolls IV (4): Oblivion (2025) [Ru/Multi] (1.512.105.0/dlc) Repack Le
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11254.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:A722B89AE6DE9D0DAF343328B77AA2B91DEAE41C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11255.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:6BABD6799A32C181CCD1998EF13BDDA5E596BD3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11256.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ THE HOUSE OF THE DEAD: Remake (2022) [Ru/Multi] (1.1.3) License GOG [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11257.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D3C81124CAF98CF452EFA2A6EF5209C4C488D402
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11258.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:EDF978EA6A1B527B15B7D7D2F8441FF2FB2ADD92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11259.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D4D8B2B701E5DDA9110CEEC39F235F0ABD8E80B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11260.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5E029E3663EA5AC79969185FF67C12BFC6B81C74
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11261.jpg" />
 </div>
 
 

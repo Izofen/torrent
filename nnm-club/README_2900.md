@@ -1,3 +1,78 @@
+###  Публикация: 475219   (85255) от 30.03.2012
+
+Каникулы в Мексике - 2. Выпуск №19 (2012.03.29) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85255.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475172   (85256) от 30.03.2012
+
+Суд / Simpan / Judgement (1999) DVBRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85256.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма легли реальные события: 29 июня 1995 в Сеуле неожиданно обрушился шестиэтажный универмаг Сампун (501 погибший, 937 раненых).
+Режиссер показывает эгоизм и материализм членов семей погибших, которые хотят завладеть их состоянием. Мы видим здесь резкую критику капитализма, которая встречается в большинстве произведений режиссера.
+
+Первая проба Чхан Ук Пака в короткометражном кино - 26-минутный фильм «Суд» /Judgment/ на 35мм, который был отобран на Международный кинофестиваль короткометражных фильмов в Клермон-Ферран.Жанр: Драма, короткий метрРежиссер: Пак Чхан-укАктеры: Хак-рак Чои, Чу-бо Джи, Ин-бэ Ко, Сун-ми МьёнгПеревод: Одноголосый закадровыйЯзык субтитров: английскийПродолжительность: 0:26 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382EECF1A64497A07C9F45C07C146CA8ED959306
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475348   (85257) от 30.03.2012
+
+Дикий Юг. Опоссум - кошмар Новой Зеландии / Wild South. Possum-A New Zealand Nightmare (1990-1999) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475352   (85258) от 30.03.2012
 
 М.Кабков, Н.Леванова | Щитовидная железа. Лучшие рецепты народной медицины от А до Я [2007] [FB2]
@@ -6,7 +81,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85258.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:FF1DF0D82FF7FADC609DD04E312AE38F602706B6
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85259.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Tacere - 2 альбома (2006 - 2007) [APE|Lossless]<Power Metal,Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85260.jpg" />
 </div>
 
 
@@ -88,7 +163,7 @@ Tacere - разноплановая symphonic metal группа из Финля
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85262.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ magnet:?xt=urn:btih:9E304A3A760A2FD04EA2A9BA07DA4F05487174EA
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85266.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ magnet:?xt=urn:btih:B9F80618DFF79AA5A3AAD304A7278D2F0AA73934
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85268.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85269.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85271.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85272.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85274.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85275.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85278.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ magnet:?xt=urn:btih:A6DAA10BB635C0C8CE2FBDFE7DF87CED8CA45F2F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85279.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ magnet:?xt=urn:btih:58594F6237AF079E21B57E2D7126F318B7F738D1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85280.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:3033841494D44AE6B2CA05A2CA65D7379273ED30
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85281.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ BurnAware 4.8 Professional + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85282.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ VA - 200 Модных Хитов DFM №18 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85286.jpg" />
 </div>
 
 
@@ -455,7 +530,7 @@ magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85287.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ Wolfgang Amadeus Mozart - Cassations G-Dur KV 63 & B-Dur KV 99, Divertimento D-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85288.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85289.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85291.jpg" />
 </div>
 
 
@@ -575,7 +650,7 @@ magnet:?xt=urn:btih:54BACE1799B1710D980BEC21A87E2FFE44C5A440
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85292.jpg" />
 </div>
 
 
@@ -599,7 +674,7 @@ Macy Gray - Covered (2012) [MP3|320 кб/с]<Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85299.jpg" />
 </div>
 
 
@@ -619,87 +694,6 @@ Macy Gray - Covered (2012) [MP3|320 кб/с]<Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20748694B3B8EC21C053BBDA97AA37DFB7B7FCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475153   (85301) от 30.03.2012
-
-Мегамикс Philizz Video YearMix 2011 Vol. 5 Пиратская Вечеринка HD x264 1080p 5,7Gb
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 54 сек (00:57:54)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475765   (85303) от 30.03.2012
-
-Вирусный фактор / The Viral Factor / Jik zin (2012) [H.264] HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество победило оспу давно и навсегда. По-крайне мере мир привык так думать. Но это не так. Есть на земле места, где всё ещё хранятся образцы вируса. Один из таких образцов похитил учёный Кеннер с целью создания нового биологического оружия. Американским военным удалось схватить Кеннера, но он готов отдать образец только после того, как его вместе с семьёй доставят в Норвегию.
-Полицейскому Джону во время перестрелки пуля попала в голову и не существует безопасного способа её извлечь. Джон медленно умирает, у него осталось только две недели, чтобы решить кучу проблем: найти старшего брата, о существовании которого он и не подозревал, остановить спятившего спецназовца и спасти мир...Жанр: БоевикРежиссер: Данте ЛамАктеры: Джей Чоу, Николас Тсе,  Энди Он, Бинг Бай, Тинь Чи ХунгПеревод: Одноголосый закадровый, любительский (Язык субтитров: РусскийПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475755   (85304) от 30.03.2012
-
-«Фламинго» | Пять сказок. Снежная королева [2009] [Pdf]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Пять Сказок» — в каждую книгу входят по пять сказок.
- Хорошо иллюстрированные сказки для детей. Художник И.Приходкин.
- В книгу «Пять сказок. Снежная королева» входят сказки:
-• “Снежная королева”,
-• “Принцесса на горошине”,
-• “Спящая красавица”,
-• “Горшок каши”,
-• “Гензель и Гретель”.Жанр: Сказки (иллюстрации), детская литератураФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC7DDCA76C11FA6FA660B91930DE9882B803B0F
 ```
 
 

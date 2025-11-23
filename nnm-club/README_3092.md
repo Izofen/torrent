@@ -1,3 +1,88 @@
+###  Публикация: 477313   (98408) от 02.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98408.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 22 
+Название:  Girls Desktop Wallpapers Pack 22 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 6668х4992
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C52C23EA89452190D60C2C8CFE3C36A3569630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476937   (98409) от 02.04.2012
+
+Сделай Шаг - Шаг Первый (2011) [MP3|320 кб/с]<Alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осталось.
+02. Аттракцион.
+03. В наших голосах.
+04. Зависть.
+05. Карантин.
+06. Не может быть всегда.
+07. Сделай Шаг.
+08. Неужели.
+09. Сон.
+10. Тлеть.2011Жанр: AlternativeПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CA6436BA1DDBF77F662F45385CFC83604E18A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477158   (98411) от 02.04.2012
+
+[Wallpapers] Sexy Girls Pack (01.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5846B2C95717FDE597AEAE1010991FDD47707E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477196   (98413) от 02.04.2012
 
 Fading Waves - The Sense Of Space (2011) [MP3|320 кб/с]<Progressive Sludge / Post-Metal>
@@ -6,7 +91,7 @@ Fading Waves - The Sense Of Space (2011) [MP3|320 кб/с]<Progressive Sludge / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98413.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ magnet:?xt=urn:btih:D2B71B2CCE744E71EDF770C0A030161143DE7F30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98414.jpg" />
 </div>
 
 
@@ -60,7 +145,7 @@ magnet:?xt=urn:btih:2E943DDFF4201EA5D28AA91B075A826B7C800BB2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98415.jpg" />
 </div>
 
 
@@ -84,7 +169,7 @@ magnet:?xt=urn:btih:2BBB5CF4A19C01B36A6E9042F4B1722B9C6B0254
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98416.jpg" />
 </div>
 
 
@@ -108,7 +193,7 @@ VA - Русский Шторм 56 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98417.jpg" />
 </div>
 
 
@@ -141,7 +226,7 @@ magnet:?xt=urn:btih:F5DFC15824853E276EF698ADCA3D99D3AF5A953C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98418.jpg" />
 </div>
 
 
@@ -169,7 +254,7 @@ magnet:?xt=urn:btih:B7717DC23BFF8F148CBF4E62D21B5CA831998AA2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98420.jpg" />
 </div>
 
 
@@ -193,7 +278,7 @@ magnet:?xt=urn:btih:C81D937B43233E9F9BE1B181F6098682FB9ECED3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98424.jpg" />
 </div>
 
 
@@ -221,7 +306,7 @@ magnet:?xt=urn:btih:A0ED9DCAB399FC87B32C687C449406EAE18D6DFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98425.jpg" />
 </div>
 
 
@@ -245,7 +330,7 @@ magnet:?xt=urn:btih:4B06BF60436B2831DD53AD31B0D7D73523B3B8E5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98427.jpg" />
 </div>
 
 
@@ -273,7 +358,7 @@ VA - Made In The 80s (2012) [MP3|213-277 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98429.jpg" />
 </div>
 
 
@@ -306,7 +391,7 @@ Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98430.jpg" />
 </div>
 
 
@@ -339,7 +424,7 @@ VA - Дискотека Новые Звезды 12 (2012) [MP3|320 kbps]<Pop | D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98431.jpg" />
 </div>
 
 
@@ -372,7 +457,7 @@ magnet:?xt=urn:btih:961F1A3A73D55925BE23D95F0FD628EE666EDF00
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98433.jpg" />
 </div>
 
 
@@ -396,7 +481,7 @@ magnet:?xt=urn:btih:868A23547F0AE56C1900869179DB9493800D9E23
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98434.jpg" />
 </div>
 
 
@@ -420,7 +505,7 @@ magnet:?xt=urn:btih:98999959CC7639DE7C751168F29CF28B2266FD1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98435.jpg" />
 </div>
 
 
@@ -448,7 +533,7 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98436.jpg" />
 </div>
 
 
@@ -481,7 +566,7 @@ Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98437.jpg" />
 </div>
 
 
@@ -514,7 +599,7 @@ magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98438.jpg" />
 </div>
 
 
@@ -542,7 +627,7 @@ magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98441.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98441.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98442.jpg" />
 </div>
 
 
@@ -601,7 +686,7 @@ magnet:?xt=urn:btih:DC18D94B2A850B576348BA7C89424A1429D94D74
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98443.jpg" />
 </div>
 
 
@@ -625,7 +710,7 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98445.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98445.jpg" />
 </div>
 
 
@@ -641,87 +726,6 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 08. Too Young to Know
 09. You're So Fine
 10. El Gado Rumba Azul(   Читать дальше...   )1997Жанр: BluesПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477115   (98446) от 02.04.2012
-
-[Картинки] Фото знаменитости/Пас Вега/Paz Vega
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пас Вега (исп. Paz Vega; урождённая Пас Кампос Триго (исп. Paz Campos Trigo); родилась 2 января 1976 года в Севилье, Андалусия) — испанская киноактриса.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D79436E1D89483C0A0DB03B13054DB31BFB9CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476653   (98447) от 02.04.2012
-
-Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boy
-02. Heartbeat Boogie
-03. Be My Sugar
-04. Going, Going, Gone
-05. Mixed Emotions
-06. Dip Stick
-07. Out Of Order
-08. Crazy 'bout My DS
-09. Treat Me Tender Tonight
-10. Blow Crazy(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477150   (98448) от 02.04.2012
-
-Дональд Майкл Крэйг | Психосенсорные способности [2007] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действительно ли существует такая вещь, как психосенсорные способности? Насколько они реальны? Есть ли они у каждого человека? Какова их типология? Можно ли каким-то образом подтвердить их существование? Книга "Психосенсорные способности" дает ответы на эти и другие вопросы, описывая полный тайн, восхитительный мир феноменов человеческой психики.Формат: PDF
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,75 @@
+###  Публикация: 179308   (138287) от 30.12.2021
+
+Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия той самой прародительницы казуального жанра "шарико-плевалок" на PC. Пребывание бесстрашной жабы в древних храмах на зловещем острове затянулось, и теперь противостояние злым силам переходит на новый уровень. Вас ожидает свыше шестидесяти уровней в "полинезийском" стиле, 4 режима, новые бонусы и сражения с "боссами" в финале (   Читать дальше...   )Тип издания: UnofficialРазработчик: PopCap GamesЖанр: Arcade, LogicЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435130   (138288) от 30.12.2020
+
+Вейпинг без рецепта оказался бесполезен для отказа от курения табака
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Метаанализ, проведенный американскими исследователями, показал, что приобретение никотинсодержащих электронных сигарет по собственному желанию в целом не повышает вероятность отказа от табакокурения. В то же время, если подобный продукт назначен врачом, его использование может помочь бросить курить. Результаты работы опубликованы в American Journal of Public Health.После (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235616   (138289) от 30.12.2018
+
+Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады!   Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляцией физики от легендарного разработчика Bugbear, подарившего миру FlatOut 1 & 2! Жгите резину и рвите металл (   Читать дальше...   )Тип издания: RepackРазработчик: BugbearЖанр: Экшены, Инди, Гонки, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Немецкий, Финский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Финский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0651947550256E4F78A966DC5C5A3CDD607552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195824   (138290) от 31.12.2017
 
 Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
@@ -6,7 +78,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Chet Baker - The Hits 1952 - 1959 (2019) 3CD, New Continent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138291.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138292.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138293.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ magnet:?xt=urn:btih:8A87B1D6A72A8EDFCAE7813944B22E30BDD1BEAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138294.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:EAD8A91213AD98429F55F922646DB470A4CD89CD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138296.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ Hitman Absolution: Professional Edition [Ru/En/Multi8] (Lossless Repack/1.0.444.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138297.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:5CF3B304A0626916C7DE31D6D23A15E5C62621EB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138298.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ FreeFileSync 9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138299.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ SPINNIN' - Best Of 2019 Year Mix (2019-12-23) [MP3|320 Kbps] <House, Electro Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138300.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.12.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138301.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ Wi-Fi Mouse Pro v4.3.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138303.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138304.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ Chameleon / Хамелеон [Ru] (RePack) 2005 | R.G.Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138306.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ magnet:?xt=urn:btih:5F4594795E3DAAE5409347F715BB2863D86983E8
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138307.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ Adobe Premiere Pro 2022 22.1.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138308.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:4ECFA2052A4E68759A4D41CA5BFC0D11ABAEC7D2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138309.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ magnet:?xt=urn:btih:C8BED130DF99DE80DB70E7DBDAA7343246346F03
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138310.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:674476254EA323D71C22EBC3E624E511907FDD98
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138311.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ magnet:?xt=urn:btih:29C4E0E9668F9B53989DF5B6A69FBC0693FE4EB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138312.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ LogMeIn Hamachi 2.1.0.296 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138314.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ High Spirits - Safe on the Other Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138315.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ Scrivener 1.9.16.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138316.jpg" />
 </div>
 
 
@@ -570,83 +642,6 @@ Scrivener — мощный текстовый редактор для тех, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507351   (138317) от 30.12.2021
-
-Собор (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поговорка гласит: «каждый сверчок должен знать свой шесток». Родился холопом – холопом и умрешь. Но на дворе 1700 год: время радикальных перемен в Российской империи, время великих реформаций Петра Первого.
-
-Юный крепостной Иван Старшов без памяти влюблен в дочь своего барина – Марию. Он ни за что не готов смириться с тем, что юная княжна не пара ему. «Желания мне (   Читать дальше...   )Производство: Россия / Киностудия КИТЖанр: драма, историяРежиссер: Сергей ГинзбургАктеры: Сергей Марин, Светлана Иванова, Александр Балуев, Юлия Снигирь, Алексей Бардуков, Александр Коршунов, Рамиль Сабитов, Максим Аверин, Ян Цапник, Александр Ильин мл.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95DFD7DDB7B38841A22629705FA1E92AAD47DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087796   (138318) от 31.12.2016
-
-Шалыгин Вячеслав | Формула Вечности (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его имя Виктор Туманов. Профессия – частный сыщик. Место жительства – Россия. А вот кто он по сути – Вечный или Хамелеон? Или ни то, ни другое? Поначалу Туманов не задумывался о своей роли в извечной борьбе враждующих кланов бессмертных со сверхчеловеческими способностями. Он просто выполнял очередной заказ – обнаружить, захватить, в крайнем случае убить обезумевшего (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 13:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CCBB2D4070B8781790D9961C1D43669881CD1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970514   (138319) от 31.12.2015
-
-Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millennium Collection, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Out Of Touch (04:21)
-02. What Love Can Be (05:19)
-03. Get It On (04:24)
-04. Pushin Hard (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12893.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12894.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:56C9C70548B9E097301A1F634078B78288AF5A8E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12895.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A2EE45F1CDBD3C7B362C81DEBE7610A32D928A2E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12898.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B6A5921A0DB06EABC8885BB3A06BBE16A14F8AA3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12900.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:268829D4FD4B7AE3A96F466A5FCB4BC1F2C3E15E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12901.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12902.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:86C9D6D1DFC44A438FC622BF7BF001E08256F76E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12904.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12905.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:32E060C558C1FEC535695765EC32D04C847FCDCC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12906.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:3BF65B8EAC0108C81538232E6851406EED10D9BD
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12907.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:23067DB186D84C92F9C4AD73F608357ED895DD2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12908.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7537DF61F4B9C44859BE9E803B5B91A1447DCCA9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12909.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:4C1F2DDC6E6AA7FD535498DEA88E3B5FA5AA8D40
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12910.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:013231955065278739437AB8AE64BEDD1AEB144C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12911.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:013231955065278739437AB8AE64BEDD1AEB144C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12912.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:2ABBBE37DE17E30CDFCC5A06711F2B9B29CA925A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12913.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:2ABBBE37DE17E30CDFCC5A06711F2B9B29CA925A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12914.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Adobe After Effects 2025 25.3.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12915.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0EEBD28CEC2CAC349AC89A9F1763E2A9F879290B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12916.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12917.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:B9B3FE316C765F4568DF248512E06B69C423029D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12919.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:57C914659B31926D5738B5B0090DEB2F0B902799
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12920.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:732F0756F5D6304ADFA8532A8C1F6DDD3A753AC6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12921.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:6173DE00F64D59110B9551B8AB59CED59D645752
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12923.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:E082B7AD14CA68FC0A73339126B808DC4AE88046
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12924.jpg" />
 </div>
 
 

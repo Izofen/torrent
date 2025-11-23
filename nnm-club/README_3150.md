@@ -1,3 +1,75 @@
+###  Публикация: 1822550   (101005) от 07.10.2025
+
+Reg Organizer 9.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60F861C093828757AD500295A46F609DCFD4724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822520   (101006) от 07.10.2025
+
+Книжная серия | Нескучный детектив [25 книг] (2004-2007) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101006.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Нескучный детектив" - серия детективов, которые ни в коем случае не скучные. В других сериях - всяко-разно, а в этой - гарантия. И если вдруг вам станет скучно - мы вернем вам... время!Жанр: ДетективИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD0AEF669F1478A02BCA467FE7A04E774CA6E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822549   (101007) от 07.10.2025
+
+Internet Download Manager 6.42 Build 49 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2BE50DD7661956D1D1B13B9114BDDBCE85ACD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822540   (101008) от 07.10.2025
 
 Павел Кожевников | Архил (Книга 2) (2025) [MP3, Максим Суслов]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101008.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:567CE08A1A41F945625CCFD21D42BEFDD7794F81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101009.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:BA6850AEBF2856441FBECD5E9FBBF861E7D543E5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101010.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Internet Download Manager 6.42 Build 49 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101011.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:9A3E36C49632FCFEDA10D605E9C8EC2326C6BE45
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101012.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:9CDE631377CE896B4F98587AC162F1E0924FD720
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101013.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Reg Organizer 9.87 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101014.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Adex - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101015.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:E32F536C09991F7B80BF7543E811233EFF5D4A55
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:11159F66F2BDD224FD52437501A15507331B729A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101017.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:9C890E706E8D08271F61440EE4B7B37438EA9D6E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101018.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:3DB37634BE1CE5C5CECF15908ECBADBB9E52D7AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101019.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:E39C9C75B75EDF2D1C7F380E84B26B0192A19C05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101020.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:191EA7D486DD0C2C9F9F025420A091CE75967B2A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101021.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:4CCF6D99A1778E47D382D48AFCC452C1C87C41A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101022.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101023.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:F0C1D76E4F98FB1191EE21001C6C9AFECB347907
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101024.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:9C8914CF339D630DAE64244C909F332D19A85066
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101025.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:221F6AB3C8E79D630674147AE94B0CF766185EAF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101026.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:CFBDFC0157DFD62E30DCD30420FAD1E70C7FB6C9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101027.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:FEF411481927193A85A43CDDC23D65266D6A92A5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101028.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:FA50C9AEFE898C92E5CF1212AE2A435442643F0B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101029.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:711394C3A023A84FE2049388A63D895283BACAC9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101030.jpg" />
 </div>
 
 
@@ -558,78 +630,6 @@ magnet:?xt=urn:btih:711394C3A023A84FE2049388A63D895283BACAC9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C8D5434E60B049AF809F870C24932D87F242E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822476   (101031) от 06.10.2025
-
-Андрей Орлов | Честь пацана (2024) [MP3, Егор Федотов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он не мог остаться в стороне, потому что правильно понимал, что значит быть настоящим «пацаном». Андрей Шефер по прозвищу Шериф, отслужив в десантных войсках, возвращается домой. На дворе – конец восьмидесятых, жизнь в стране перевернулась с ног на голову. В Казани бушуют «пацанские» войны. Территория города поделена на части, в каждой правит своя банда, возглавляемая (   Читать дальше...   )Жанр: Детектив, боевик, триллерИздательство: ЭксмоПродолжительность: 08:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C4828C93300E0BC7A9D43D2ABB84CFC1C29808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822477   (101032) от 06.10.2025
-
-Алекс Норман | Эволюция убийства (2024) [MP3, Амир Шакиров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о смысле, который психопаты вкладывают в слово «любовь». Его семейная жизнь дала трещину. Жена выставила из квартиры. Пришлось ехать на дачу. Там он и встретился с Ингой – сестрой жены. Слово за слово. Бутылка коньяка. Бурная ночь… А утром нагрянули из Следственного комитета. Жену жестоко убили минувшей ночью. Нож со следами ее крови обнаружен в его машине. (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЭксмоПродолжительность: 05:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF9CC685382EEE91735A0E7A399331494E56612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822478   (101033) от 06.10.2025
-
-Франк Хеллер | Шесть меню (2023) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этого романа - Филипп Коллин, талантливый шведский адвокат. Даже во время путешествия по самым красивым местам Европы у него всегда есть время для того, чтобы сделать остановку и раскрыть какое-нибудь запутанное преступление. Но на этот раз преступление ищет его. Он становится главным подозреваемым в ограблении поезда, и ему предстоит проявить чудеса (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 04:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98053FBCC35CD965B43D7723A9336E688ADF0A8C
 ```
 
 

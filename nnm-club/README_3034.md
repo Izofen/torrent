@@ -1,3 +1,78 @@
+###  Публикация: 61841   (94735) от 04.10.2025
+
+Максим Леонидов (ex-Секрет) - 10 Альбомов (1995-2007)[MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джерико (3:45)
+02. Мир Для Марии (3:28)
+03. Проспект Обуховской Обороны (4:53)
+04. Когда Я Был Сухой (3:57)(   Читать дальше...   )Жанр: Rock |Продолжительность: 09:48:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822008   (94736) от 04.10.2025
+
+Своя игра (04.10.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Альбина Лазаричева, Юрий Балясов, Александр КонстантиновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822004   (94737) от 04.10.2025
+
+Бухта смерти (1926) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-революционная драма снята по мотивам рассказа писателя-мариниста Алексея Новикова- Прибоя «В бухте Отрада». Фильм — дебют в полном метре режиссёра Абрама Роома. Фильм снимался в Одессе почти в тоже самое время, что и легендарный «Броненосец Потемкин». Но фильмы оказались абсолютно разными. В отличие от масштабного полотна Эйзенштейна, Роом создал фильм, (   Читать дальше...   )Производство: СССР / ГоскиноЖанр: история, драма, немое киноРежиссер: Абрам РоомАктеры: Василий Ярославцев, Николай Салтыков, Леонид Юренев, А. Равич, А. Мацевич, Василий Людвинский, Елизавета Карташева, Алексей Харламов, Арташес Ай-Артян, О. ГольневаСубтитры: русские (интертитры)Продолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569BA8A4F16F871A84128D127E229009263E7A6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458916   (94738) от 27.02.2012
 
 Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressive>
@@ -6,7 +81,7 @@ Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94738.jpg" />
 </div>
 
 
@@ -39,7 +114,7 @@ Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94741.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94743.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94744.jpg" />
 </div>
 
 
@@ -119,7 +194,7 @@ Return to Castle Wolfenstein (2020) [Ru/Multi] (5.2-final-1/dlc) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94745.jpg" />
 </div>
 
 
@@ -143,7 +218,7 @@ magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94747.jpg" />
 </div>
 
 
@@ -167,7 +242,7 @@ Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94748.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94749.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:41EA8951B58C3B56C5A6DC5508366A5305433D50
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94751.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94753.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94755.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94759.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94761.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94762.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94763.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94764.jpg" />
 </div>
 
 
@@ -434,7 +509,7 @@ Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94768.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94773.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ VA - Dance Жара. Зарубежный (2012) [MP3|256 кб/с]<Рор>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94782.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ Fadios - Paradiso (2012) [MP3|320 кб/с]<Trance, Uplift, Progressive, Tech, Dr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94783.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94786.jpg" />
 </div>
 
 
@@ -588,7 +663,7 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94793.jpg" />
 </div>
 
 
@@ -621,7 +696,7 @@ magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94794.jpg" />
 </div>
 
 
@@ -632,87 +707,6 @@ magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458831   (94799) от 27.02.2012
-
-[Wallpapers] Military 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение военной темы. 64 картинки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC119DBCEECD4C0E4DD24A10A193642250073BDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458813   (94803) от 27.02.2012
-
-VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Shores Of Eden (Original Mix)
-02. Mike Shiver vs Matias Lehtola - Slacker (Original Mix Edit)
-03. Monada - Turbulence (Radio Edit)
-04. Eco - When I'm Gone (Radio Edit)
-05. Vengeance - Stasis (Denga & Manus Webifier Mix Edit)
-06. Andrew Rayel - Believe (Radio Edit)
-07. Sophie Sugar - Skyline (Original Mix Edit)
-08. Signum - Harmonic (Edit)
-09. Andrew Rayel - 550 Senta (Radio Mix)
-10. Re:Locate vs Robert Nickson - Resource (Original Mix Edit)(   Читать дальше...   )25.02.2012Жанр: TranceПродолжительность: 09:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459015   (94810) от 27.02.2012
-
-И.С. Кравцов | Кавказ и его военачальники. [1886] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический очерк генерала И.С.Кравцова посвящен окончательному этапу покорения Кавказа и трем русским военачальникам: князю А.И.Барятинскому, Н.Н.Муравьеву и Н.И.Евдокимову — командовавшим русскими войсками. Очерк был напечатан в 1886 году в журнале «Русская старина» (в шестом и седьмом номерах). Он составлен в яркой, полемической манере. Автор, сам «кавказец» (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
 ```
 
 

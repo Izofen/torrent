@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24854.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Udemy, Антон Ларичев | Node.js - с нуля, основы и пос
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25065.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Codeby | Paranoid Rebirth — курс по анонимности и безоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25174.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25486.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25590.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25594.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DBE653ABA594BFF40214F8A743AC066321AD622F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25696.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ javascript.ru | Интенсив по RxJS (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25698.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Sorax | Курс по Coffeescript (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25705.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ JetBrains | PHPStorm - полный двухчасовой курс (2013) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25903.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25999.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26016.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26018.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PurpleSchool, Udemy, Антон Ларичев | Next.js 15 - с нуля, React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26217.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26222.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26222.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Color Grading Central | Davinci Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26226.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26621.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26640.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26653.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26728.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Serberg | Видеоурок "Восстановление Windows в счита
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26748.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26755.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26756.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26856.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26857.jpg" />
 </div>
 
 

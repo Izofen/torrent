@@ -1,3 +1,176 @@
+###  Публикация: 1597354   (166490) от 14.12.2022
+
+Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
+
+Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516233   (166491) от 10.12.2021
+
+Дорога домой / Back to the Outback (2021) WEB-DL [H.265/1080p] [HDR10, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные из тематического парка вырываются на свободу и отправляются на поиски родного дома.Производство: Австралия, США /  Netflix Animation, Reel FX Creative Studios, Weed Road PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Гарри Криппс, Клер Де ШенюАктеры: Джеки Уивер, Рэйчел Хаус, Айла Фишер, Гай Пирс, Уэйн Найт, Эрик Бана, Дизель Ла Торрака, Тим Минчин, Джиа Каридес, Энгус ИмриПеревод: Дублированный (Пифагор по заказу Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD77E5A7E3CC195BB6B81BDC11A6EE82285D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673085   (166492) от 31.10.2023
+
+A.C.T - Today's Report (1999) Special Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandoned World
+02. The Wandering
+03. Waltz With Mother Nature
+04. Why Bother(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED3DB5EB6B40E4D2E0EB039974355A44439C0EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516270   (166493) от 10.12.2021
+
+Падал прошлогодний снег (1983) DVDRip [H.264/720p-LQ] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в одной весьма пластилиновой местности, жил да был орёл-мужчина, которого как-то под новый год послала жена за ёлкой.Производство: СССР / ТО "Экран"Жанр: Мультфильм, Короткометражка, Пластилиновая анимацияРежиссер: Александр ТатарскийАктеры: Станислав Садальский - рассказчик, озвучкаСубтитры: ОтсутствуютПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1F0FD0EDC22DFAACACC1842BA29F7281B97DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345491   (166494) от 15.12.2019
+
+1979 / 1979 Big Bang of the Present (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166494.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1979-м закончилась эпоха Мао в Китае, началась исламская революция в Иране, пришла к власти Маргарет Тэтчер, а папа римский Иоанн Павел II посетил коммунистическую Польшу. Фильм расскажет о том, почему в этот год началась новая эпоха.Производство: Германия, Франция , OutreMer Film, K2 ProductionsЖанр: Документальный, история, исследованияРежиссер: Дирк К. ван ден БергПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047F137DBE076985D2536F4DB4975AA5899C6F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673050   (166495) от 31.10.2023
+
+Privatus 6.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431723   (166496) от 14.12.2020
+
+Пропавшая / Alone (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джессика собирает свои нехитрые пожитки и на автомобиле с прицепом отправляется на новое место жительства. Недавно в её жизни произошла трагедия, от которой она ещё не оправилась, но вскоре грустные мысли придётся отложить, так как женщина становится объектом преследования неприятного незнакомца.Производство: США / Mill House Motion Pictures, Paperclip LimitedЖанр: ТриллерРежиссер: Джон ХайамсАктеры: Джулз Уиллкокс, Марк Менчака, Энтони Хилд, Джонатан Розенталь, Лаура Дуйн, Макс Хаскинс, Шелли Липкин, Бетти МойерПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B695A4E56077E2D58361CFE0C24DA04D19B2A70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597265   (166497) от 14.12.2022
 
 Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +179,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166497.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:2A0262DD30A93B65CBFFC5F329356D2590AD064D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166498.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ magnet:?xt=urn:btih:C42ECF4A280EA05951DAA65F5E770FA959D7CD9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166499.jpg" />
 </div>
 
 
@@ -78,7 +251,7 @@ magnet:?xt=urn:btih:DDAD936B8ACBFD695427934FAE3D0C35042294F6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166500.jpg" />
 </div>
 
 
@@ -102,7 +275,7 @@ magnet:?xt=urn:btih:F55C2B14AECD1D89D5680C9BA56E99F5F0D0F47B
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166501.jpg" />
 </div>
 
 
@@ -127,7 +300,7 @@ Viber 19.1.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166502.jpg" />
 </div>
 
 
@@ -151,7 +324,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|CD|tracks + .cue] <Trance, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166503.jpg" />
 </div>
 
 
@@ -178,7 +351,7 @@ magnet:?xt=urn:btih:0B58BB145FFEC7577C43A1A41C77CA9CBD5FF589
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166504.jpg" />
 </div>
 
 
@@ -202,7 +375,7 @@ magnet:?xt=urn:btih:A707019585C7F89BFB1FC304459EA4F40AF7CD75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166505.jpg" />
 </div>
 
 
@@ -226,7 +399,7 @@ Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166506.jpg" />
 </div>
 
 
@@ -253,7 +426,7 @@ magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166507.jpg" />
 </div>
 
 
@@ -278,7 +451,7 @@ VA - Progressive Nation (Compiled by Liquid Soul & Ace Ventura) (2019) [FLAC|Los
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166508.jpg" />
 </div>
 
 
@@ -305,7 +478,7 @@ magnet:?xt=urn:btih:15DBA0ECA10E72C9AD6BD3AC9A17DA662D0462B0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166509.jpg" />
 </div>
 
 
@@ -329,7 +502,7 @@ AAF DCH Optimus Sound 6.0.9279.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166510.jpg" />
 </div>
 
 
@@ -353,7 +526,7 @@ magnet:?xt=urn:btih:85772E0E61C8E0949C72C8F3204C29CD3CFE6638
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166511.jpg" />
 </div>
 
 
@@ -379,7 +552,7 @@ GarageSale 9.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166512.jpg" />
 </div>
 
 
@@ -403,7 +576,7 @@ magnet:?xt=urn:btih:113810FFE731BD6EF053AD66B4EDF76E806B8C3C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166513.jpg" />
 </div>
 
 
@@ -427,7 +600,7 @@ magnet:?xt=urn:btih:E65FEFCC25BDE98835BBCB52BC96B96FBA8A0689
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166514.jpg" />
 </div>
 
 
@@ -451,7 +624,7 @@ magnet:?xt=urn:btih:37DB58A7024A96D0D6D9AF6903B5A2EE04B5DC50
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166515.jpg" />
 </div>
 
 
@@ -462,176 +635,6 @@ magnet:?xt=urn:btih:37DB58A7024A96D0D6D9AF6903B5A2EE04B5DC50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D02A2C6B1F17560B609955017749BE5BB37A38B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673099   (166516) от 31.10.2023
-
-File List Export for Mac 2.8.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166516.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2023 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1441FBEA6362C80E7CDC2C6931A3FCEAB8A6620C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345393   (166517) от 15.12.2019
-
-PrivaZer 3.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166517.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0787438E72A5E583F5F3AC4EEE1615B259ADC49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673302   (166518) от 31.10.2023
-
-Xliff Editor 2.9.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36494339D389C3E7FF168CFAAF5A0978A34D572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597278   (166519) от 14.12.2022
-
-Юрий Никитин | Контролер (Книга 3). Рождение Контролера (2022) [MP3, Александр Чернов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому много дано, с того много и спросится. Еще Пифагор говорил, что стыдно стареть, не узнав, на что способны твои ум и тело. Владимиру Лавронову дано было немногое, а чего недоставало, он взял сам, без спросу. Он и не подозревал, что пользоваться сверхчеловеческой мощью все равно что идти по тонкому канату над пропастью…Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 10:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA2366F8934BEF2529C5470D239A2445AD3B3D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345446   (166520) от 15.12.2019
-
-А.Т. Бондаренко | Это интересно знать (1963) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир вокруг нас интересен и многообразен. Подчас мы неожиданно получаем об окружающем удивительные сведения. Знаете ли вы, например, что современные радиотелескопы проникли в глубину Вселенной на 10 миллиардов световых лет, что если бы удалось наполнить одними нейтронами чайную ложку, то она весила бы около 210 миллионов тонн?
-В этой книге собраны факты, касающиеся (   Читать дальше...   )Жанр: Детская энциклопедия, познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402236B0088EC783A71DF98DC6DD3C7432DA3E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597407   (166521) от 14.12.2022
-
-Рэй Брэдбери | 451 градус по Фаренгейту (2019) [MP3, Александр Шаронов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166521.jpg" />
-</div>
-
-
-###  Подробнее
-
-451° по Фаренгейту – температура, при которой воспламеняется и горит бумага. Философская антиутопия Брэдбери рисует беспросветную картину развития постиндустриального общества: это мир будущего, в котором все письменные издания безжалостно уничтожаются специальным отрядом пожарных, а хранение книг преследуется по закону, интерактивное телевидение успешно служит всеобщему (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаПродолжительность: 07:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7833A38AC4BAE21816902F4EF84C837419C3005A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673144   (166522) от 31.10.2023
-
-Boxy SVG 4.14.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66084A02D1B4A16A949AB771C261B76952814B7
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1702843   (115492) от 26.02.2024
+
+Джек Финней | Лицо на фотографии (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115492.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Инспектор Айрин приглашает к себе в отделение профессора физики, чтобы тот помог ему разобраться с загадочными исчезновениями нескольких преступников. Люди не исчезают просто так, и после долгих розысков, инспектор нашел следы... в прошлом." (с)Жанр: Фантастика, ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28307B90A83699CF59CD29E830E53921BAEB1099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702827   (115493) от 26.02.2024
+
+Николло Макиавелли | Мандрагора (1991) [MP3, Юрий Яковлев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая гуманистическая комедия нравов итальянского Ренессанса. Действие происходит в современной автору Флоренции (1520-й год), созданы реальные, жизненные характеры и ситуации.Жанр: Комедия, РадиоспектакльИздательство: ГостелерадиофондПродолжительность: 01:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFA4FDC4369C6CEA21A552158702E521351977E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702796   (115494) от 26.02.2024
+
+Фёдор Достоевский | Бедные люди (2007) [MP3, Юрий Лазарев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+Написанный Ф.М. Достоевским роман «Бедные люди» в 1845 году, стал первым произведением писателя, принесшим ему широкую (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: АудиокнигаПродолжительность: 05:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700844FACFE8C7502DF7B7FD7F9756B5259E66E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702800   (115495) от 26.02.2024
 
 Фёдор Достоевский | Белые ночи (2007) [MP3, Валерий Пигаев]
@@ -6,7 +80,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115495.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ magnet:?xt=urn:btih:50B5FD7A44D54EBD74DF00DF984D4461F4927B8F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115496.jpg" />
 </div>
 
 
@@ -58,7 +132,7 @@ magnet:?xt=urn:btih:301C6EF1ED35F8E8183D9AA8F53480D682DF7303
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115497.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:99E6E290071132B6475A29C3875031785B14C9FC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115498.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115499.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ FM-84 - Los Angeles EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115500.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ magnet:?xt=urn:btih:E20B14F7CDBF32DB18A6D059E8E25C637C34BF49
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115501.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ Motorhead - The Lost Tapes - The Collection (Vol. 1-5) (2024) 5CD, (Live) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115502.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115503.jpg" />
 </div>
 
 
@@ -237,7 +311,7 @@ K-Lite Codec Pack Update 18.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115504.jpg" />
 </div>
 
 
@@ -261,7 +335,7 @@ magnet:?xt=urn:btih:345DC81B2C6CF218BFA9C6BF28023AC6D26A44D9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115505.jpg" />
 </div>
 
 
@@ -285,7 +359,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115506.jpg" />
 </div>
 
 
@@ -310,7 +384,7 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115507.jpg" />
 </div>
 
 
@@ -337,7 +411,7 @@ magnet:?xt=urn:btih:0A5928A18402E482DBF14FAF8379F41CF783D244
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115508.jpg" />
 </div>
 
 
@@ -363,7 +437,7 @@ Bessemer Saints - This Is BS Too (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115509.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ magnet:?xt=urn:btih:621BC231937AE16D521213C926314C77D50013FB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115510.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ magnet:?xt=urn:btih:699B1CBD37DB766219EFB9C5CE572DE28D76397B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115511.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115512.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115513.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ PrivaZer 4.0.83 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115514.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ magnet:?xt=urn:btih:BD4149CF0287E9D6BB2D9F049D49ADBBFD68941E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115515.jpg" />
 </div>
 
 
@@ -538,7 +612,7 @@ magnet:?xt=urn:btih:768D2C1B51C1CDB792DF819AE1E7679A3E4D4FCE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115516.jpg" />
 </div>
 
 
@@ -563,7 +637,7 @@ magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115517.jpg" />
 </div>
 
 
@@ -575,79 +649,6 @@ magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:163F4E10CAF128159753A825528CFAB3160AF502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702737   (115518) от 26.02.2024
-
-Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, сильнейший? [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за травли Харуто отказался выходить из комнаты. Но в один прекрасный день богиня выбрала его для реинкарнации. И переродился он не простым человеком, а принцем, да ещё и с невероятными навыками! Однако и там всё оказалось не так гладко.
-© crunchyrollПроизводство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702856   (115519) от 26.02.2024
-
-В.Ю. Васильев | Методы и возможности in-line контроля тонкопленочных материалов в производстве субмикронных интегральных микросхем (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие составлено на базе 40-летнего личного опыта работы автора на отечественных и зарубежных предприятиях микроэлектронной отрасли. Рассмотрена совокупность вопросов организации и использования в серийном производстве субмикронных интегральных микросхем (ИМС) методов непосредственного производственного (in-line) контроля тонкопленочных материалов – основы современных (   Читать дальше...   )Жанр: ЭлектроникаИздательство: НГТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9130B9C5C6A9386F0B5F256D22BC693C3673D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702874   (115520) от 26.02.2024
-
-Chromium 122.0.6261.70 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78618380DE217D3CE5E21DA7DF2AC97CE7F5FE80
 ```
 
 

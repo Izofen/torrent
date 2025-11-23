@@ -1,3 +1,82 @@
+###  Публикация: 1740961   (105716) от 04.08.2024
+
+Freakshow - A Reason Worth Dying For (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Hot Love (2:46)
+02. Be As One (3:20)
+03. A Reason Worth Dying For (4:15)
+04. By Your Side (3:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3DB57D9522E64287BCF04558C973778B494C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740870   (105717) от 04.08.2024
+
+Motorhead - Hammered (2002) [WavPack|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk A Crooked Mile
+ 02. Down The Line
+ 03. Brave New World
+ 04. Voices From The War(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F580CBA8D59DA6331FA8FE53C784033CAB1D720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740965   (105718) от 04.08.2024
+
+Газета | Невыдуманные истории №29 (433) (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105718.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F020733CA46002335B843BCFCE83A3AC192DF7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740952   (105719) от 04.08.2024
 
 Газета | Невыдуманные истории №26 (430) (июнь 2024) [PDF]
@@ -6,7 +85,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105719.jpg" />
 </div>
 
 
@@ -31,7 +110,7 @@ Fred Guillemet Band - Hard 'N' Roll Stories (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105720.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ magnet:?xt=urn:btih:6A9C0E2FE95F184EC5A098B78233925AEF47C378
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105721.jpg" />
 </div>
 
 
@@ -83,7 +162,7 @@ Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105722.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ magnet:?xt=urn:btih:BA5C55A39D84E1650C2012324041E52D7488AED2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105723.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Karla Leal - Can't Deny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105724.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105725.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ magnet:?xt=urn:btih:F617556C9A6996AD1BBF0345E47F1DBCEC9C95BC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105726.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ magnet:?xt=urn:btih:D7E11160C4998A6D06D340CC60759610AA21E1AA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105727.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ Flat Black - Dark Side Of The Brain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105728.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ Slowly Rolling Camera - Silver Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105729.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ Nils Landgren Funk Unit - Raw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105730.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ Soren (Søren) Lee, Jakob Dinesen, Victor Jones - Hope (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105731.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Mai-Liis - Kaleidoscope (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105732.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Joseph Marcus - Beyond The Dome: The Remixes (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105733.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ Roberto Giaquinto - Ground Floor (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105734.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ magnet:?xt=urn:btih:D095A432F34C5D86825459FD830E3673C5F6BB45
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105735.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105736.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ magnet:?xt=urn:btih:F02D8C80B09C8D66C4899DBC203398A650B94DC8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105737.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ magnet:?xt=urn:btih:4E3234316E4B81E2F3D68DD7A4F491ECCA118014
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105738.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Papa Roach - Leave a Light On (Talk Away The Dark) (2024) EP [FLAC 16/44.1, 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105739.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ magnet:?xt=urn:btih:6B698FD5314AFCC68FF23AA52F5CAD753475C195
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105740.jpg" />
 </div>
 
 
@@ -577,7 +656,7 @@ Tom Petty - Full Moon Fever (1989) LP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105741.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ Producer, Written-By, Bass, Guitar, Keyboards, Backing Vocals - Jeff Lynne01. Fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E9569C95A6446486A4F6DC6D2E5ACE740A897E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740857   (105742) от 04.08.2024
-
-Limahl - Never Ending Story (2006) [WavPack|Lossless|image + .cue] <Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me Why (Radio Edit)
- 02. Too Shy
- 03. Never Ending Story
- 04. Big Apple(   Читать дальше...   )Жанр: Synth PopПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB4955FBBA734417EC984AF9517434D3D708896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741058   (105743) от 04.08.2024
-
-Именем итальянского народа / In nome del popolo italiano (1971) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный судья Мариано Бонифаци расследует причины смерти молодой девушки Сильваны Ладзорини. Подозрение падает на коррумпированного мощного строительного промышленника Лоренцо Сантеночито, мораль которого не останавливается ни перед чем. Неподкупный судья Бонифаци очень ненавидит высокопоставленных мошенников и аферистов. И будет ли он объективным в своих действиях (   Читать дальше...   )Производство: Италия / International Apollo FilmsЖанр: комедия, детективРежиссер: Дино РизиАктеры: Уго Тоньяцци, Витторио Гассман, Эли Галлеани, Ивонн Фюрно, Мишель Чимароза, Ренато Бальдини, Пьетро Торди, Мария Тереза Албани, Альфредо Адами, Россела БергамонтиПеревод: дублированный, профессиональный двухголосыйЯзык озвучки: русский, итальянскийСубтитры: английские, итальянскиеПродолжительность: 01:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086A81A039B21737CF7D7B0831152EA90F30C69D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740831   (105744) от 04.08.2024
-
-Лариса Черникова - Ангел (2008) [WavPack|Lossless|image + .cue] <Pop, Stage>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел
- 02. Мой Малыш
- 03. Первый Поцелуй
- 04. Пока Живет Надежда В Нас(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B606AB1B3C306B68E6387AC5D4656BC77569E1
 ```
 
 

@@ -6,7 +6,7 @@ Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70194.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70195.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70196.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Photo Lab PRO v3.13.49 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70197.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70198.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:53812FB0A97DBC853FD9771908E159CEE3AFEC8B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70199.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70200.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:63B12F827E447E5998D3D0DACFCAAF28D70799A2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70201.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:F7764E02FF75F4D7C8B5E04AC2284E385E934647
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70202.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70203.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F0F1F57CC34931D206378B82C91029EA2CE05E73
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70204.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:540F210CFA258B4A2C8E538D0978A567EE2744A8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70205.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 1 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70206.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Calm Horizons 3: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70207.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A9998EC066E5AC0E0AFFFDFAE6EA88BD49C74BFC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70208.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:454541453711DC3949DACDA6F7F3F3D9976FC694
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70209.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C7641DADE0085F0C078BDFBBFE5E96CA25E7BFB2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70210.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:90C5B873616614F77468B937CA712E5A16948B55
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70211.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70212.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70213.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70214.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Trance Fusion Vol. 08 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70215.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70216.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Compilation  part 144 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70217.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:0AA405841BB3D67E1AE72EFBBA0466CDBA8375D3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70218.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70219.jpg" />
 </div>
 
 

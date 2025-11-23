@@ -1,3 +1,111 @@
+###  Публикация: 1618146   (250082) от 10.03.2023
+
+Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [FLAC 2.0|48/24|WEB-DL|tracks] <Folk, Medieval>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon (25th Anniversary New Mix)
+2. The Clock Ticks On (25th Anniversary New Mix)
+3. Be Mine Tonight (25th Anniversary New Mix)
+4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBD45CA8565D5BC88BA6C8664D89E76115DC330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617970   (250109) от 09.03.2023
+
+VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slavik... Kemmler - Indian Spirit
+02. Deep Forest - Media Luna
+03. Sacred Earth Drums - Prayer for the Four Directions
+04. Anugama - Tropical Morning(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241A4122FB6441EC576ACE3A77736A1A7BCECBA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617826   (250232) от 08.03.2023
+
+VA - Хорошо сидим ! Песни русского застолья (1996) [MP3|320 Kbps] <Folk> [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Коробейники
+02. Ой, цветет калина
+03. Дождливым вечером
+04. Ромашки спрятались(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD04C0DFAACD4BF7C6293A13EC044F7482B7F3C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495111   (251200) от 11.05.2012
+
+Лидия Русланова - Поет Лидия Русланова (1996) [MP3|320 kbps]<Народная Песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Окрасился месяц багрянцем (2:58)
+02. Саратовские частушки (2:41)
+03. Коробейники (2:44)
+04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495112   (251227) от 11.05.2012
 
 Лидия Русланова - Поет Лидия Русланова (1996) [FLAC|Lossless]<Народная Песня>
@@ -6,7 +114,7 @@
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251227.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251227.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251915.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251915.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Whitney Houston & VA - The Bodyguard / Телохранитель (1992) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252094.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252094.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ VA - The Queen of the Damned / Королева Проклятых (2002) [APE|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252102.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252102.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252648.jpg" />
 </div>
 
 
@@ -147,7 +255,7 @@ VA - Украинские народные песни (2000) [FLAC|Lossless]<Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252736.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252736.jpg" />
 </div>
 
 
@@ -174,7 +282,7 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252972.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252972.jpg" />
 </div>
 
 
@@ -207,7 +315,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253475.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253475.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253546.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253546.jpg" />
 </div>
 
 
@@ -264,7 +372,7 @@ Ghost Fish - Ghost Fish (2005) [FLAC|Lossless] <Indie Rock, Folk, Ethereal>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254332.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254332.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254533.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254613.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254613.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ VA - Инструментальная музыка - Лучшие мировые
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254762.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254762.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255076.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255076.jpg" />
 </div>
 
 
@@ -405,7 +513,7 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255378.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255778.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255791.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255791.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256292.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256363.jpg" />
 </div>
 
 
@@ -553,7 +661,7 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256373.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256373.jpg" />
 </div>
 
 
@@ -586,7 +694,7 @@ Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Ap
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256407.jpg" />
 </div>
 
 
@@ -619,7 +727,7 @@ magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256923.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256923.jpg" />
 </div>
 
 
@@ -639,135 +747,6 @@ magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500447   (257258) от 23.05.2012
-
-Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Metal>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Franconian Woods in Winter's Silence (08:34)
-02. A Gentle Grieving Farewell Kiss (01:59)
-03. The Blue Mists of Night (06:26)
-04. Mourners (09:18)
-05. Where at Night the Wood Grouse Plays (05:29)
-06. Dying Brokenhearted (05:34)
-07. The Shepherd and the Maiden Ghost (03:27)
-08. Heimwärts (06:41)
-09. Waldpoesie (13:31)
-10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500394   (257395) от 24.05.2012
-
-Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Rock, Dark Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subaudition – это молодой финский дуэт, ранее исполнявший progressive metal в рамках малоизвестной команды Manifold Object. Необычный материал содержит не только стандартные и очевидные звуки, но также множество призрачных аллегорий, создающих атмосферу таинственности и загадочности. Полное ощущение сумрака, создаваемое богатым инструментальным рядом, спокойным вокалом и супер-эмоциональностью. Эта финская команда предпочитает создавать в своих произведениях безысходную атмосферу при помощи минимума нот, слов и звуков.01. Alms of the Sun (05:26)
-02. Sнnne (06:05)
-03. Now that we've spent all the Light (05:30)
-04. Feathers Fall (06:05)
-05. The Soul unto Aether (04:00)
-06. Human Abstract (06:12)
-07. Wall of Water (07:49)2006-2009Жанр: Neofolk, Atmospheric Rock, Dark AcousticПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500892   (257453) от 24.05.2012
-
-Ненецкий народный ансамбль Маймбава - Вынгы Сё (2006) [MP3|320 кб/с]<Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Три моих ручных оленёнка
-02-Колыбельная Едэя Хасавы
-03-Тепло материнских рук
-04-Песня Обских рыбаков
-05-Ловля оленей
-06-Оленёнок
-07-Весенняя песня
-08-Снежинки
-09-Мой отец оленевод
-10-Песня шамана(   Читать дальше...   )2006Жанр: Ethnic, FolkПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501014   (257470) от 24.05.2012
-
-VA - Masters of Acoustic Guitar (1997) [MP3|320 кб/с]<Acoustic Guitar / Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Ross - Afraid To Dance (3:24)
-02. Billy McLaughlin & Dirk Freymuth - Tsavo (Edit) (7:09)
-03. Stephen Bennett - Cornwall (3:57)
-04. Lawrence Juber & Preston Reed - Last Train (4:58)
-05. Oscar Lopez - Classical Soul (Edit) (2:58)
-06. Eric Johnson - A Song For Life (2:34)
-07. Leo Kottke - Red & White (1:50)
-08. Dan Schwartz - Sad Little Girl (5:06)
-09. Bill Mize - The Road Scholar (3:25)
-10. Ed Gerhard - Duet (2:53)(   Читать дальше...   )1997Жанр: Acoustic Guitar / InstrumentalПродолжительность: 52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39131BCB20945342342E04D1C55D68BB74D53E91
 ```
 
 

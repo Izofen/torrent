@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7809.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7810.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7811.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Distant Worlds 2 (2022) [En] (1.3.1.1.1/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7812.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Project Zomboid (2013) [Ru/Multi] (42.8.1) License GOG [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7813.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7814.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7815.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7816.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7817.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:18F697FD74E1DDA68D748340B7D41C5BA9508154
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7818.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7819.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7820.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:951AA0E2949FD2994A0A4F6839390EF4A47A2AC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7821.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Witchfire (2024) [Ru/En] (0.7.3) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7822.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7823.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7824.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7825.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7826.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7827.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7828.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7830.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D4BE1BED1E1C9E189DE7168152F37463AD5FCC69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7831.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:BBF1A919E91F33CC1C4CB1773FF9DD2D35E20ABC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7832.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:BCC9A8A27850177BC449CC3565D651DA1F0A2845
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7833.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Via Mistica - Fallen Angels (2004) 2005 [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7834.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F9604BEB1D9FF65AD1DEDA9AC2DB7AF330AF196C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7835.jpg" />
 </div>
 
 

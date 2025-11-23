@@ -6,7 +6,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3534.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack Let'sРlay [Planet Community
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3536.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Factorio (2020) [Ru/Multi] (2.0.66/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3537.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8086D526174F84A2126A0B0DBE4EB7319B8D40C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3538.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4B6AADDF71E1C07D9E70F20B3C7C9DCE19F5796D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3539.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3540.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3541.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:332159778D3330FF610BCECCCF68FD708A309BCF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3542.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6584 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3543.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6332 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3544.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Metal Eden (2025) [Ru/Multi] (1.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3545.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3546.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:42F7AC019645CC740E105B1EB359ECDD8AB75F83
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3547.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1503B0DB76D373E9CA680ADE8EA735396C6C1344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3548.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3549.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3550.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3551.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3552.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:46F02489398DE7311D721CE191AE8A1D3F2E17D8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3553.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3554.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Bleeding Through - Nine (2025) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3555.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Riffstone - Richard III (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3556.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:5C37076CA07102E9111EEB2DE6A3E0EC673D3009
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3557.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E2AEE771627A186F5CFFDE61638ED166597A5E8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3558.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Soul Central ft. Abigail Bailey - Time After Time (2007) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3559.jpg" />
 </div>
 
 

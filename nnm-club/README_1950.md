@@ -6,7 +6,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D695F4F1AC396273946A3C766F677A3C32ECBA17
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51056.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51057.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E2E9A228328341C7E5862ED8C78FF3F5EF540644
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51058.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:EB5D2AE8A557C0088E7685FBAFBF0127051CE2EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51059.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:EB5D2AE8A557C0088E7685FBAFBF0127051CE2EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51060.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7EB9FD0C1E8EC24D7F12EF2CA67AFEC8C3FA8D54
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51061.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:C0B24359749EEF2AA20E158013AEC67D3640A212
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51062.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Aiseesoft Video Converter Ultimate 10.8.38 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51063.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mullvad Browser 13.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51064.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ TweakPower 2.055 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51065.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ R-Studio Network 9.4 Build 191329 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51066.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ KMPlayer 2024.6.25.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51067.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Skype 8.123.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51068.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Eric Clapton - To Save a Child (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51069.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:769550A170248CC1D4E8FE6B9343B2C72D7EA7EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51070.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3325C78989CDE6FBBD0B9393474C24680D2C57BC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51071.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51072.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D4D341B0A0CFCFBB4369DDAB4901E5F4E98E042D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51073.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Auslogics Registry Cleaner Pro 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51074.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:5329A0284ECC42EF18248E0AF712B5A8C794761C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51075.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ KMPlayer 4.2.3.13 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51076.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ RegCool 2.006 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51077.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51078.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51079.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [MP3|320 Kbps] <Melodic, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51080.jpg" />
 </div>
 
 

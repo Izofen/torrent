@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49CDAA23083FFECBB33212DDCDFE49BC8D0B76C8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5041.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:03158DB28235BFEEDA824F0CBB8231CD5E2A8071
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6334.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6665E2EEDDD7EFEE6634A081233E8DB0AE3A0507
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9652.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2FA3254B644F1E2FBC103E792CA716AD9C9AACD9
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10226.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B40EF62EFA07C389D91EDABB28421A9CA8D3C37D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13759.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7EB8C0CB5BBDF99793C862B43390CEE01FB01633
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14572.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:520BEA037B0B9B704E4B76E4103735E8B36DAABB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18845.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:DEDB6A3D4EFB20B955DD2B980BAA5E67AC226065
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18887.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9F98FCC8795D7FC716AB3D6C573BCFA14E2BA46E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18890.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8AAC7B7F153218983D8AEE4B536351E59EB219E8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18936.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0D7145EE4CF2F7EA077286A4B2BA90FDA1C4F987
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18974.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:6518E32C307EE94F44FE038B93217DFDF202B809
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19093.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FE40EE565AA026F05C8ACA7C9366F46710FD0281
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19114.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B3B4F180121541CDBF2189CF3A8782BB4102224B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19520.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A7D8C3103463B7BC3F2AB7C6137C0B2FB3A73A0E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21678.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:28C1A0420A3504547034DA435FFC9B83CB4EF649
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25107.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:0D71E3F8E0FBB84EFB05DA9564E4927C8F902F1E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25483.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:22F8E563CDC5E766F22124100E152F68D6266795
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26555.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26555.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:B815B253DD5DCAB910D2F7C7E667D41FD244EC5B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26583.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:85AB43793F5A3AA1A75E003AD6334135C17F4630
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27395.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:79D785B80CA9F7DB0E1A451652B9CFDBAC0A8283
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28273.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A986111F706A91FD077305D376772AF5434A7EC0
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28911.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E8B4503CB4BBB766284FF66B551706880D907A69
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29003.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:954606426DFAB13DCB71959C9D9687A410624EFA
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29619.jpg" />
 </div>
 
 

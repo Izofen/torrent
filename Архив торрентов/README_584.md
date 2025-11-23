@@ -6,7 +6,7 @@ FastStone Capture 10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126297.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Balabolka 2.15.0.860 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126306.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126307.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:63DF0EFA045DB17C1BFE01DCEA2F3A5CC4407B36
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126308.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Mozilla Thunderbird 115.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126311.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A7CDB6EB6DA7BBE089CFFB8A8796A684D8853588
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126314.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ JetBrains GoLand 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126322.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ BlueStacks App Player 5.14.10.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126349.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ IPTV Pro v7.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126363.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AOMEI Partition Assistant Technician Edition 10.2.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126371.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126378.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ PhotoRoom 4.7.9 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126422.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PhotoRoom v4.7.9 b1216 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126440.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Chromium 120.0.6099.130 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126455.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ JetBrains RubyMine 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126458.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Opera GX 105.0.4970.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126467.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Opera Crypto Browser 106.0.4998.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126476.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Duolingo: изучай языки 5.132.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126479.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Opera One 106.0.4998.19 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126480.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Reface v4.1.0 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126482.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Smart Launcher 6.4 build 004 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126485.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.8 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126491.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ DiskDigger 1.103.167.3571 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126496.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126501.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ventusky: Прогноз погоды v30.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126502.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ OfficeSuite Pro + PDF 14.1.50441 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126504.jpg" />
 </div>
 
 

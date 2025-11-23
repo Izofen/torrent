@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69570.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Citizen Jones - Downtown Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69571.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:84BF84E88B8F5C3B997676D8B42C4DA4FFE92224
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69573.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0460E836660AA297FEDAD0463983963938FC7972
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69574.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69575.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Stinking Lizaveta - Slaughterhouse (1997) Remaster, 2025, SRA Records[FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69576.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Livingston - A Hometown Odyssey (2024) The Story Continues, 2025, Big Up Enterta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69577.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Bluebird, His Hot Combo - Miss Bad Valentine (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69578.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C5DCC297F2296A8FE5DFF24D888F749522C3E825
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69579.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Third Realm - Her Name Was Melancholia (2025) [MP3|320 Kbps] <Darkwave, EBM, Got
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69580.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:550246F9D5797409C7D36FB6A5BC8D00DA558052
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69581.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69582.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:AFAB7A145BCE833DE7F1F2C275036E0D9922835E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69583.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Billy F Gibbons - Cruising with Billy F Gibbons (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69584.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:A0424562A662E4941CD31EEAE9549DFE7C564089
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69585.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:DFA1D331AB41001DF594F0A2757BD916A20E8660
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69586.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:A39AF00B4D85CD695535B9FC796625CE81449C0E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69587.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Ellis Mano Band - Morph (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69588.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:9EF4D69C0AC4BDC5D62E7CE9A0E1952E3AC3A1F9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69589.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69590.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69591.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69592.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Bluebird, Skoko - Trust Your Mojo, Sista (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69593.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69594.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:9B26C0514340A49B828D59DE7055C130747027EF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69595.jpg" />
 </div>
 
 

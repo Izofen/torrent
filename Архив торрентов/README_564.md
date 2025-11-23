@@ -6,7 +6,7 @@ TreeSize Professional 9.1.0.1868 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121901.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Download Master 7.1.1.1727 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121905.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OneCommander Pro 3.66.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121913.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Fakin The Funk 5.4.0.158 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121927.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Display Driver Uninstaller 18.0.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121937.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E61B0042AF661B06338BBDF80D90C8056FBE3FF9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121945.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F783C2CBFA4F8AF619E10C17AAE9D7E810F77743
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121955.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ App Cleaner & Uninstaller Pro 8.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121959.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ FanControl V179 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122017.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VidCoder 9.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122018.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Opera Crypto Browser 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122022.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Opera GX 106.0.4998.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122026.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Telegram Desktop 4.14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122034.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Calibre 7.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122039.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ FileOptimizer 16.50.2809 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122040.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Fort Firewall 3.10.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122045.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Chromium 120.0.6099.225 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122046.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Brave Browser 1.61.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122047.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Vivaldi 6.5.3206.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122050.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ PortableApps.com Platform 29.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122053.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Total Commander 11.03 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122054.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ DxO PhotoLab Elite 7.3.0 build 133 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122056.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122060.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Opera One 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122066.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Floorp Browser 11.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122068.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Windows and Office Genuine ISO Verifier 11.13.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122073.jpg" />
 </div>
 
 

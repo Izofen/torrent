@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25B7750D235EB2A1EAD94527B0980E1E08FFD49B
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49054.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E01D799C26ED051D00AFE2F469CB5C8E856CB211
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49055.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:91CBA2DFADEE3FD299E0CB67A0B360F90C3DAD13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49056.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5E3976422297A39B74990838FAC8DBA01BFA64D0
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49057.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tekken 8 (2024) [Ru/Multi] (1.06.01/dlc) Scene Rune [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49058.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:19E0381EF70D89C17129A04D1E6291D125C71FD7
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49059.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9F280732A3D64F8134C53BC3315E4EBD7A42FB50
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49060.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C65247EFC043E4AF02E8FCCAD9C216A0E8EE789B
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49061.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0248E3796C98C35CB3F9A69CD61926D54DC939DC
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49062.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:1DD7ED39C35454ABE086986689AD9FD52474ABC5
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49063.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:79C117CE8BDB3578DF1278819C2009012E784729
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49064.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:403564DB61F2A0FB70CFC7EE0EFA01BFFF5CE400
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49065.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:607881FB03B2636A548238CC8D08C2CA95776139
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49066.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:AEF106B61F0005A210E539BDF208231E581EA2F7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49067.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ HWiNFO 8.06 Build 5500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49068.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:4629F54C052E57B9DE2AB093AD7656713D805BD2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49069.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Classic Rock 100 Epic Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49070.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49071.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ ES File Explorer File Manager v4.4.2.12 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49072.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VideoProc Converter AI 7.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49073.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49074.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ HexoCity (2024) [Multi] (1.1.1.1199) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49075.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49076.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Terminal - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49077.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1EB128E63782025146FABA99F666F3BE271670B5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49078.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49261.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E6F580359CA2FEB05D7C1BD106C4C8B7FD1034AB
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49262.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E92E00741FF5B42176089A64ACE7FAD73B56CA8F
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49263.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0BBA0B40AF66EAD7DB66D4AF2DB999F18EE84F72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49264.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1497952AA40E86B7388893CF67DF3E100E7CCBCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49265.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:90956FF94BA8908C8044AEF861F7173FBCDA1BBF
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49266.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49267.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49268.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3E7EE4E93DCF8D6F9E50C85A7667EBAAB9549CA7
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49269.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Manfred Mann's Earth Band - Angel Station In Moscow (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49270.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F6A7DE21B840FE0EE8C89153C40783BA33592BCE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49271.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:AFCEECA7AB064E5CE767939803DE7EDE00069A71
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49272.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:FDB850747D6D2355CC22B1962E7C7B7F3419FF01
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49273.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6C935D9BF97C470B29D9044FE7D5C4926E55649D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49274.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:F64E2E607DCDCF59DACBB99B19368F5CE904244E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49275.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A397D980983CD64302F7FD75B806C8085CE663C5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49276.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:EB77C610EB72E628F8193D09BDDD6AE42CED6CB3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49277.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D7E25A03CC867EECFA4891CE294E0C407D5A0841
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49278.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D5B97342C132FD62FC4E0052B2F6CA8ACE858764
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49279.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49280.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49281.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ BAND-MAID - LIVE at AKASAKA BLITZ (2017) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49282.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Super Hits 80's Volume 1 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49283.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:062A61F7DD9A4AC9A2839775BDE42E94D00E0A47
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49284.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:4910A271A7AAFB708AADE0C5FC679E320D89E48A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49285.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Floor Plan Creator v3.6.7 Mod by LITEAPKS, Maximoff ⁠[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49286.jpg" />
 </div>
 
 

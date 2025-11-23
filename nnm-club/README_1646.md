@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Kontor Top of the Clubs Vol. 100 (2024) [MP3|~245 Kbps (V0)] <Electronic, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43153.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43154.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43155.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Ibiza Autumn 2024 (2024) Chill Out Cookies From The Heart [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43156.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.1 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43157.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43158.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43159.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43160.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43161.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - TOP Non-Stop 2000-2009 - Deep House. Part 4 (2024) [MP3|192-320 Kbps] <Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43162.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:B562F39B428C006EF60FAD8CC9AD6993413AE00C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43163.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43164.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43165.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Schwarz & Funk - The Terrace Sessions, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43166.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DFEAE6F7776BFF035E75707196C67D56EBE3FBD5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43167.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:5AF3169273BDDEC54D822FFF13457E4199531FAD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43168.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:35EBAB0F0B168B97A8E2165929A04BACE00DEF4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43169.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:35EBAB0F0B168B97A8E2165929A04BACE00DEF4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43170.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bun
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43171.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:8DFC4EAF2C3E196373DE55FBEDF15799ED273220
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43172.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1028B754D8C8E8879E01A95635FAE686E9C76226
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43173.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:239D7AB25406F65836DCB7A30374174D868D3926
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43174.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:BBEE148B27B25AD230B17B11CCE29C90CE668AA0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43175.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43176.jpg" />
 </div>
 
 

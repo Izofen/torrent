@@ -1,3 +1,76 @@
+###  Публикация: 1626607   (199738) от 15.04.2023
+
+Itoo RailClone Lite 5.3.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199738.jpg" />
+</div>
+
+
+###  Подробнее
+
+RailClone - это плагин для программы 3ds Max для параметрического моделирования на основе пользовательских частей геометрии, определяемых пользователем, и с готовыми шаблонами архитектурных данных.
+По функционалу, этот плагин схож с такими модификаторами как Loft, Bevel Profile и Sweep. Но в отличие от последних, он множит 3d объект(-ы) по заданному пути.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADFA334CD0EE891E07B56DCB8C3DC971193D45D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626221   (199854) от 13.04.2023
+
+ВидеоШОУ 5.0 Portable by conservator [Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199854.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ВидеоШОУ» — настоящая находка для тех, кто мечтает научиться создавать качественные видеоролики, но совершенно не имеет желания изучать сложный софт на английском языке. Готовый видеоролик можно сохранить в любом формате для просмотра с ПК или телефона, записать на диск с красивым интерактивным меню, а также оптимизировать специально для размещения в интернете. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B0773608D5C0ABFDFCDAA92249B913CC718C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828972   (199918) от 24.10.2025
+
+PillowView 1.0.0 [En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный просмотрщик изображений с открытым исходным кодом и простой редактор изображений для Windows 10/11 x64, написанный на Python, основанный на Pillow и собственных API Windows. Его также можно назвать графическим интерфейсом Pillow для Windows. Во многом вдохновлён IrfanView.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDAFD5EE58B41D644BB6E3116A4E52A4E169F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828945   (199941) от 24.10.2025
 
 reaConverter Pro 8.0.148 [Multi/Ru]
@@ -6,7 +79,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199941.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ MAGIX Samplitude Pro X7 Suite 18.2.2.22564 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199998.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199998.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ magnet:?xt=urn:btih:468C211D1CAF7A1A90DD3F93681E606163425300
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200091.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200091.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Singular Inversions FaceGen Artist Pro 3.12 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200258.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200258.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ The Foundry Modo 16.1v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200533.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Spectrasonics Omnisphere Software 2.8.5f SAL, VSTi, VSTi i, AAX (x64) Update [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200692.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200692.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ Native Instruments - Battery 4 4.3.0 Standalone, VSTi, VSTi 3, AAX + Factory Lib
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200924.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200924.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ iZotope RX 10 Audio Editor Advanced 10.4.0 + Plugins (x64) Portable by 7997 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201171.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201171.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ VideoProc Converter 5.5 Portable by zeka.k [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201280.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201280.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ AnyMP4 4K Converter 7.2.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201318.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ OpenMPT 1.30.11.00 + Portable [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201329.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201329.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ Ashampoo Photo Commander 17.0.3 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201561.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Ashampoo Photo Commander 17.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201575.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ KORG Collection 4 (03.2023) Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201607.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201607.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Album Player 2.114 Portable [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201720.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201720.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ MediaCoder 0.8.65 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201732.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201732.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Topaz DeNoise AI 3.7.2 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201743.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ magnet:?xt=urn:btih:9DDAEC8FDC437E73C5D2455CE8BD93641D435EB5
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201749.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201749.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ LosslessCut 3.66.1 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201754.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201754.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ FireAlpaca 2.13.26 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201822.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201822.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201963.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201963.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202095.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202095.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ Paint Tool SAI 2 20230711 Technical Preview [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202180.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202180.jpg" />
 </div>
 
 
@@ -552,80 +625,6 @@ PaintTool SAI - это высококачественное и легкое пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46490A1FB9BC83885152CA72B097B48EC983B7C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829221   (202212) от 25.10.2025
-
-Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614788   (202348) от 23.02.2023
-
-Фото на документы Профи 9.35 [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830318   (202374) от 26.10.2025
-
-Arturia - Pigments 6.0.4 STANTALONE, VSTi, VSTi 3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Arturia выпускает обновлённую версию своего флагманского VST-синтезатора. В сравнении с предыдущей версией, инструмент получит новый движок синтеза, новые фильтры, эффекты и другие улучшения.
-Arturia Pigments 6 включает шесть типов синтеза, отмечают разработчики. В шестой версии синтезатора инструмент пополнился новым модальным движком, генерирующим «вдохновлённые (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103353C256E11FA7E4F7660EA1E27623BE9538A1
 ```
 
 

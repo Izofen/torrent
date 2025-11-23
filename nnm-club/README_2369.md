@@ -6,7 +6,7 @@ Girls Bravo | Браво, девушки! [2004, TV, 11 из 11] DVDRip 480p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61959.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6FC579F6179C0B9897D6CF4AEE51D9FE4264913
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61960.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6A54304FFDACFF229FB1F375110251F2D5FE7F72
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61961.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A52E0AEB5F6B2574BA284CB3541DF991E1CE3D37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61962.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ No Remorse No Retreat - To Glory We Ride (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61963.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Mato Seihei no Slave | Chained Soldier | Раб элитного корпуса 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61964.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Понемногу отовсюду by Yuridar #B (1961-2022) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61965.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3C5FE95A6686E46F82041218980DD6C8CB6593E5
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61966.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A62E2B35F6CF7D2ED7820098AF6D222F25201228
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61967.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61968.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:561042BC686E14AA371D61F7C9BCF9DCFAE1502A
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61969.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:A59FEC6795E3CAC2ED2452D5991CB8DD6D4BCF35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61970.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ ESET Online Scanner 3.7.4.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61971.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61972.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:27AB00B72E518764253B404A57D075E3782DD45E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61973.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:74A98E8D6B9F98D2669F1833A6E62FCDA09C6B1B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61974.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:036F16627971F601817150FFCC1929A6CA0A503F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61975.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:89644E1AE41DC5AE96C931893D8385B39593CD0A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61976.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D709BDA20516DE33B307AC49D629558C8D2A623E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61977.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Ao no Exorcist: Shimane Illuminati Hen | Blue Exorcist: Shimane Illuminati Saga 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61978.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61979.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61980.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ United Penguin Kingdom (2024) [Ru/Multi] (1.001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61981.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61982.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Manic Mechanics (2024) [Ru/Multi] (2.1.7.0_88821) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61983.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:F3ABD52E51CA18ADD498964F2E02B0627E759207
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61984.jpg" />
 </div>
 
 

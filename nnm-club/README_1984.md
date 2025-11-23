@@ -6,7 +6,7 @@ Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51948.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CC33EECECE2BDC547C799D4AA5326EB38E178137
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51949.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51950.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:616A7EEB72708A66582C5FF6AF9EA5FB741118F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51951.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Brave Browser 1.67.123 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51952.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Speccy 1.33.079 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51953.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:824B5C377DF69653373E06530688AB6C87843951
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51954.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:49B17998BFC9BD037FF2E44DD5C160B4533DDDBF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51955.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B0E78D284260F9686C76E9C0E46CAAC2FF792703
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51956.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:CF39A2979369569123FA95DD54E1D199E142A5C4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51957.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3E0D3036F10D18DDE0516ACB6C21995B23C6674B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51958.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Google Chrome 126.0.6478.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51959.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:13D5B7C844E9ADB62B1691851E65B83AD5608BE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51960.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cent Browser 5.1.1130.128 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51961.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:2198BB45F2C8D01A5F06AF49F12974B29B7EB97A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51962.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51963.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:D09C002697BE0D34BD5E35337949FDA74E34C9F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51964.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:E0FF0A848822251F48E66538FA06DFFE3EAE1EB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51965.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:8B6D78632F49397071822632DCAF131FC1915EFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51966.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:5F53428979E8B22AD92F758C034E437AFE60EDF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51967.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51968.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0BB87CFAEC7BBA11B19CD382C1765A196F9DC7A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51969.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B7EAA7FC0615B04D8B3ACF31A75CF3449A34A74D
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51970.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:62D41FB328DB00311D13B30AAF91DC3F2A7036FE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51971.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:62D41FB328DB00311D13B30AAF91DC3F2A7036FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51972.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Microsoft удалила руководство по переключению н
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51973.jpg" />
 </div>
 
 

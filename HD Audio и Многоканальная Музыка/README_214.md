@@ -1,3 +1,111 @@
+###  Публикация: 1208554   (237215) от 05.05.2022
+
+VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197473   (237227) от 05.05.2022
+
+Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixielend>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очи чёрные
+02. Вот мчится тройка удалая
+03. Огонёк
+04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208575   (237241) от 05.05.2022
+
+Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карра (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чак-Чак (Ciak) Malgioglio - Castellari
+02. Вернись Ко Мне (Torna Da Me) Belfiore - Boncompagni - Bracardi
+03. Несчастная Любовь (Povero Amore) Boncompagni - Bracardi
+04. На Словах (A Parole) Belfiore - Boncompagni - Bracardi(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208517   (237259) от 05.05.2022
+
+VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dori Ghezzi - Margherita on so la
+02. Stefano Sani - Complimenti
+03. Rosanna Fratello - …Se t’amo t’amo
+04. Adriano Celentano - Atmosfera(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630459   (237261) от 01.05.2023
 
 Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Gothic Metal>
@@ -6,7 +114,7 @@ Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237261.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237451.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237534.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237599.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237707.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237946.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237946.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238010.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238010.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238151.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238151.jpg" />
 </div>
 
 
@@ -547,7 +655,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238228.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238228.jpg" />
 </div>
 
 
@@ -575,7 +683,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238237.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238237.jpg" />
 </div>
 
 
@@ -586,114 +694,6 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639342   (238268) от 13.06.2023
-
-Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clutch — американская рок-группа из города Джермантаун, штат Мэриленд.1993 - Transnational Speedway League
-1995 - Clutch
-1997 - Impetus (EP)
-1998 - The Elephant RidersЖанр: Stoner RockПродолжительность: 14:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140820   (238299) от 30.04.2022
-
-Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
-A2 Лжец (Liar)
-A3 Влюбленная Королева (Queen In Love)
-A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623865   (238316) от 03.04.2023
-
-Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop-Rock, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horsepower For The Streets
-02. You Make Me Feel This Way
-03. Cut A Black Diamond
-04. Small Mercies(   Читать дальше...   )Жанр: Pop-Rock, Soul, R&BПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BF9EF408516EE593942130A41FAB9DDA2F2575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145522   (238348) от 30.04.2022
-
-VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Vietnam - Roadhouse Blues (The Doors)
-02. Poison - What I Like About You (The Romantics)
-03. Jorn - Feel Like Making Love (Bad Company)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
 ```
 
 

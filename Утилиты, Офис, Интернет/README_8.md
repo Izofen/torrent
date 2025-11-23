@@ -6,7 +6,7 @@ Element X 1.11.110 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RarmaRadio Pro 2.77.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5858.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Pale Moon 33.8.2 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5873.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Slimjet 47.0.1.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5877.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MiniBin 6.1.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5893.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Activation Program 1.12 b07 Portable by Ratiborus [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5913.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Insofta 3D Text Commander 6.5.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6011.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Uptooda (ex. image uploader) 1.4.5 Build 5392 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6021.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ FreeTube 0.23.8 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6035.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ USB Safely Remove 7.1.2.1328 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6044.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Firefox Browser ESR 140.2.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6130.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ HiBit Uninstaller 3.2.70 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ UltraSearch Professional 4.8.2.1182 RePack (& Portable) by elchupacabra [Multi/R
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6176.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ HEU KMS Activator 63.2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6232.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ priPrinter Professional 7.0.0.2591 Beta RePack by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6349.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ XYplorer 27.10.0600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6459.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ XYplorer 27.10.0600 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6463.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ SoundSwitch 6.14.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6489.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Autorun Organizer 6.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6514.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ LibreOffice 25.8.0 Stable Portable by FC Portables[Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6520.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ ShareX 18.0.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6677.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ditto Clipboard Manager 3.25.76 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6683.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Foxit PDF Editor Pro 2025.1.0.27937 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6706.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ CCleaner 6.39.11548 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6725.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ doPDF 11.9.503 Free [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6772.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Floorp Browser 12.1.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6816.jpg" />
 </div>
 
 

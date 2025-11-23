@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112585.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112643.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BF16DE49AA322BC156EEA5DAB873EFACA28C28BE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112656.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112719.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:FA32957AFFF1E09CE8C91401CB21832DC2A209C9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112733.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112740.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112744.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112763.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112801.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112823.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112844.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112852.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112855.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112860.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112863.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112873.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112882.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112902.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112907.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112911.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112912.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112913.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112922.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112923.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112924.jpg" />
 </div>
 
 

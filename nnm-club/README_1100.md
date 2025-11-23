@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:77C01BA1C776DFE89726A4AEE9515339FC27C1D0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wubuntu 11.24.04.2 LTS 24.10 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28955.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28955.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Merion Academy, Сергей Егоров | MikroTik (2024) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28956.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28956.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BBC. Охота / The Hunt (2015) BDRemux [H.264/1080p] (сезон 1, сери�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28957.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:72757B8A02C5912A183725AB61B16E7CEF0FC84B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28958.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28958.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:72757B8A02C5912A183725AB61B16E7CEF0FC84B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28959.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28959.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2D0BE7D4F43CFBAA061195975638484333F21B7D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28960.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:502D57E8CA74F0617740D92FC473B9476D2BA603
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28961.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C6E2E8FF0B0C4739B940C77B339A77356BE2EC77
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28962.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28962.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A43AA62E8F1B5B24F94E3122FD9B3F7C486D12E6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28963.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28963.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28964.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28964.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:2AFFB5D45B9478FAE72EF03CEE0D5EDEFC73E372
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28965.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28965.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:854F0B44AA22DF87CEB9B3553FC9F6F29E6A5B7C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28966.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28967.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28967.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:409A45D4CA2D301FACC09E6223A8965BC5C7E7FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28968.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:409A45D4CA2D301FACC09E6223A8965BC5C7E7FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28969.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E9D646449D5DB07BDDA3DF1F3C80BE613C594833
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28970.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:648C629B2722467BD8637BBD2565A2C04B43540E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28971.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:35D8A64BFDA763F704ADAF5DF9984CE4FA182D79
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28972.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2B230EA9F2B309AFF4A7BF04D0FB5395063F4DCD
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28973.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1174033AAECB4F3362187ABA75A119BA5C68708B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28974.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28975.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28976.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.560 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28977.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D6309EE9A8F9379CA2779F95D814E17A2E27EAC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28978.jpg" />
 </div>
 
 

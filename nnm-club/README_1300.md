@@ -6,7 +6,7 @@ NokoPrint v5.20.14 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34153.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:7FA753142AB8BD364BC1931A8FCD63B823751BD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34154.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A266F0DC837CD6FDC68B2F8646E44603276CA65B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34155.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A266F0DC837CD6FDC68B2F8646E44603276CA65B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34156.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AB65C05981F0B59584BF3A108C4B4306764ABA3B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34157.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34158.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7FBF03CCC9115260DC50102E5A31E83E91422A79
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34159.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ YouTube  научился переводить видео
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34160.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Windows 11 PRO 23H2 22631.4602 Update 14 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34161.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Windows 11 PRO 24H2 26100.2605 Update 10 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34162.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9654ADF1907B3601ABFF8DC40BE7E3245FF9C15A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34163.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F620DDD3227B01F3A7C7E30765F4397FC0C2458A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34164.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34165.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:371F15DB3399467D37F2AA9C487731687847A538
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34166.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinToUSB Technician 9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34167.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:9F3977746C79B97C90DF19EE91DFE0341A8B5C60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34168.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D68DEB2C02C9B076F57228E100223C9B5273D934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34169.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:D68DEB2C02C9B076F57228E100223C9B5273D934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34170.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.34.7 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34171.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - ЕвроХит Топ 40 Europa Plus 13.12.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34172.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ HandBrake 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34173.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Alfa eBooks Manager 8.6.41.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34174.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:237D202C056FF8269C80E1EE5B9D324139BEF1B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34175.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:95248DDB59877612E08F75ADEB21A15FA5D8C4C9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34176.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.30) License GOG [Digital Collector's E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34177.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:3434C661F441C52A45E9741065ABD7839E1377FA
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34178.jpg" />
 </div>
 
 

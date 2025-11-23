@@ -1,3 +1,99 @@
+###  Публикация: 1668914   (173214) от 14.10.2023
+
+USBclean 3.7.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9933AEF102DEF7926C616B3FF29136377BA4A1FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668911   (173238) от 14.10.2023
+
+Proxyman for Mac 4.12.0 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © 2023 Proxyman LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668904   (173244) от 14.10.2023
+
+TechSmith Camtasia 2022 Studio 2022.6.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896CE7546490D2978DBF569E4DF6DCD047F6800C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669031   (173245) от 14.10.2023
+
+YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2023Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE1392A7795BBD140AE46CEA0E7153A6E33B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668861   (173259) от 14.10.2023
 
 Notebooks – Write and Organize 3.3 [En]
@@ -6,7 +102,7 @@ Notebooks – Write and Organize 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173259.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ Storyist 4 v.4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173262.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ Rhinoceros 3D 7.34.23267.11001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173307.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ Tor Browser Bundle 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173309.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ Rufus 4.3 (Build 2089) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173313.jpg" />
 </div>
 
 
@@ -127,7 +223,7 @@ Topaz Photo AI 2.0.6 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173319.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ Aiseesoft FoneLab for Android 5.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173323.jpg" />
 </div>
 
 
@@ -175,7 +271,7 @@ AIDA64 Extreme Edition 6.92.6614 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173328.jpg" />
 </div>
 
 
@@ -199,7 +295,7 @@ KeePass Password Safe 2.55 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173329.jpg" />
 </div>
 
 
@@ -223,7 +319,7 @@ Calibre 6.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173337.jpg" />
 </div>
 
 
@@ -248,7 +344,7 @@ ImgDrive 2.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173339.jpg" />
 </div>
 
 
@@ -272,7 +368,7 @@ DNS Changer 2.1.10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173343.jpg" />
 </div>
 
 
@@ -296,7 +392,7 @@ FanControl V172 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173344.jpg" />
 </div>
 
 
@@ -320,7 +416,7 @@ Topaz Photo AI 2.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173354.jpg" />
 </div>
 
 
@@ -344,7 +440,7 @@ Icecream Video Editor Pro 3.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173359.jpg" />
 </div>
 
 
@@ -368,7 +464,7 @@ XMind Pro 2023 23.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173360.jpg" />
 </div>
 
 
@@ -392,7 +488,7 @@ PortableApps.com Platform 26.2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173363.jpg" />
 </div>
 
 
@@ -418,7 +514,7 @@ MusicBrainz Picard 2.10 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173364.jpg" />
 </div>
 
 
@@ -443,7 +539,7 @@ LibreWolf 118.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173367.jpg" />
 </div>
 
 
@@ -469,7 +565,7 @@ CudaText 1.200.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173372.jpg" />
 </div>
 
 
@@ -494,7 +590,7 @@ Brave Browser 1.59.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173377.jpg" />
 </div>
 
 
@@ -518,7 +614,7 @@ Chromium 118.0.5993.71 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173379.jpg" />
 </div>
 
 
@@ -529,107 +625,6 @@ Chromium – веб-браузер с открытым исходным кодо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D58CC1B5748CCF0C4749003CC24A8D9470A6AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668769   (173381) от 13.10.2023
-
-Perfectly Clear WorkBench 4.6.0.2607 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9004A9E1E857DC0EBB0DDDACB1CB5C35A687D13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668580   (173384) от 13.10.2023
-
-Monkey's Audio 10.25 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
-Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EBBA502BA62A32F4DC41A07D2E0D54EEEE7C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668622   (173388) от 13.10.2023
-
-SwitchResX 4.13.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173388.jpg" />
-</div>
-
-
-###  Подробнее
-
-SwitchResX 4 — настройка монитора и изображения для Mac OS X
-SwitchResX для Mac OS X является аналогом утилит ATI и Nvidia настроек монитора и изображения.
-Программа позволяет управлять разрешением как экрана ноутбука, внешнего монитора и airplay устройств в одно касание.
-Широкий и гибкий инструмент настроек различных типов разрешений под свои нужды. В отличие от (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10.10.2023Разработчик: © 1997 - 2021 Stéphane MadrauПоддерживаемая ОС: MacOS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2A61722E4DE5149FD25EE61AE41CF256C0D23C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668739   (173457) от 13.10.2023
-
-Skype 8.106.0.210 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375A6E7A9F17A26C3E80D8EAB199E8B6620F5802
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1677670   (150151) от 18.11.2023
+
+Turbo Studio 23.11.19.0 Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F436A92642D5EE2380C1411DFFDA74B293CC1F1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589214   (150155) от 14.12.2012
+
+All My Movies 7.3 Build 1406 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150155.jpg" />
+</div>
+
+
+###  Подробнее
+
+All My Movies - каталогизатор фильмов для всех. Ведь все мы смотрим фильмы, кто-то в кинотеатре, кто-то дома. Со временем впечатления о просмотренном фильме угасают и порой бывает трудно вспомнить о чём же был тот или иной фильм и кто в нём играл. Наша программа - это простой в использовании инструмент для создания каталога вашей коллекции видео. Не важно, на каком носителе находятся ваши фильмы, будь то видеофайлы (AVI, MKV и другие), Blu-ray, DVD, CD, VHS кассеты или что-нибудь еще... All My Movies - это простой в использовании органайзер видео и фильмов. Покажи другу свой каталог фильмов! Удиви!
+
+(   Читать дальше...   )Название программы: All My MoviesЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968968   (150163) от 25.12.2015
+
+WinTools.net Premium 16.0.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150163.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2601B1C496EDF03FB059CD993109BB18C2296E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968805   (150166) от 25.12.2015
 
 Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip [H.264/720p]
@@ -6,7 +80,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150166.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:7260131E33313E70F9FE05D6EB0C8F5C92B1FB1F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150172.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ Movavi Video Suite 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150174.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ ZD Soft Screen Recorder 10.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150190.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Colibri - Native Lossless Audio for macOS 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150197.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ Topaz Photo AI 2.1.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150206.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ magnet:?xt=urn:btih:E9DB1742E43CA2061A314B74A32D8C27716CEDF2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150213.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ Reeder 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150214.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150219.jpg" />
 </div>
 
 
@@ -237,7 +311,7 @@ magnet:?xt=urn:btih:DA2C0F170F0FB6B35107419A05816F76F41070F7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150225.jpg" />
 </div>
 
 
@@ -264,7 +338,7 @@ magnet:?xt=urn:btih:00C4ADB47FABE1FF62A614100624A474F6B25D2E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150226.jpg" />
 </div>
 
 
@@ -290,7 +364,7 @@ magnet:?xt=urn:btih:00C4ADB47FABE1FF62A614100624A474F6B25D2E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150232.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ MSAct Plus 1.1.0 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150236.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ magnet:?xt=urn:btih:A19928C09B137DD3F98BDDBFC2F0FFA810D30138
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150252.jpg" />
 </div>
 
 
@@ -365,7 +439,7 @@ Kaspersky Lab Products Remover 1.0.930 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150253.jpg" />
 </div>
 
 
@@ -389,7 +463,7 @@ magnet:?xt=urn:btih:ABD86EAC73B447FE04705ACA1EDF16E2B15869AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150254.jpg" />
 </div>
 
 
@@ -413,7 +487,7 @@ VA - Christmas Cracker 2016 (2016) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150260.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ magnet:?xt=urn:btih:6DC8CEEF3B69507D96F77C465E25716DA2CF7FEA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150261.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ Aiseesoft Video Enhancer 1.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150264.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ VA - Fokuz Recordings Presents: Hateful Eighty (CD2) (2016) [MP3|320 Kbps] <Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150267.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ magnet:?xt=urn:btih:77233FBA836009B59914C1DE7640E6412A3C8850
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150268.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ USDownloader 1.3.5.9 Portable (24.12.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150274.jpg" />
 </div>
 
 
@@ -566,7 +640,7 @@ magnet:?xt=urn:btih:FFC613C9F7DFF59413D3DD6EFF61EA16E564E4E3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150299.jpg" />
 </div>
 
 
@@ -577,82 +651,6 @@ magnet:?xt=urn:btih:FFC613C9F7DFF59413D3DD6EFF61EA16E564E4E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08121A137F78C4DDFBD75D2C24575AB9C66F4A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270686   (150300) от 23.12.2018
-
-Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 3 (2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 16.12.2018
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA56D79F8BBF87D4F564D411D99B5C670592A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271243   (150304) от 23.12.2018
-
-Биатлон. Кубок Мира 2018-2019. 3-й Этап. Нове-Место (Чехия). Женщины. Спринт 7,5 км (21.12.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150304.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря 2018 года, пятница. 19:30 МСК
-Кубок Мира по биатлону сезона 2018-2019.
-Этап 3. Нове-Место (Чехия):
-Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F145936E13D7911DF81CE36A2483FF0886858F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589111   (150309) от 14.12.2012
-
-Извлечение / Extracted (2012) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириПродюсер: Гэбриел Кауэн, Джон Суитц, Керри Джонсон БэйлиАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Одноголосый закадровыйПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDD89ADB6EC2CD288AA1DCC404DCB3FCDD528E4
 ```
 
 

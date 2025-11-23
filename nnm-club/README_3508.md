@@ -1,3 +1,75 @@
+###  Публикация: 1718789   (110890) от 26.04.2024
+
+Pale Moon 33.1.0 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с многими расширениями Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234CBE94993673164EFAF8FB8E7D4CF977BD78F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718675   (110891) от 26.04.2024
+
+WPS Office + PDF v18.9 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110891.jpg" />
+</div>
+
+
+###  Подробнее
+
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.04.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011D26BDAEC9300BF0CC8F4B6D7BB490BBE1448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510386   (110892) от 26.04.2024
+
+Убить Человека (2012) WEBRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Новооскольской воспитательной колонии после амнистии легкостатейных преступниц осталось 200 человек. 70 процентов из них - убийцы. Милые девочки школьного возраста. О положение детей в современном российском обществе.Жанр: ДокументальныйРежиссер: Тофик ШахвердиевУчастники: Осужденнные Новооскольской воспитательной колонииПродолжительность: 00:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6959BADC937B4F61E152E8A8BDF32B2B7AF2BE10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718801   (110893) от 26.04.2024
 
 Total Uninstall Pro 7.6.1.677 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ Total Uninstall Pro 7.6.1.677 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110893.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:74020997038ECF901B655A5DE191B31CE81636D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110894.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Audacity 3.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110895.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Duplicate Cleaner Pro 5.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110896.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:C65F0CC32BC75042D47A32179642EF566407B70E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110897.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110898.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Topaz Gigapixel AI 7.1.3 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110899.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Wood Block Puzzle (QBlock)  v3.5.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110900.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:BF7ADC64E17C2872C6D5FA1FEFDAF221A4B624E2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110901.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Foxit PDF Editor Pro 2024.2.0.25138 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110902.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.03.1485026) License GOG [Soundtra
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110903.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:166DE722C29E64F813223D88AD5345054D90E69D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110904.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Accept - Humanoid (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110905.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:94DE49ED22E3DFDC2342DD2452017B8CC20045F9
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110906.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ GeoGebra 6.0.838.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110907.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:59090EA2D6D0634928F74A475D626D44936558A8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110908.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Stormborn - Zenith (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110909.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Six By Six - Beyond Shadowland (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110910.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Ethereal Flames - Myths And Legends Of Our Land (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110911.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ Coal Chamber - Studio Albums (4 releases) (1997-2015) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110912.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110913.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110914.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110915.jpg" />
 </div>
 
 
@@ -570,87 +642,6 @@ magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A9ACD18FE708A319952306A09B831299988894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718460   (110916) от 25.04.2024
-
-Pectora - Twilight Knights (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - A Celestial Signal (01:40)
-2 - Twilight Knights (06:42)
-3 - Cold Void (05:05)
-4 - VIctory in Defeat (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCF936FC00075EB66E7DE87171EAB434C7BC706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718475   (110917) от 25.04.2024
-
-Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin Off (3:52)
-02. Dirty Rhythm (4:21)
-03. Fireback (3:15)
-04. Man on a Mission (4:35)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC9A548AB99FBD221E694C222CD7069D555826C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718490   (110918) от 25.04.2024
-
-Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Friendship [4:12]
-02. My Foolish Heart [3:38]
-03. I'll Take Romance [3:28]
-04. Get Out of Town [4:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
 ```
 
 

@@ -6,7 +6,7 @@ Topaz DeNoise AI 3.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BADD8F23BFA444702E5DA11E29D59435CAC17C04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138802.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ XMedia Recode 3.3.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138821.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe After Effects 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138824.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 10 Debloater 2.6.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138848.jpg" />
 </div>
 
 
@@ -118,6 +118,30 @@ magnet:?xt=urn:btih:99DEE1C0EBBE49F9358AC5FFFB751765229ACDF2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591086   (138857) от 18.12.2012
+
+WinAVI All-In-One Converter 1.7.0.4734 [Multi+Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_138857.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinAVI All-In-One Converter - лучший видео конвертер для преобразования видео для дальнейшего просмотра на DVD плеерах. Название говорит само за себя - всё в одном. Скоростная конвертация видео/аудио файлов между популярными форматами. Разработчики утверждают, что Фильм размером 4G конвертируется за 10 минут. WinAVI All-In-One Video Converter является профессиональным видео и аудио конвертером. Все видео и аудио форматы могут быть преобразованы между собой.Название программы: WinAVI All-In-One ConverterЯзык интерфейса: Multi+Rus (by
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679157   (138858) от 24.11.2023
 
 Total Commander 11.02 Extended 23.12 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
@@ -126,7 +150,7 @@ Total Commander 11.02 Extended 23.12 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138858.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ Mr. Lif & Akrobatik (The Perceptionists) - Resolution (2017) [FLAC|Lossless|Web-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138865.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ Anvir Task Manager 9.1.12 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138898.jpg" />
 </div>
 
 
@@ -202,7 +226,7 @@ Sumatra PDF 3.2.11105 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138908.jpg" />
 </div>
 
 
@@ -226,7 +250,7 @@ Hard Disk Sentinel Pro 4.10.9 Build 5816 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138912.jpg" />
 </div>
 
 
@@ -253,7 +277,7 @@ Hard Disk Sentinel Pro - утилита для мониторинга и кон�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138913.jpg" />
 </div>
 
 
@@ -277,7 +301,7 @@ iMazing 1.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138923.jpg" />
 </div>
 
 
@@ -301,7 +325,7 @@ magnet:?xt=urn:btih:78032267F6A6DEE54994229EE2BF55C75940191B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138929.jpg" />
 </div>
 
 
@@ -325,7 +349,7 @@ magnet:?xt=urn:btih:2492CEDB664DC161C137CEB716EF5BBB89092A30
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138931.jpg" />
 </div>
 
 
@@ -351,7 +375,7 @@ Topaz DeNoise AI 3.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138934.jpg" />
 </div>
 
 
@@ -375,7 +399,7 @@ Room Arranger 9.6.0.622 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138937.jpg" />
 </div>
 
 
@@ -399,7 +423,7 @@ magnet:?xt=urn:btih:799C26EA8748498B29FCCD287C73F64F5C3A7015
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138951.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ Auslogics Duplicate File Finder 9.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138967.jpg" />
 </div>
 
 
@@ -447,7 +471,7 @@ Total Commander 11.02 final VIM 47 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138981.jpg" />
 </div>
 
 
@@ -473,7 +497,7 @@ magnet:?xt=urn:btih:2CDEBE8AA178BBCB1C455AEDB4D5DFA7F1AED6D1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138994.jpg" />
 </div>
 
 
@@ -497,7 +521,7 @@ Download Master 6.11.1.1533 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138998.jpg" />
 </div>
 
 
@@ -521,7 +545,7 @@ magnet:?xt=urn:btih:B75DF481FCE32D9DB53069E7E75BF20EA16A5DCA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139001.jpg" />
 </div>
 
 
@@ -545,7 +569,7 @@ VA - Solum 3 - Creation (2017) SOLANIC [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139017.jpg" />
 </div>
 
 
@@ -572,7 +596,7 @@ K-Lite Codec Pack 15.3.2 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139035.jpg" />
 </div>
 
 
@@ -596,7 +620,7 @@ magnet:?xt=urn:btih:90D1F1A5D411A5648C9F552DDC672D4E11F0AEE7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139038.jpg" />
 </div>
 
 
@@ -608,30 +632,6 @@ magnet:?xt=urn:btih:90D1F1A5D411A5648C9F552DDC672D4E11F0AEE7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF81FDF5E3325A0E8881E8C3E959C3A5D4010ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679275   (139044) от 24.11.2023
-
-CCleaner 6.18.10838 Technician Edition (x64) + CCEnhancer Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308BAE90D88D8DEABB52E5393D883ECB640840E6
 ```
 
 

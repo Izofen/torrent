@@ -1,3 +1,127 @@
+###  Публикация: 1088022   (138975) от 31.12.2016
+
+Александр  Генис | Обратный адрес (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая аудиокнига Александра Гениса не похожа на предыдущие. Литературы в ней меньше, жизни больше, но юмора столько же. “Обратный адрес” – это одиссея по архипелагу памяти. На каждом острове (Луганск, Киев, Рязань, Рига, Париж, Нью-Йорк и вся Русская Америка) нас ждут предки, друзья и кумиры автора. Среди них – Петр Вайль и Сергей Довлатов, Алексей Герман и Андрей (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311076B780B971F3E557B308448AD4F575F19F0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436238   (138976) от 30.12.2020
+
+Картинки - NNM-Club - Календари на 2021 от Warrior 123 №20 - 1436238 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 3500x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90ED85479F10505BB47DB303890DFD1AD7EE23D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273089   (138977) от 30.12.2018
+
+Билли Мэдисон / Billy Madison (1995) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великовозрастный балбес Билли Мэдисон, наследник невероятно богатого владельца сети отелей, проводит круглые сутки в разглядывании непристойных журнальчиков, поглощая пиво и устраивая идиотские розыгрыши.
+Правда, довольно скоро ему приходится взяться за ум: Мэдисон-старший сообщает Билли, что собирается передать бизнес подхалиму мистеру Гордону, и единственное условие, (   Читать дальше...   )Производство: США / Robert Simonds Productions, Universal PicturesЖанр: КомедияРежиссер: Тамра ДэвисАктеры: Адам Сэндлер, Брэдли Уитфорд, Джош Мостел, Бриджит Уилсон, Норм МакДоналд, Марк Белцмэн, Ларри Хэнкин, Тереза Мерритт, Дина Платиас, Даррен МакГэвин, Хрант Альянак, Винсент Марино, Джек Мэтер, Кристофер Келк, Марк ДонатоПеревод: Многоголосый закадровый (Lizard Cinema Trade)Субтитры: русские, английские (для слабослышащих)Продолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E2879AC9F80CFE32ABE3EF6201AB6B52F30538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348971   (138979) от 30.12.2019
+
+Джо Диспенза | Развивай свой мозг. Как перенастроить разум и реализовать собственный потенциал (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще недавно в науке господствовало мнение, что мозг фиксирован и имеет четко организованные структуры, что мы рождаемся с ограниченным числом нейронов, а поврежденные нервные клетки не восстанавливаются. Теперь эти убеждения подвергаются сомнению. Современная нейробиология утверждает: наш мозг меняется на протяжении всей жизни – в ответ на каждый жизненный опыт, (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FFB09444812C919416F13FD88CDF3F643902C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088505   (138980) от 31.12.2016
+
+VA - Record Super Chart #468 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix) 4:08
+02. R3HAB & SKYTECH - Everything (Extended Mix) 4:15
+03. Alan Walker - Alone (DJ Amice Remix) 3:31
+04. KSHMR & B3nte & Badjack - The Spook Returns (Extended Mix) 4:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8482C692D8D2B3F5AA1E099D4B676E2C44F140AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679167   (138981) от 24.11.2023
 
 Total Commander 11.02 final VIM 47 portable by Matros [Ru]
@@ -6,7 +130,7 @@ Total Commander 11.02 final VIM 47 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138981.jpg" />
 </div>
 
 
@@ -32,7 +156,7 @@ magnet:?xt=urn:btih:2CDEBE8AA178BBCB1C455AEDB4D5DFA7F1AED6D1
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138983.jpg" />
 </div>
 
 
@@ -56,7 +180,7 @@ magnet:?xt=urn:btih:4B438AF6414B48C6A8B800CD25E77DC24F7816B3
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138985.jpg" />
 </div>
 
 
@@ -80,7 +204,7 @@ magnet:?xt=urn:btih:DB83F9669E7D9B06429B622BCCE4ABEAD52DB87B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138986.jpg" />
 </div>
 
 
@@ -105,7 +229,7 @@ magnet:?xt=urn:btih:A22991693B4145EE7178C81694533B77ED0C5D25
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138987.jpg" />
 </div>
 
 
@@ -129,7 +253,7 @@ magnet:?xt=urn:btih:5432EF3F3C0931117A8950DC02A0EBED6F685E49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138988.jpg" />
 </div>
 
 
@@ -154,7 +278,7 @@ magnet:?xt=urn:btih:44F71E60805193436155B57B92F2A84C9863D9DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138990.jpg" />
 </div>
 
 
@@ -178,7 +302,7 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138991.jpg" />
 </div>
 
 
@@ -205,7 +329,7 @@ Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138992.jpg" />
 </div>
 
 
@@ -232,7 +356,7 @@ Jon Lord - Beyond The Notes (2004) SACD [FLAC|Lossless|tracks + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138993.jpg" />
 </div>
 
 
@@ -259,7 +383,7 @@ magnet:?xt=urn:btih:F706679A2F6C2A9DD7E3E603DB05129E9B28AC78
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138994.jpg" />
 </div>
 
 
@@ -283,7 +407,7 @@ magnet:?xt=urn:btih:DE900D9B4826DA1C43189F05E4D2E8F50F53F3E0
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138995.jpg" />
 </div>
 
 
@@ -307,7 +431,7 @@ magnet:?xt=urn:btih:B4285C6F63DD72704E8EA1086959E580F7ADE182
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138997.jpg" />
 </div>
 
 
@@ -331,7 +455,7 @@ Download Master 6.11.1.1533 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138998.jpg" />
 </div>
 
 
@@ -355,7 +479,7 @@ magnet:?xt=urn:btih:B75DF481FCE32D9DB53069E7E75BF20EA16A5DCA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138999.jpg" />
 </div>
 
 
@@ -379,7 +503,7 @@ magnet:?xt=urn:btih:564BC2EB835502EFC143099EC8537991639B44B6
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139000.jpg" />
 </div>
 
 
@@ -404,7 +528,7 @@ magnet:?xt=urn:btih:DF6A8D63D10C2B26A8382D1A215EE36FAA98E30C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139001.jpg" />
 </div>
 
 
@@ -428,7 +552,7 @@ Udemy, Mumshad Mannambeth | Linux Foundation Certified Systems Administrator - L
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139002.jpg" />
 </div>
 
 
@@ -452,7 +576,7 @@ magnet:?xt=urn:btih:2584540CC19419226D1C0BB8883A5EF2E8E29337
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139003.jpg" />
 </div>
 
 
@@ -476,7 +600,7 @@ VA - Now That's What I Call Movies (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139004.jpg" />
 </div>
 
 
@@ -503,7 +627,7 @@ magnet:?xt=urn:btih:22364E18A359EF34631E8B84C07EC9D21E4D703A
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139007.jpg" />
 </div>
 
 
@@ -516,132 +640,6 @@ magnet:?xt=urn:btih:22364E18A359EF34631E8B84C07EC9D21E4D703A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92AE96FAC664AB18F6A3BDF48BACEFE02F7BF4BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348953   (139009) от 30.12.2019
-
-Журнал | Хакер №11 (248) (ноябрь 2019) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139009.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Хакер" — журнал, рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но этим всё не ограничивается. Часто в журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F23BD20E0E7780DF4997D923DCDC50A2FD99B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520969   (139010) от 30.12.2021
-
-Caravelli - Compilation (2021) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Windmills of Your Mind
-02. Holydays
-03. Comme D'habitude
-04. Mamy Blue(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 03:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC589D640B223ED0557B51EDA0E41896EA050D58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273158   (139011) от 30.12.2018
-
-Владимир Кузьмин - Вечные Истории. Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карма
-02. Перекрёсток
-03. Зависим
-04. Ведьма(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679154   (139012) от 24.11.2023
-
-Муравьиная ферма / The Ant Farm (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Деб и Ричард приезжают в небольшой домик у озера. Ни зимние пейзажи, ни тепло от камина не могут заставить пару перестать думать о событиях давно минувших дней — много лет назад трагически погибла их дочь, и сегодня — годовщина ее смерти. Все меняется, когда супруги находят во льдах неподалеку от дома незнакомку. Девушка жива, и она ужасно похожа на погибшую (   Читать дальше...   )Производство: США / Shannon Productions, LRAM Film Productions, West DigitalЖанр: ТриллерРежиссер: Роберт ШеннонАктеры: Теа Анцис, Мартина Финч, Роберт Шеннон, Пол Келлехер, Фрэнк Сикрет, Саша СаймонПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6606A439B190FE0C2C0E894FBFEAD31305AE35E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087695   (139013) от 31.12.2016
-
-Ирина Мельникова | Александра - наказание Господне (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появление Александры, дочери известного путешественника графа Волоцкого, в светском обществе Петербурга равносильно извержению вулкана. Ей нет равных не только по красоте и уму, но и в умении отваживать нежелательных женихов и осаживать чванливых светских франтов. И только молодой князь Адашев не обратил на юную красавицу никакого внимания. Неугомонная Александра (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 10:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1353191E295EE6372DFEB8D3FDBCD9F3B2C023
 ```
 
 

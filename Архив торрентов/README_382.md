@@ -6,7 +6,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89293.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Autodesk AutoCAD Mechanical 2013 x86-x64 RUS-ENG (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89300.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Uniblue SpeedUpMyPC 2012 Build 5.2.1.7 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89306.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ SpeedUpMyPC сочетает в себе профессиональный наб
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89308.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ SpeedUpMyPC сочетает в себе профессиональный наб
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89309.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ FlippingBook PDF Publisher 1.5.8 Corporate [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89314.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ FB Publisher Trial_ - приложения, которые помогут кон
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89319.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E831212F69D8F3CF6DEAFAD0FFCB547CD85FEE5A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89320.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E831212F69D8F3CF6DEAFAD0FFCB547CD85FEE5A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89329.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E831212F69D8F3CF6DEAFAD0FFCB547CD85FEE5A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89339.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ GarageBand [5.0+Jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89340.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ GarageBand — ваша собственная студия звукозапис
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89356.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:AB8E31EC83B581136A79CFD8593B49A95E7BD5AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89366.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:FD662484E49D826835114C306362736D64C9129E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89370.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jack White - Blunderbuss (2012) [MP3|~245 кб/с (V0)]<Blues-Rock, Garage Rock,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89374.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Diginoiz - Old School Rockin' Live Drums [AIFF|MIDI|REFILL|REX|WAV][англий
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89376.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Old School Rockin' Live Drums - библиотека аутентичной rock
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89382.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9957FAD2B1A2D17706BEEDDD4251768E9FE59F80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89389.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kaspersky World 1.3.5.88 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89404.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89417.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89429.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89433.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89447.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89468.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89479.jpg" />
 </div>
 
 

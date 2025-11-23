@@ -1,3 +1,81 @@
+###  Публикация: 1769438   (100691) от 28.12.2024
+
+Пятеро на одного (28.12.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769333   (100692) от 28.12.2024
+
+Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth and Bones (5:25)
+02. All or Nothing (4:46)
+03. Sea of Broken Dreams (4:52)
+04. Bleeding Spirits (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35289F0B62575437160EF2C09F6E58E769101D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769329   (100693) от 28.12.2024
+
+Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susie Q (2:42)
+02. Keeper of the Fire (4:02)
+03. Heartbeat (2:45)
+04. Louie Louie (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BD6ABD9A533710E82F4002DAFB34A1BE248925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769341   (100694) от 28.12.2024
 
 The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +84,7 @@ The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100694.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:54D24A7D72DF43584C2C343C57B4C0CB76F70077
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100695.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:52F7E6320F2E20319CCEE74B2722FEB748CD44CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100696.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:3859F8C57130F1780D434C814173C39C164B3D5D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100697.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100698.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:B9F6832E889DA61620036E613C2772BEFFE1FE8C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100700.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:8278CE16BAB0CED80412B9FB92D5559BE362EC5B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100701.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100702.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100703.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100704.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100705.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100706.jpg" />
 </div>
 
 
@@ -343,7 +421,7 @@ magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100707.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ magnet:?xt=urn:btih:E43591EFB6A122B2844AD76C4F8A3BBD7ABACAAC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100708.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ magnet:?xt=urn:btih:B214BEE7A7FE0952AEA4DC14BC2E0EAF5D9E414E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100709.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ magnet:?xt=urn:btih:B214BEE7A7FE0952AEA4DC14BC2E0EAF5D9E414E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100710.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ magnet:?xt=urn:btih:EFCC485018EDF4E2D515C8E295CBC2454A05F43C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100711.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ magnet:?xt=urn:btih:65FFB8D159FCA20291690E11F84D8A649D165367
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100712.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ magnet:?xt=urn:btih:F401761F7DF855072B4D7F830CE06E4B33A4E191
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100713.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ magnet:?xt=urn:btih:6713B20150421FE9F7B835323DE229F1AFC8D614
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100714.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ magnet:?xt=urn:btih:4C236A9BEC618F39F0A54829C08D771E56F8F792
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100715.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ ScreenToGif 2.42.1 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100716.jpg" />
 </div>
 
 
@@ -575,78 +653,6 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91DC1CBFF6A79B624CEA516364432A2DE984DA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822455   (100717) от 06.10.2025
-
-Саша Фишер | Звезда заводской многотиражки (Книга 2) (2024) [MP3, Андрей Андриевский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне начало казаться, что только здесь, в Советском Союзе восьмидесятого, я ощутил себя по-настоящему дома. Теперь мне хочется вцепиться в это место и время, врасти в него и не отпускать.Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB3C67F52FEA7F5F63A9D9ECC3ACB42FDDA2A42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822426   (100718) от 06.10.2025
-
-Дарья Донцова | Любительница частного сыска Даша Васильева (Книга 71). Блоха на балу (2024) [MP3, Елена Дельвер]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже у самой ласковой, нежной и нескандальной женщины есть шкаф, в котором бережно хранится летательный аппарат под названием «метла». Не на ней ли улетела девушка Алена, в которую влюбился верный помощник Даши Васильевой? Повелитель ноутбуков и король клавиатуры, компьютерный гений агентства «Тюх» Кузя познакомился с Аленой в сетевой игре «Война двух стран». Почти (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C2D8B79DED18C4491F8708EB1BBD48A09F6103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822427   (100719) от 06.10.2025
-
-Евгений Спицын | Сборник книг. Советская держава в 1945-1991 годах. [7] (2019-2025) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами плод многолетних трудов известного писателя, посвященный истории СССР 1945 - 1985 гг. В нашей историографии, уже давно закрепилось несколько названий той эпохи, в том числе предельно лживые штампы как «хрущёвская слякоть», «брежневский застой», созданный архитекторами и прорабами горбачёвской перестройки. Автор мастерски и беспристрастно на основе архивного (   Читать дальше...   )Жанр: История, Биография, ПублицистикаИздательство: КонцептуалФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC635B6AB766D35C8DCD9FB552920D3BCD5F53C5
 ```
 
 

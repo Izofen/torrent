@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62922.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:06476C2F9F06F9C84F600FBA5DB95CEAB67E7387
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62923.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:87EC1650F3FA0C752F9488D2EAB74ABCA46B44D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62924.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F19DA89BD4089162CDEC3DB289FB107EA7004F3D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62925.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6B757AF6CF353EADF620826DEDDB6360D316AAAE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62926.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AOMEI Partition Assistant Technician Edition 10.3.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62927.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:486264B6E4DD9AE6DC58780644273AB85EAED2DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62928.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:4341DD1A8A2276C04B2A5B7000BF8D249A72C00D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62929.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows 10 Pro 22H2 19045.4046 x64 by SanLex [Lightweight] [Ru/En] (2024.03.05)
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62930.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3C48F1166B5CA49C934E2343FE1A4E093E2D0383
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62931.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8A44EB9892CAFD499F0168CD6DDBADB06F5ACB72
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62932.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62933.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62934.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:43FA6C448CA713BA8C5354579BA3B1CFE015BD54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62935.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:46499EDEBEDC236B50E17D4275D2CAA364A6D43B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62936.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62937.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A0C78F1EF95D15053D8A36C84A63589420C25961
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62938.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62939.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5BE76C39E3A7FB289F6ECF3421A58280AE66D5BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62940.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BBC. Секс и чувственность: искусство модерн / S
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62941.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D02BF79737F89E90A25A22F40C6B7DBF4493CE4F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62942.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62943.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62944.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62945.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:031F24017B337B0CA6EE269C2807B0A7F3A3597E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62946.jpg" />
 </div>
 
 

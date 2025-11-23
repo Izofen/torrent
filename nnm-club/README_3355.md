@@ -1,3 +1,75 @@
+###  Публикация: 1735532   (106912) от 08.07.2024
+
+Чарльз Шеффилд | Мыслями в Джорджии (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106912.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специалист по компьютерной технике и истории, обнаруживает в глухом месте в Новой Зеландии невозможную находку - это остатки вычислительной машины середины 19 века и руководство по программированию. Изучив обрывки дневника, в котором упоминаются контакты с внеземной цивилизацией, он понял, что в одиночку ему не справиться. Поэтому к поискам истины присоединяется (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765D9F6384E3CCF90A7F4D083C8B35AC1B80876B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735538   (106913) от 08.07.2024
+
+Заря / Afturelding (2023) HDTVRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скарпхьединн, павшая легенда исландского гандбола прошлых лет, возвращается в родной клуб, где, проглотив собственную гордость, пытается тренировать женскую команду, а также восстановить отношения со своей дочерью и решить свои финансовые проблемы.Производство: Исландия / Scanbox Entertainment Production, Zik Zak FilmworksЖанр: драма, комедияРежиссер: Хафстейдн Гюннар Сигюрдссон, Эльза Мария Якобсдоттир, Rannveig JónsdóttirАктеры: Ингвар Эггерт Сигюрдссон, Свандис Доура Эйнарсдоуттир, Сага Гардарсдоттир, Торстейнн Бахман, Стейнюнн Оулина Торстейнсдоуттир, Гюдмундюр Торвальдссон, Нина Дёгг Филиппусдоуттир, Aron Már Ólafsson, Блайр Хинрикссон, Уннюр Бирна Йоунсдоуттир и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1DA50ABDF538487CDA2A1C8BDBABC9EA956223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735478   (106914) от 08.07.2024
+
+EarthView 7.9.10 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106914.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C518A7CA559C07BE2304E84E2C14C30C694E2E6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735435   (106915) от 08.07.2024
 
 Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -6,7 +78,7 @@ Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106915.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Triddana - Breaking From The Fold (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106916.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Isle of the Cross - Faustus The Musical (2024) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106917.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ magnet:?xt=urn:btih:CA7401AAC3FD5A9E19C30A6D2E30650BDD943E68
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106918.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ magnet:?xt=urn:btih:017B791E0BF5167884DA3A7FF3F8C1E85CDA1523
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106919.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ magnet:?xt=urn:btih:ADD29213564D1CEB45BD160BF7247C08356ECCF2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106920.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ Big Sun - Rite De Passage (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106921.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ magnet:?xt=urn:btih:59DA5F1A0693AFA756036E53C204CAE05B74015D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106922.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ magnet:?xt=urn:btih:EF4A4B1B1222A8E1CB20F2CA770C64EA4FF6626A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106923.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ DJ Piligrim - Ты Меня... (2009) [WavPack|Lossless|image + .cue] <Europop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106924.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106925.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ Madison Galloway - Madison Galloway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106926.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ DJ Kiriloff - In The Mix(2008) [WavPack|Lossless|image + .cue] <House, Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106927.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106928.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Photo Lab PRO v3.13.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106929.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ HDCleaner 2.076 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106930.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106931.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:18ECBB7815720BA315420D6AB4D9A81FE2E07C56
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106932.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:452B3184EEDB8A60EBABBE368A5F99D957D74680
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106933.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ EF Commander 24.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106934.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:833F577E2AE2A9B4457D1336238BDF5E21CF25C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106935.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:2F690D5064C7E3846755B26F4CA4BC15D6498E97
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106936.jpg" />
 </div>
 
 
@@ -564,7 +636,7 @@ magnet:?xt=urn:btih:EE637035BBF6DD25E18265A53A585D7BFECFAC71
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106937.jpg" />
 </div>
 
 
@@ -575,81 +647,6 @@ magnet:?xt=urn:btih:EE637035BBF6DD25E18265A53A585D7BFECFAC71
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2BB9E26EAA09C7672B22DA297B64066E55AFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735468   (106938) от 08.07.2024
-
-MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82234CB7AE68F26AA0E136AA2E4B178BE631BACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735385   (106939) от 08.07.2024
-
-D.I.P Project & Черное И Белое - Раз И Навсегда (2008) [WavPack|Lossless|image + .cue] <Electronic, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты И Я
- 02. Я Чужая
- 03. Остановитесь
- 04. Раз И Навсегда(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD944D7036530D300C7986F95973E1AEF088B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735516   (106940) от 08.07.2024
-
-Алексей Шмаков, Оливер Ло | Мир масок (Книга1). Мастер Масок (2024) [MP3, Николай Бырев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я – мастер, способный создавать уникальные магические инструменты – маски. Этот дар мне достался от пропавшего много лет назад отца. И узнал я о нём, после встречи с людьми, которым мой старик задолжал огромную сумму и исчез.Теперь необходимо вернуть долг и разобраться, что же произошло на самом деле?С головой окунуться в теневой мир империи, где Великие дома, Теневые (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 09:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CF2B3CF81A99D7068044719CD031E626EB0ADE
 ```
 
 

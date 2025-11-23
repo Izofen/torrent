@@ -6,7 +6,7 @@ VA - Mega House Top 100 WEB (2012) [FLAC|Lossless]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85488.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ CD 1:
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85495.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:ADAB1BC97524EAB88039B0235D8F9F05F7798432
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85499.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85503.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85508.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85511.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85524.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:35DCB8F5421FF77F972A5DB57631E2D8C3C1FD85
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85526.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:DA987E41F9FA5482DA3AA9C6ECA5637F0E0519DA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85529.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Sandra - My Favourites [2CD] (1999) [FLAC|Lossless]<Synth-Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85539.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85544.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85550.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85556.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:CA2868C7D51B72FDE63DCCF7DFDFCA61796E8FED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85557.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ace Hood - Starvation (2012) [MP3|320 кб/с]<Southern Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85559.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85565.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:FEC6375AAEB311CDE41F8DEA7CC9FEAFD30A844C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85566.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:B78F28085BA2A1B8FE23C6E7D87295836BAD0542
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85573.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:2A37699C63029FB10689C0003B843CA3439795B4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85575.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2A37699C63029FB10689C0003B843CA3439795B4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85577.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Radiant Particles - потрясающие частички живых обое�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85599.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Radiant Particles - потрясающие частички живых обое�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85611.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ABViewer Enterprise 8.0.7.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85617.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ ABViewer – многофункциональное качественное и 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85628.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:D6AE5BC9D5AB1ADC183A9211362E23B7E6B4DC99
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85632.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:89B360E475C516E0A2E3E824F24D1DD7821D0D12
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85663.jpg" />
 </div>
 
 

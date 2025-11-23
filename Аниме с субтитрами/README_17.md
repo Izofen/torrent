@@ -6,7 +6,7 @@ Burn the Witch #0.8: Don't Judge a Book by Its Cover | Сжечь ведьму (
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122785.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123146.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123166.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123939.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123944.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Aiyou de Mishi | Aiyou's Secret Room | Тень любви в тайной ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124298.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Hikikomari Kyuuketsuki no Monmon / The Vexations of a Shut-In Vampire Princess /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124607.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125080.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125115.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jujutsu Kaisen (2023) | Магическая битва [ТВ-2] [2023, TV, 23 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125134.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:0B5EA30ABF9C6E27EF1E107BBE4B536AD50DBBEE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125522.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125592.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125672.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125840.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125841.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125843.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125844.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125890.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126135.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126139.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126144.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126148.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126152.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127037.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entert
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127212.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Back Road Bourbon - The Other Side of Midnight (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127213.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Checkerboard Lounge - Roller Coaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127220.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127221.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127222.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127223.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127224.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blackwater - Blues Chemistry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127225.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127229.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Best Of Acid Jazz Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127242.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sexual Piano Jazz Collection, Jazz Erotic Lounge Collective - Jazz Erotic Backgr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127267.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127349.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127353.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127354.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ahmad Jamal - Four Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127371.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Art Pepper - Tokyo Debut (1977) 1995, Fantasy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127372.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127402.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127419.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Howard Alden Trio - Snowy Morning Blues (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127543.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127545.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127556.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bernie Marsden - Working Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127591.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127612.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127766.jpg" />
 </div>
 
 

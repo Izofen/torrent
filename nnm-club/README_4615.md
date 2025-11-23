@@ -1,3 +1,155 @@
+###  Публикация: 1348558   (143008) от 28.12.2019
+
+Астерикс и Обеликс: Миссия Клеопатра / Asterix & Obelix: Mission Cleopatre (2002) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Клеопатра заключила пари с римским императором Юлием Цезарем о том, что ее подданные смогут всего за три месяца построить грандиозный золотой дворец. Этой опасной чести был удостоен архитектор Нумеробис, которого — в случае неудачи — должны растерзать крокодилы.
+Нумеробис вызывает на помощь своего старого друга — друида Панорамикса с зельем, дарующим сверхъестественную (   Читать дальше...   )Производство: Франция, Германия / Pathe!, Canal+, Centre National de la Cinématographie (CNC), Chez WamЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Ален ШабаАктеры: Жерар Депардье, Кристиан Клавье, Жамель Деббуз, Моника Беллуччи, Ален Шаба, Клод Риш, Жерар Дармон, Эдуард Баэр, Дьедонне, Мусс ДиуфПеревод: Дублированный, многоголосый профессиональныйСубтитры: русскиеПродолжительность: 01:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A84EDE28F778ED37EC80FD667E5876424112506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087978   (143009) от 29.12.2016
+
+Святой праведный Иоанн Кронштадтский | Катехизические беседы в Кронштадтском Андреевском соборе (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беседы катехизического содержания святого праведного Иоанна Кронштадтского, впервые изданные в 1859 году, и сегодня могут принести неоценимую пользу в деле духовного просвещения. Они отличаются простым, ясным и подробным изложением глубочайших истин Православной веры. В каждом слове Кронштадтского пастыря чувствуется особенная сила как отражение силы его собственного (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A916F92F60CBF599A6D9E5F8973A7E90FBE2002B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520228   (143010) от 27.12.2021
+
+Movavi Screen Recorder 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Screen Recorder - программа для захвата видео с экрана монитора и создания скриншотов всего экрана, выбранного окна или части окна.
+Готовые ролики можно конвертировать в форматы, поддерживаемые более чем 180 мобильными устройствами. В процессе записи видео присутствует возможность записывать программные звуки или свой собственный голос. Программа имеет возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2326225BB17FEE433A5F1D4AB0691BCD16BB87CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969946   (143011) от 29.12.2015
+
+VA - My Favourite Hits of 1962 (4CD) (2015) [MP3|320 кб/с] <Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Dee & The Starliters - Peppermint Twist (03:43)
+02. Ben E. King - Dream Lover (02:37)
+03. Duane Eddy - (Dance With The) Guitar Man (02:38)
+04. Brian Hyland - Sealed With A Kiss (02:41)(   Читать дальше...   )Жанр: Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop RockПродолжительность: 04:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F601399B6AEC968025DCBAE82E87C0BF517DE8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969384   (143013) от 29.12.2015
+
+VA - Виртуозы жанра: Women's Blues 2CD, vol. 24 (2015)[MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (04:33:07):
+01. Anna Rudolph - A Glimpse of Joy (02:56)
+02. Etta James - If You Want Me To Stay (05:22)
+03. Sandy Carroll - Messin' With Me (04:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59EF9E242CB4099B079C8BF4CD4722B5E5F1C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195220   (143014) от 28.12.2017
+
+Валериан и город тысячи планет / Valerian and the City of a Thousand Planets (2017) UHD Blu-ray [H.265/2160p] [4K, HDR, 10-bit]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143014.jpg" />
+</div>
+
+
+###  Подробнее
+
+2700 год. Валериан и Лорелин — космические спецагенты, которые по долгу службы впутались в подозрительное дело и стали невольными участниками то ли межгалактического заговора, то ли аферы причудливых поселенцев планеты Альфа, прибывших туда из различных миров со всех уголков галактики.Производство: Франция, Китай, Бельгия, ОАЭ, США, Германия, Великобритания, КанадаЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Люк БессонАктеры: Кара Делевинь, Итэн Хоук, Джон Гудмен, Дэйн ДеХаан, Клайв Оуэн, Рутгер Хауэр, Рианна, Крис У, Александр Нгуйен, Матьё КассовицПеревод: ДублированныйСубтитры: Русские (Full-lentgh - Ash61, Forced*- BlueBird), АнглийскиеПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A83C95C19A489C19BEC053480E513D0C45D406E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272484   (143015) от 28.12.2018
 
 VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
@@ -6,7 +158,7 @@ VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143015.jpg" />
 </div>
 
 
@@ -33,7 +185,7 @@ magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143016.jpg" />
 </div>
 
 
@@ -58,7 +210,7 @@ magnet:?xt=urn:btih:5018A65E8BA9D3632081DDE5D4B54D7C3E71EEE9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143017.jpg" />
 </div>
 
 
@@ -83,7 +235,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143018.jpg" />
 </div>
 
 
@@ -107,7 +259,7 @@ magnet:?xt=urn:btih:53EDDA158A8AC3BB2431B7435B827CE7020F62F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143019.jpg" />
 </div>
 
 
@@ -132,7 +284,7 @@ magnet:?xt=urn:btih:A6121194ADE4D9B0A8DDEF0EF3E6DC88A230A14B
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143020.jpg" />
 </div>
 
 
@@ -156,7 +308,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143021.jpg" />
 </div>
 
 
@@ -180,7 +332,7 @@ PhotoLinker 3.5.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143022.jpg" />
 </div>
 
 
@@ -204,7 +356,7 @@ magnet:?xt=urn:btih:8DDACBD9D1A51F97D67CDDF671A0A79CBCA44634
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143023.jpg" />
 </div>
 
 
@@ -230,7 +382,7 @@ magnet:?xt=urn:btih:C92AD94379D202310762A7D5B69DDA64C2CF0BBC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143024.jpg" />
 </div>
 
 
@@ -256,7 +408,7 @@ Zentimo xStorage Manager 2.2.1.1278 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143025.jpg" />
 </div>
 
 
@@ -280,7 +432,7 @@ iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143026.jpg" />
 </div>
 
 
@@ -304,7 +456,7 @@ VA - Club Dubstep №22 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143027.jpg" />
 </div>
 
 
@@ -337,7 +489,7 @@ magnet:?xt=urn:btih:2C97E18790E421340CB250D4E4322AA1A69D8DA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143028.jpg" />
 </div>
 
 
@@ -362,7 +514,7 @@ SamDrivers 19.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143029.jpg" />
 </div>
 
 
@@ -386,7 +538,7 @@ magnet:?xt=urn:btih:4B3DBBC9285BCC03BC0DE08F7C943F15F1D634AB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143030.jpg" />
 </div>
 
 
@@ -410,7 +562,7 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143031.jpg" />
 </div>
 
 
@@ -437,7 +589,7 @@ Udemy, For Your English | English Language Pro | Разговорный англ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143032.jpg" />
 </div>
 
 
@@ -464,7 +616,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143033.jpg" />
 </div>
 
 
@@ -488,7 +640,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143035.jpg" />
 </div>
 
 
@@ -499,157 +651,6 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642F0DA19F4CCEB1A7281FF56C0E20101DDBDCD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518959   (143036) от 27.12.2021
-
-Синий залив / Blue Bayou (2021) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американец корейского происхождения, который вырос в Луизиане и упорно трудится, чтобы обеспечить свою семью, однажды узнаёт, что его могут депортировать за старые грешки из единственной страны, которую он считает своим домом...Производство: США, Канада, Entertainment One, MACROЖанр: драмаРежиссер: Джастин ЧонАктеры: Джастин Чон, Алисия Викандер, Марк О`Брайэн, Лин Дэн Пэм, Sydney Kowalske, Вонди Куртис-Холл, Эмори Коэн, Джеральдин Сингер, Toby Vitrano, Альтонио ДжексонПеревод: любительский двухголосый (Pazl Voice)Субтитры: русские (Pazl Voice, с ненормативной лекской), английские (полные SDH), английские хардсабы на неанглийскую речьПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878316B5E4A8C5736AF5FA77DE2902A52088A537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272528   (143037) от 28.12.2018
-
-Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune Project & Terence Mckenna – From The Past Into The Present Future
-02. Neptune Project – Bioluminessence
-03. Neptune Project & Polly Strange – Pulse
-04. Neptune Project – Proteus(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964CD61E5C070948DCA3DE9CF2F94FFC47118D5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348594   (143038) от 28.12.2019
-
-Эндрю Ливербарроу | Чернобыль 01:23:40 (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эндрю Ливербарроу по кусочкам восстанавливает печально известные события 26 апреля 1986 года, прославившие Чернобыль на весь мир. Автор делится своими впечатлениями о Припяти и выводами, к которым он пришел в ходе собственного расследования. Материалы, собранные автором, использовались создателями культового сериала «Чернобыль», что позволило им добиться особой достоверности.Жанр: Документальная литература, Зарубежная публицистика, Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE338FEBCF7E445F1D7185158CC60FB61717DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965237   (143039) от 29.12.2015
-
-36 часов / 36 Hours (1965) DVDRemux [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1944 год. Немцы похищают в Лиссабоне американского майора Джефферсона Пайка. Им известно, что у него есть информация о предстоящей высадке американских войск. Чтобы разговорить его, они прибегают к необычной методике: накачивают его наркотикаи и вывозят в Баварию в бутафорский американский госпиталь, где немецкий майор Гербер в американской форме пытается убедить (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Cherokee ProductionsЖанр: Военный, ТриллерРежиссер: Джордж СитонАктеры: Джеймс Гарнер, Ева Мари Сэйнт, Род Тейлор, Вернер Петерс, Джон Баннер, Расселл Торсон, Алан Напье, Оскар Береги мл., Эд Гилберт, Зиг РуманПеревод: Одноголосый АвторскийПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92DC32236C379001BDF98FEC2A6A62389FCAFD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272544   (143040) от 28.12.2018
-
-VA - Intense Radio: We Love Dance (2018) [MP3|320 Kbps] <Dance, Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143040.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blackbonez - Freaky (Radio Edit)
-002. Zeljko Mance - Crazy Fun
-003. The Chainsmokers - Side Effects
-004. Alan Walker feat. Gavin James - Tired(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 09 :11 :09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9920DF4341828A895CC1C40084BB8B0262485D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520188   (143041) от 27.12.2021
-
-SuperHi, Lawrence Gosset, Rik Lomas | WordPress (2021) WEB-DL [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибкий 8-недельный онлайн-курс в удобном для вас темпе, который научит вас использовать WordPress для создания собственных веб-сайтов с CMS, обзорами и функциями оплаты. Он разработан для того, чтобы вы могли создавать полностью настраиваемые сайты на основе CMS в течение первых нескольких недель.
-WordPress отлично подходит для блогов и электронной коммерции. Узнайте, (   Читать дальше...   )Производство: SuperHiЖанр: Программирование, вёрсткаЯзык озвучки: АнглийскийПродолжительность: 28:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF54A68CB61BD3FFC14BBF98846F652C3E899FE
 ```
 
 

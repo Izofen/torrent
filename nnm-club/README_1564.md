@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:085955FC2C701D9F7737545B6FFE741D0C014DC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41019.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7F77E22DD0F9DE4AFF9EA2811D85D978AD69E10B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41020.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41021.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 141.0.7390.55 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41022.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Glary Utilities Pro 6.32.0.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Driver Easy Pro 7.1.0.2641 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41024.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E75C2A179BBD154DA825CB28ED2A52C57BCFEF18
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41025.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Microsoft 365 Professional Plus (ранее Microsoft Office 365) 16.0.17928.201
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41026.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Robert Plant - 19 альбомов (1982 - 2021) 35 CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41027.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FDB55B11E0496D6E4C59D716DB78028AB88F4C47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41028.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41029.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Wolfenstein: The Old Blood (2015) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41030.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5011 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41031.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:603855CB8AC3ED5B97D4A9AF2440B3992BE78456
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41033.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A0269E45FB9FBD7770861C26066BEFDCBDE40623
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41034.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A0269E45FB9FBD7770861C26066BEFDCBDE40623
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41035.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:50B54CE153D30CE93DD8F57644DFCF6D62446ECB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41036.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Sue Foley - 15 Albums (1992 - 2024) [FLAC|Lossless|tracks + .cue|image + .cue]<B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41037.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Toyota официально объявила о прекращении подд�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41038.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tinsley Ellis - 20 альбомов (1986 - 2024) [FLAC|Lossless|image + .cue|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41039.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41040.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41041.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BA88C9E558ED0EBC234D1E50FFEC8E9024475114
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41042.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:B1050904F466CB0CB38F09297E4FE5C7FA4060E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41043.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:22D9279AB68A1DD7D9DE8EDBC1AC940632CBD46D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41044.jpg" />
 </div>
 
 

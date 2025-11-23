@@ -1,3 +1,75 @@
+###  Публикация: 1597088   (167666) от 13.12.2022
+
+uDock 3.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167666.jpg" />
+</div>
+
+
+###  Подробнее
+
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD7A61BF809EC8F32DF700C5D9A3A38DFEBC2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597073   (167683) от 13.12.2022
+
+Finder Windows 1.5.4 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Finder Windows.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7365081DFEC809A0C01DA68E326A3C07431754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672810   (167685) от 29.10.2023
+
+YouTube ReVanced Extended 18.40.34 (RVP v2.195.1) Mod by Number one' + Micro G [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167685.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube ReVanced - это реинкарнация проекта YouTube Vanced. В YouTube ReVanced все функции такие же, как и в предшественнике. Все премиум-функции также доступны и усовершенствованы. В настоящее время вы смотрите видео без рекламы. Поддержка поиска, фонового воспроизведения, плавающего окна, детальная настройка интерфейса, возвращение дизлайков и многое другой. Для (   Читать дальше...   )Тип издания: ModРелиз состоялся: 23.10.2023Разработчик: ReVanced TeamПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Украинский и Белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346BBB91CB7A8CFD1272BEF5E2C4D99A2228CAEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345008   (167687) от 13.12.2019
 
 Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
@@ -6,7 +78,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167687.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167697.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Spotify 1.2.23.1125 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167699.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Calibre 5.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167717.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Text Editor Pro 12.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167724.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04065 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167726.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ OnyX 4.1.4 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167728.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Superkey 0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167736.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Waterfox Current G4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167744.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:06C0D1DF1711109B0EE003473C3BDD9769D21DE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167748.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Aiseesoft Mac Data Recovery for Mac 1.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167749.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ URL Manager Pro 6.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167752.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Sublime Merge Dev Build 2081 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167756.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167758.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ calibre 5 v5.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167759.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Sound Siphon 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167760.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ XnView 2.49.2 Complete RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167762.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ SyncTime 4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167770.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ Maxthon Browser 7.1.7.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167771.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ simplewall 3.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167780.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ SILKYPIX Developer Studio Pro 11.0.12.0 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167787.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ ZEDGE 8.20.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167794.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Telegram Desktop 4.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167798.jpg" />
 </div>
 
 
@@ -560,79 +632,6 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D587670EEAE5510FDAA6D2520931C1FF8CCCE672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672741   (167813) от 29.10.2023
-
-CamScanner 6.51.0.2310160000 Mod by maxi123444 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167813.jpg" />
-</div>
-
-
-###  Подробнее
-
-CamScanner - Мощное приложение для сканирования. Оно представляет собой способ сканировать любые документы с максимальным качеством, автоматическим определением границ, программным улучшением изображений и прочими техническими особенностями, что понравятся всем кому необходим данный спектр возможностей. Так же пользователи смогут удобно создавать надписи, комментарии, (   Читать дальше...   )Тип издания: PremiumРазработчик: INTSIGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6909BDA0516395FF746CD78D94B69A52039D08C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516097   (167828) от 09.12.2021
-
-SoundSource 5.3.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167828.jpg" />
-</div>
-
-
-###  Подробнее
-
-SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
-Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FBF72057577249EBF3E6CFDB08F085D4F4AE35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345088   (167843) от 13.12.2019
-
-VirtualBox 6.1.0 Build 135406 RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167843.jpg" />
-</div>
-
-
-###  Подробнее
-
-VirtualBox - специальная программа для создания в памяти ПК виртуальных компьютеров. Каждый виртуальный компьютер может содержать произвольный набор виртуальных устройств и отдельную операционную систему. Область применения виртуальных компьютеров очень широка - от выполнения функций по тестированию ПО до создания целых сетей, которые легко масштабировать, распределять (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AB02AAE44389F1188B4176F7115D39D55F627B
 ```
 
 

@@ -6,7 +6,7 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27908.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27909.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:2107CC415A33F60F613D1B24D6EE3DE4603813DF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27910.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:06DEE0DAC8A645ABC534B4E9A9CF0B4DFD7C1FE6
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27911.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Ventoy 1.1.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27912.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27912.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C4506BBCFDA27A3F7B487EB62FB3B593AAE17D02
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27913.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27913.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:D04E599B15D9EDA23BEAF706B9A682540DFC0E2D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27914.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:12829EF2D513F305995963714B546056B19C4F0A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27915.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:72B9F10E4C3E8C811ED296C8F6472ED3D0B3569B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27916.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:958252B900B5ED628DA724183D02D7478FAB7591
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27917.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27917.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Kеома / Keoma / Django Rides Again (1976) BDRip [H.264720p]
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27918.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27918.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C51724D453DDE4D9E6B2EB3D3D1B08402DDD5721
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27919.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ HiPER Calc Pro v11.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27920.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Elvis Presley - The King (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27921.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:00B96AA5A997FE534443193051927DA507DF7BE8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27922.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:68324109EA7A1132B914F4CF4A0EA39AA573915E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27923.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:85DA45C64DACD56FAE635AD50F609A161D5CC4BA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27924.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Brainstorm - Plague Of Rats (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27925.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E73F3132E3F4B38522E5263E1D13E2A070BBB2C8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27926.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:3E42BE2201D33C99EBB9C881BF6D5558BE15B05D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27927.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:CD6DB2FD796647614327D4CBB0726325C3015BE9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27928.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:05491B916FF60AFD9922B459487CA6C46FCFA611
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27929.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:D2434231A707988B6983C64DE27629080481CD4A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27930.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DB7F4EB939DAADD216CCB95FBCA3E09C47812173
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27931.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Gentle Rhythms: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27932.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:CECB15E19788F4D0A55F8A7F0A769B326E839C51
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27933.jpg" />
 </div>
 
 

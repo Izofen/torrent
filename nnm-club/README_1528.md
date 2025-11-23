@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40082.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40083.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ TONSTURM - SpinTracer 1.2.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40084.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40085.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9327DEF1219AD9EA8AF69A5456A0DB31E104F733
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40086.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F9F08797F82D7A3EC2A5099FBAC45EC219BC2693
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40088.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ ActionDirector - Видеоредактор v7.12.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40089.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40090.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Cocinando Con Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40091.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40092.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40093.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Paris La Nuit, Vol 1 (A Premium Lounge Collection) (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40094.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ensiferum - Winter Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Folk Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40095.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:F892FF67E57AE403A44F2ECD550EF4E8CE340E6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40096.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ DxO PhotoLab Elite 8.1.0 build 434 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40097.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:486CB2C364B5F545EF26997BC92F7744323A1BA4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40098.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:CFDA13CB68251FBD1069B7129A95A71F1C61AB46
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40099.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Topaz Video AI 5.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40100.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Freemake Video Converter 4.1.13.184 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40101.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:0E5D0D33E9B163FA11B6EC087150B73CE635ACE3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40102.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Adobe Bridge 2025 15.0.0.397 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40103.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:0AE681478D8C5D38D002E16E262437DCF6D17EDE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40104.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:BF2F1311D628AF2F836089D1F12758492E526585
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40105.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40106.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40107.jpg" />
 </div>
 
 

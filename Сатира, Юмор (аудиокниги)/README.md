@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:263CB603A1F69984B29B5A6224A72B5F3F40D6BA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1904.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:AFF5228020CBE4B1E2E84360BCA04F94D44A58BC
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3723.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:14E181E8114CCEF84FD20A726D0145B62BF2F332
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3813.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C177CA09C680B3CC407D3B03025BF7582FC0FB2A
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3818.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:B0E8C8ED760B77AD2BF6D82667EF3D5D99615566
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3863.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:C0CFC4472FF5896749B54B867F409302AFDE61CB
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3884.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:2BC7ECC20AB95ECF0D7D2D254D664A0EEDE7D7A8
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3888.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:527C49600C4331E2519C18E0A959B28E33D5478E
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3903.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:9E1D523435BBCA4CA316CCF954CAAC8159C2D889
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12907.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:23067DB186D84C92F9C4AD73F608357ED895DD2D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12909.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:4C1F2DDC6E6AA7FD535498DEA88E3B5FA5AA8D40
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12925.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:36D01F58315CA5400B90BCF8059070C18F1BAAC9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26468.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26468.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1001EBFD0A1F70BC88D4444D8995E651CDF46FF2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26518.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:D375E0EF9DDFBBA9777784DFCA213EB98EA3B5E9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26520.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:54AFBD33C805AFBFABF6D8C11C0C5323D204A82D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26523.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D8EE55834652AB1AF611BCB6B3723B4C55CA12F3
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27498.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E25FF8BE1CDF33DEAB47549667758C73973E8016
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30658.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30658.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:FD90EF4CB726549ECF4CC12EBE4EE0156A1FB044
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38066.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38205.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E108D225D953846AB3B0C2C3714EA99940BA225B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38750.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AF1962664BAEC22DCF71F7C0A35B2534E5EC3172
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41476.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6D1AC7270B14AA26F389484228B5606EDBE2F762
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41723.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:FFC6563B8F0E2A9D34173502FE9CACDB8BA75C4C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47575.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B524FAEC9BDE0228183796F96D3E26FC36E4A0F1
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47600.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:7CA8DC992B10F7C1E2968A1FFBFBD58643756408
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47602.jpg" />
 </div>
 
 

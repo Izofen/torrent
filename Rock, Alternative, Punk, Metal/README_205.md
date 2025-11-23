@@ -6,7 +6,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129536.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashes Of Ares - Emperors And Fools (2022) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129554.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129560.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cryptic Wintermoon - The Age Of Cataclysm (1999) (Reissue 2004) [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129579.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129615.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129637.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Swallow The Sun - 10 Albums (2003-2021) 14CD [FLAC|Lossless|image + .cue|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129645.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Boston - Boston (1976) (Reissue 2007) Remastered Japan Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129692.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Six Foot Six - Beggar's Hill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129727.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129730.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Void - Jadjow (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129735.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Supuration - Promo '91 (1991) Reissue, 2019, Dark Symphonies [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129737.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Supuration - 9092 (1995) Compilation [FLAC|Lossless|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129740.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Neverland In Ashes - Haunted (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129741.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Rik Emmett - Then Again (2012) Remastered, 2023, Deko Entertainment [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129744.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129749.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129758.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129761.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129763.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Red Eye Temple - Vortex (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129766.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ektomorf - Vivid Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129772.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Crusade of Bards - Tales of the Seven Seas (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129774.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Beyond God - The Great Divide (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129779.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Pig - The Swining - Red Raw & Sore (1999) Remastered, 2023, Cleopatra Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129785.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Strike Master - Up For The Massacre X Anniversary Edition (2006) Reissue, 2016, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129789.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129801.jpg" />
 </div>
 
 

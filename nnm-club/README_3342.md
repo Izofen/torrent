@@ -1,3 +1,84 @@
+###  Публикация: 1736914   (106574) от 14.07.2024
+
+Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vignette (7:21)
+02. Prisoner Of Love (4:40)
+03. Beautiful Love (9:27)
+04. All The Things You Are (6:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E2B63E9616101B2E7249EC6BEFEB9E28146152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736911   (106575) от 14.07.2024
+
+Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Take (3:25)
+02. Hey! (4:46)
+03. El Gato (4:29)
+04. Guinnee Drop (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF5D433AC8BEDA823EE75166AAFA25410F0EF70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736900   (106576) от 14.07.2024
+
+AdrianoMaria - Night And Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illusion (4:04)
+02. Blanca (3:30)
+03. Harlem (3:51)
+04. No Way (3:37)(   Читать дальше...   )Жанр: Jazz, HouseПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2413EB5C45E486FC2AB5DA91791AED7743123C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736971   (106577) от 14.07.2024
 
 Смертельный полет / Dodsflugten (1911) WEBRip [H.264/720p]
@@ -6,7 +87,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106577.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Jonas Johansen, Lennart Ginman, Thor Madsen - Adventure (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106578.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106579.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Sylvan - Back To Live (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106580.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106581.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106582.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Hami Cho - My Season (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106583.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106584.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ magnet:?xt=urn:btih:E0D479C54AF79A50F2095B4CC94C9D40A08A33D9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106585.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Stay Away - СССР 2078 (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106586.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ Bazaart: Photo Editor & Graphic Design v2.6.3 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106587.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ magnet:?xt=urn:btih:002ABE52344374F727D1AE210B6EFF4E9FC54FF7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106588.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106589.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106590.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ Kucka - Can You Hear Me Dreaming? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106591.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ magnet:?xt=urn:btih:FA4A9749E869DEC2078E451C1B1ACA1EFFBF9526
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106592.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106593.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106594.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ Eric Ladish - Songs from In Between (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106595.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ magnet:?xt=urn:btih:7E8FB45CCD1960F817A4047EE93B0A69D094831E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106596.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ magnet:?xt=urn:btih:969FD0E9D049546C580A970B89ECA5B4D438F88F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106597.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ magnet:?xt=urn:btih:5EB73116E2AEC65785A2B9055C469BA73C5C62C1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106598.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ Status Quo - Official Archive Series Vol. 1: Live in Amsterdam 2010 (2023) New M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106599.jpg" />
 </div>
 
 
@@ -590,87 +671,6 @@ Status Quo - Official Archive Series Vol. 1: Live in Amsterdam 2010 (2023) New M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20CC987152DCCB11C3AE6283A7A35BA717454C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736923   (106600) от 14.07.2024
-
-Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live at Westonbirt Arboretum, New 2023 Mix) [00:01:36]
-02. Caroline (Live at Westonbirt Arboretum, New 2023 Mix) [00:04:44]
-03. The Wanderer (Live at Westonbirt Arboretum, New 2023 Mix) [00:02:48]
-04. Rain (Live at Westonbirt Arboretum, New 2023 Mix) [00:06:06](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B691CA49EA3CFB82FA7E645CB4F5E39CC3F6E27E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736498   (106601) от 14.07.2024
-
-Слава Благов - Первый (2024) [MP3|320 Kbps] <Pop>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Такая хорошая [00:03:27]
-02 - Она любила виски [00:03:08]
-03 - Соседи [00:04:20]
-04 - Голос кубинских улиц [00:04:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736967   (106602) от 14.07.2024
-
-VA - Nothing But... Trancetopia Vol. 16 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starry Major - Find My Dream (Radio Edit) [4:08]
-02. Aladdim - Revelando Reinos (Original Mix) [6:59]
-03. Montxo & Julio Posadas - XYN (Original Mix) [6:12]
-04. Henry Gao - Ataraxia (Extended Mix) [6:46](   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEDA84FF4FE792AFC2BB7919D635994C01EB3FA
 ```
 
 

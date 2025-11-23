@@ -1,3 +1,179 @@
+###  Публикация: 1677144   (152338) от 16.11.2023
+
+Фотография - Mangrove Photography Awards 2023 [PNG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жюри конкурса Mangrove Photography Awards объявило победителей 2023 года. Год за годом фотографы со всего мира делятся снимками, которые помогают повысить осведомленность окружающих о мангровых лесах, об угрозах, с которыми сталкиваются эти экосистемы, и о необходимости принятия срочных мер для их защиты.
+
+В этом году на соревнование было подано более 2000 заявок (   Читать дальше...   )Формат: PNGРазрешение файлов: 1600x2204 - 5000x3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4700A60CC286324C4ADF9B2C3588C27867954B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968492   (152339) от 24.12.2015
+
+Topaz Glow 1.0.2 RePack by D!akov [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Glow - самостоятельная программа, а также плагин для Adobe Photoshop. Он создает волшебный люминесцентный светящийся эффект, который наполняет вашу работу чувством энергетического движения и потока. Он предназначен для создания динамических изображений с энергичными искрами неонового света. Эффекты можно полностью настроить, от тонких улучшений фона до электрификации (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72111F590FE88D241BFF2F24FC4DAB5A7538D383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601106   (152340) от 30.12.2022
+
+Эврика! / Eureka! (2022) SATRip (сезон 1, серии 1-9 из 9)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм рассказывает о молодой девушке-изобретателе, которая разрабатывает изобретения и хитроумные приспособления в надежде сделать мир лучше и перенести свое доисторическое сообщество в более современную эпоху.Производство: Сша, Disney Junior, Disney Television Animation, Wild CanaryЖанр: приключения, комедия, короткометражный, музыкальныйРежиссер: Мэйв Гарван, Нортон Вирген, Мартен ЙонмаркПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:12:13 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9323D7A59DFB191B07426EEFFFFA0DAA73A57837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433849   (152341) от 23.12.2020
+
+Эффективность за репутацию: зачем AstraZeneca вакцина «Спутник V» и кто от этого выиграет
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_152341.jpg" />
+</div>
+
+
+###  Подробнее
+
+AstraZeneca приняла предложение о сотрудничестве от разработчиков вакцины от коронавируса «Спутник V» и запустит клинические исследования комбинации своего и российского продукта. Для AstraZeneca это возможность сделать вакцину эффективней, а для «Спутника V» — подтвердить, что российская вакцина работает. Неудивительно, что комбинация делается с прицелом на внешние (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347346   (152343) от 23.12.2019
+
+Black Rose - Fortune Favours The Brave (1993) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Broken Saviours
+1999 - Age Of Innocence
+2000 - Live2KЖанр: Hard RockПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226ED12BD11F3BD426E33AC852930953A6207711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194975   (152344) от 27.12.2017
+
+Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 1997, Narnia Self-released [MP3|320 Kbps] <Folk Rock, Pop Rok, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You'd Better Believe It
+2. Muddy Ground
+3. The Juggler
+4. Agape(   Читать дальше...   )Жанр: Folk Rock, Pop Rok, Prog RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA62AD1DA96AE7E8FE3BFB09A0F16753C90AFA21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826193   (152345) от 18.10.2025
+
+Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dune 2000 - стратегия в реальном времени с видом сверху. Император Фредерик Коррино 4 издал указ, согласно которому Дом, который сможет произвести больше всего пряности, будет управлять своим источником - планетой Дюной, без каких-либо ограничений относительно того, как это будет достигнуто. Как и в Dune 2, существует 3 главных игровых фракции - Дом Атрейдес, Дом (   Читать дальше...   )Тип издания: RepackРазработчик: Intelligent GamesЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826194   (152346) от 18.10.2025
 
 Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +182,7 @@ Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152346.jpg" />
 </div>
 
 
@@ -33,7 +209,7 @@ magnet:?xt=urn:btih:FE51A2DE7F74960EB85935F0D076F5033CAB5F82
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152347.jpg" />
 </div>
 
 
@@ -60,7 +236,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152348.jpg" />
 </div>
 
 
@@ -84,7 +260,7 @@ magnet:?xt=urn:btih:82F8E2E2363AC463FF6D9858A281E00D235CA7B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152349.jpg" />
 </div>
 
 
@@ -108,7 +284,7 @@ VK Музыка: песни и подкасты v8.0 b11466 Mod by VK Equals [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152350.jpg" />
 </div>
 
 
@@ -132,7 +308,7 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152351.jpg" />
 </div>
 
 
@@ -157,7 +333,7 @@ magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152352.jpg" />
 </div>
 
 
@@ -181,7 +357,7 @@ magnet:?xt=urn:btih:02E0A67C6A2EA208FEAF563EF762C1ECBBC85DD8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152353.jpg" />
 </div>
 
 
@@ -205,7 +381,7 @@ Adobe Acrobat Pro 2025.001.20813 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152354.jpg" />
 </div>
 
 
@@ -229,7 +405,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152355.jpg" />
 </div>
 
 
@@ -253,7 +429,7 @@ Adobe Photoshop Express 8.0.929 Mod by Balatan, Apps-Store [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152356.jpg" />
 </div>
 
 
@@ -277,7 +453,7 @@ Screaming Frog SEO Spider 16.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152357.jpg" />
 </div>
 
 
@@ -301,7 +477,7 @@ magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152358.jpg" />
 </div>
 
 
@@ -326,7 +502,7 @@ magnet:?xt=urn:btih:D46AF7859CD7361FB74E8CDB433F1A56F720AD5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152359.jpg" />
 </div>
 
 
@@ -350,7 +526,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -374,7 +550,7 @@ magnet:?xt=urn:btih:4C19C70F6171CF5523A948793F278223E113DE1F
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152361.jpg" />
 </div>
 
 
@@ -398,7 +574,7 @@ magnet:?xt=urn:btih:8CD02E0C7E8F3D4C527643CC07F633F36BD5EB80
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152362.jpg" />
 </div>
 
 
@@ -425,7 +601,7 @@ magnet:?xt=urn:btih:548E5A782C469F6C9A065C181B2EFB754F62D457
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152363.jpg" />
 </div>
 
 
@@ -449,7 +625,7 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152364.jpg" />
 </div>
 
 
@@ -463,183 +639,6 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8059C0322BCD4E99D5C226486A826DCED4186AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518777   (152365) от 21.12.2021
-
-Я заберу твою семью (2021) WEBRip (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена посвящала все свое время семье, но ни муж, ни мать ее стараний не оценили. А когда в ее жизни появляется освободившаяся из тюрьмы младшая сестра, стало еще хуже. С детства избалованная, не приспособленная к жизни и изворотливая Рита решает окончательно «отравить» жизнь Елене, всячески настраивая против нее детей. Это оборачивается очередной трагедией и настолько (   Читать дальше...   )Производство: Украина / Кинокомпания «Киевтелефильм»Жанр: мелодрамаРежиссер: Сергей ЩербинАктеры: Анна Миклош, Александр Никитин, Евгения Осипова, Алексей Зубков, Игорь Рубашкин, Андрей Нестеренко, Александра Каштанова, Сергей Громов, Наталья Батрак, Артём НемовЯзык озвучки: русскийПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7512714375DB21D993BAD337A9AB880470C579B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271218   (152366) от 22.12.2018
-
-Яна Юрышева | Праздничное украшение новогоднего стола (2015) [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год - праздник особый, и каждый хозяйке хочется, что праздничный стол был красивым и незабываемым. С нашей книгой это проще простого! Ведь мы собрали в ней самые лучшие, красивые и, конечно, вкусные украшения для торжественного стола! Выбирайте, готовьте, удивляйте!
-
-Книжная серия | Вкусный Новый год [4 книги] (2015)Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226BC12589C73E2649058D0CD71212ADB3DFB519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347145   (152367) от 23.12.2019
-
-Татьяна Толстая и др. | Птичий рынок (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152367.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Птичий рынок” – новый сборник рассказов известных писателей, продолжающий традиции бестселлеров “Москва: место встречи” и “В Питере жить”: тридцать семь авторов под одной обложкой.
-Герои книги – животные домашние: кот Евгения Водолазкина, Анны Матвеевой, Александра Гениса, такса Дмитрия Воденникова, осел в рассказе Наринэ Абгарян, плюшевый щенок у Людмилы Улицкой, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EEC88075B8BB524431C35B08C5A4B08DFC7339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518856   (152368) от 21.12.2021
-
-Приключения трёх поросят v1.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивная детская сказка о трёх поросят и сером волке.
-Без рекламы, без встроенных покупок! Можно играть без Wi-Fi и интернета.
-* Золотая медаль на "Global Ebook Awards".
-* Номинация на GIGA MAUS 2017 в Германии.(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 13 февраля 2018 г.Разработчик: Irene DeevПоддерживаемая ОС: Android 4.2+Жанр: РазвлеченияЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FCB4BEEEDA5039FFCDFCD21BC6B27E78181F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194865   (152369) от 27.12.2017
-
-Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C8 90 (06:45)
- 02. Sine Song 5 (05:08)
- 03. Stay Home (04:45)
- 04. Wow (05:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22880185628316FEAFDA0D854D55B4233A9C69CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347535   (152370) от 23.12.2019
-
-Navicat Premium 15.0.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271268   (152371) от 22.12.2018
-
-Барри Уилкинсон | Основы проектирования цифровых схем (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена вопросам проектирования цифровых логических схем. В краткой, но строгой форме в ней излагаются методы проектирования основных классов логических схем - от вентилей до схем на программируемых логических матрицах. Данная книга будет особенно полезной для студентов, изучающих электронику и вычислительную технику. Великолепная методика изложения, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C91EB398F3BB25183DD82ED576E2747FC7DF2
 ```
 
 

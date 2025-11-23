@@ -1,3 +1,177 @@
+###  Публикация: 1677521   (150152) от 18.11.2023
+
+art of rally (2020) [Ru/Multi] (1.5.0/dlc) Repack dixen18
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150152.jpg" />
+</div>
+
+
+###  Подробнее
+
+art of rally - раллийная игра от создателя игры Absolute Drift, завоевавшей любовь многих ценителей гонок. Вид сверху позволит полностью сфокусироваться на заездах благодаря хорошему обзору трассы без подсказок штурмана. Управление автомобилем было существенно доработано по сравнению с Absolute Drift и стало более предсказуемым и менее требовательным. Поведение автомобиля (   Читать дальше...   )Тип издания: RepackРазработчик: Funselektor Labs Inc.Жанр: Action, Racing, Simulation, SportsЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC50B704D47D1B2787618D189795CC00DC6C77E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434458   (150153) от 24.12.2020
+
+Boris FX Mocha Pro 2021 v8.0.1 Build 101 standalone + plugins Adobe&OFX [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mocha Pro - всемирно известное программное обеспечение для плоского отслеживания, ротоскопирования и удаления объектов. Незаменим для визуальных эффектов и пост-продакшн рабочих процессов, Mocha был отмечен престижными наградами Academy и Emmy Awards за вклад в кино- и телеиндустрию. Mocha Pro недавно использовался в таких мировых хитах, как The Mandalorian, Stranger (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766879109E6F3820F0F608B927633E8769346D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589214   (150155) от 14.12.2012
+
+All My Movies 7.3 Build 1406 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150155.jpg" />
+</div>
+
+
+###  Подробнее
+
+All My Movies - каталогизатор фильмов для всех. Ведь все мы смотрим фильмы, кто-то в кинотеатре, кто-то дома. Со временем впечатления о просмотренном фильме угасают и порой бывает трудно вспомнить о чём же был тот или иной фильм и кто в нём играл. Наша программа - это простой в использовании инструмент для создания каталога вашей коллекции видео. Не важно, на каком носителе находятся ваши фильмы, будь то видеофайлы (AVI, MKV и другие), Blu-ray, DVD, CD, VHS кассеты или что-нибудь еще... All My Movies - это простой в использовании органайзер видео и фильмов. Покажи другу свой каталог фильмов! Удиви!
+
+(   Читать дальше...   )Название программы: All My MoviesЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271289   (150156) от 23.12.2018
+
+Медведь ШатунЪ - 6 Альбомов (1997-2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150156.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 октября 1993 года, в Москве, во время штурма Белого дома (написана первая песня). 19 февраля 1995 года (первая репетиция). Первый состав продержался ровно один день. 1995-1998 годы постоянно меняющийся акустический состав (вокал/гитара, скрипка, бас, бонги). Редкие выступления на "сборно-соляночных" концертах и локальных фестивалях. Запись дебютного электрического (   Читать дальше...   )1997 - Я здесь!
+2004 - Джек - Не дождётесь!
+2004 - Резус-Фактор!
+2005 - Контрольный выстрелЖанр: RockПродолжительность: 05:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0757AAF6055855C3283A2699BEF58AE43166260B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968754   (150157) от 25.12.2015
+
+Проекты - VideoHive - Gold Particle and Memories Typography [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE19A418C972067B1596FEB1E1E574F1BB39A3B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518908   (150158) от 22.12.2021
+
+Король Ричард / King Richard (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комптон, 1988 год. Отец пяти дочерей Ричард Уильямс уже давно составил подробный план на будущее своих девочек и упорно ему следует, а из восьмилетней Винус и семилетней Серены он намеревается сделать звёзд тенниса. Хотя Ричард с женой Брэнди мало что понимают в подготовке профессиональных теннисистов, они сами тренировали дочек и как могли ставили им технику. Всемирно (   Читать дальше...   )Производство: США / Overbrook Entertainment, Star Thrower Entertainment, Warner Bros.Жанр: биография, спорт, драмаРежиссер: Рейнальдо Маркус ГринАктеры: Уилл Смит, Онжаню Эллис, Санийя Сидни, Деми Синглтон, Джон Бернтал, Тони Голдуин, Микайла Лашэй Бартоломью, Даниэль Лоусон, Лайла Кроуфорд, Эрика РингорПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF6C90C7A214EB458A7BC59402C670D9C844235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434430   (150159) от 24.12.2020
+
+Bandicam 5.0.1.1799 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AC813377A4BF54D7752B1B6C356DDA2F306FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677492   (150160) от 18.11.2023
 
 Дмитрий Гришанин | S-T-I-K-S. Рихтовщик (Книга 5). Соленые брызги ярости (2023) [MP3, Роман Попов]
@@ -6,7 +180,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150160.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ macOS Monterey 12.1 (21C52) [образ для BDU]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150161.jpg" />
 </div>
 
 
@@ -55,7 +229,7 @@ magnet:?xt=urn:btih:51380FB6F07E37F2C3D9DC34D3329B007FB11DA9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150162.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ WinTools.net Premium 16.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150163.jpg" />
 </div>
 
 
@@ -105,7 +279,7 @@ magnet:?xt=urn:btih:9C2601B1C496EDF03FB059CD993109BB18C2296E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150164.jpg" />
 </div>
 
 
@@ -130,7 +304,7 @@ magnet:?xt=urn:btih:1EC7814159BD8AEFB40D76BF68BC8AFDA6D6EBF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150165.jpg" />
 </div>
 
 
@@ -154,7 +328,7 @@ magnet:?xt=urn:btih:1EC7814159BD8AEFB40D76BF68BC8AFDA6D6EBF8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150166.jpg" />
 </div>
 
 
@@ -178,7 +352,7 @@ magnet:?xt=urn:btih:7260131E33313E70F9FE05D6EB0C8F5C92B1FB1F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150167.jpg" />
 </div>
 
 
@@ -202,7 +376,7 @@ Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150169.jpg" />
 </div>
 
 
@@ -229,7 +403,7 @@ Shinnobu - 8 альбомов (2017-2020) [MP3|320 Kbps] <Enigmatic, Electronic,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150170.jpg" />
 </div>
 
 
@@ -256,7 +430,7 @@ magnet:?xt=urn:btih:C1C6364FBE9A25764D8925F1413A53D9F015C64B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150172.jpg" />
 </div>
 
 
@@ -283,7 +457,7 @@ magnet:?xt=urn:btih:C38F529B68BF5AC05D1BA95E385A5F02FB9B6DA1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150173.jpg" />
 </div>
 
 
@@ -307,7 +481,7 @@ Movavi Video Suite 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150174.jpg" />
 </div>
 
 
@@ -331,7 +505,7 @@ magnet:?xt=urn:btih:CFC684C893A4845906CE4DB611729C5D0C9452EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150175.jpg" />
 </div>
 
 
@@ -355,7 +529,7 @@ magnet:?xt=urn:btih:B7942CDF8F7C424321B5DA58AA7CABCDA216C22D
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150176.jpg" />
 </div>
 
 
@@ -380,7 +554,7 @@ magnet:?xt=urn:btih:9C655BD45A6D5C781D1157F147B7B394CE8DF634
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150177.jpg" />
 </div>
 
 
@@ -404,7 +578,7 @@ magnet:?xt=urn:btih:861009D604A9A18E4F642AE2DE80610A0B86CC19
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150178.jpg" />
 </div>
 
 
@@ -429,7 +603,7 @@ magnet:?xt=urn:btih:4D0C993EA9C1F431A2872833EAEA0E06034700FF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150179.jpg" />
 </div>
 
 
@@ -453,7 +627,7 @@ VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150180.jpg" />
 </div>
 
 
@@ -467,184 +641,6 @@ VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434321   (150182) от 24.12.2020
-
-Уроки фарси / Persian Lessons (2020) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о событиях 1942 года в оккупированной Европе. Жиль Кремье, бельгиец еврейского происхождения, оказавшись в концлагере, выдает себя за перса - для него это единственная возможность остаться в живых. Это ложь действительно спасает ему жизнь, но Жиль даже не может себе представить, какой ценой. Немецкие солдаты, довольные таким редким уловом, приводят (   Читать дальше...   )Производство: Россия, Германия, Беларусь / Hype Film, LM Media, ONE TWO FilmsЖанр: Драма, военныйРежиссер: Вадим ПерельманАктеры: Ларс Айдингер, Науэль Перес Бискаярт, Леони Бенеш, Софья Гершевич, Александр Байер, Нико Эрентайт, Йонас Най, Джузеппе Скиллачи, Давид Шюттер, Гарет МакгрегорПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 02:05:46Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086679   (150183) от 25.12.2016
-
-Журнал | Мастерица №12 (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по разным видам рукоделия. В нём представлены: шитьё, вязание, вышивание крестом и лентами, декупаж, бисероплетение, фриволите, другие рукоделия, обзорные статьи и мастер-классы.
-Собственный скан.Жанр: Рукоделие, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F6464013B3369BA22F43DAF1EFC17350F7794C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677459   (150184) от 18.11.2023
-
-Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отгремела Вторая мировая война, и нации теперь мирно соревнуются в автогонках, одним из участников которых является Шимамура Джо. В решающий момент вырвавшись вперед, Джо попадает в аварию, которую подстроили агенты тайной международной организации «Чёрный призрак» (Black Ghost). Похитив его тело на «скорой помощи», злодеи прибывают на секретную базу. Там профессор (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: приключения, фантастикаРежиссер: Сэрикава ЮгоПеревод: Кинозал МаанишаЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый) + Японский (оригинал)Субтитры: Русские ( софтсаб на песню и полные внешние Ass. )  , Английские (софтсаб полные)Продолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CE17ED4A75FC011EF5D6E674BBB94E1C3B44A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271247   (150185) от 23.12.2018
-
-VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966248   (150186) от 25.12.2015
-
-До свидания, Чарли / Goodbye Charlie (1964) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голливудский сценарист Чарли Сорел (Гарри Мэдден), застигнутый известным кинопродюсером в момент свидания с его женой на борту яхты, получает от ревнивого мужа пулю и падает в море. А через несколько дней случайный прохожий видит одиноко гуляющую по пляжу молодую женщину. Единственное, что помнит симпатичная блондинка, - адрес дома, где жил Чарли. Проснувшись утром, (   Читать дальше...   )Производство: США, Venice ProductionsЖанр: Фэнтези, Мелодрама, КомедияРежиссер: Винсенте МинеллиАктеры: Тони Кертис, Дэбби Рейнольдс, Гарри Мэдден, Пэт Бун, Джоэнна Барнс, Эллен Берстин, Лаура Девон, Мартин Габел, Роджер С.Кармел, Мирна ХансенПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CE4DCC2A2E8051B3416DD7B8D5D4CF29AC8FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967607   (150187) от 25.12.2015
-
-Реджина Лидс | Идеальный порядок за 8 минут. Легкие решения для упрощения жизни и высвобождения времени (2013) [FB2, PDF, DOCX]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цитата
-На старт, внимание — выбрасывайте!
-
-О чем книга(   Читать дальше...   )Жанр: ДомоводствоФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B64EFBBF3238A7346ABFC70A4EA2109A2FCF7CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271384   (150188) от 23.12.2018
-
-SYNTHEVER - Around The World Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Christmas (Space Christmas Mix) (5:06)
-02. Souvenir (Dance Mix) (3:34)
-03. Drive (Piano Mix) (3:48)
-04. The Captain Of Her Heart (Piano Mix) (4:49)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA6F4EA84B098061FB49BDB5C835BF088BB28B5
 ```
 
 

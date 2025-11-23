@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DC3240BAB10E2CA92EE4F770898C08C85651C89C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:31385192A2AFB2C6867D06F1D55B897382DBFD14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45181.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.2.618 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45182.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CE71647611BC3146C7F1F8DE307273C50E861C9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45183.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45184.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45185.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:69DFE06EFF85277133689C88FE465AF6F9BF36D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45186.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe Premiere Pro 2024 24.6.1.2 (x64) Light Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45187.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:05A51427B3FF42E826C3E106246E3EE054F9D208
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45188.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3DC98AEF5BCEB08034BB7632D7E1106AD404A8AA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45189.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45190.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:B8C8F9AD67C9B9EBBBACEEB2788AD24392D5134E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45191.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E956838C48D9ED253BF991F2141C87E878333EBB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45192.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E387AEFACF82D52B66CD8CA631283EACA7665291
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45193.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Adobe Premiere Pro 2024 24.6.1.2 (x64) Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45194.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:50FCDFFCE7D94FAE7A56A48101D288C9D73E8676
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45195.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:311802B0EF2A5185699D48267C282E7907AC6219
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45196.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:0D049C57E4DC4C87BC791A7A74475D4215073C17
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45197.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Luminar Neo 1.20.1.13681 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45198.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5AD9A882CBE3E5D5C56E144EC1AC082DF0ED9BBF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45199.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Monster Jam Showdown (2024) [Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45200.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45201.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1CE54BEA6E7B8AF984C5549ADAF1C5E97325E7FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45202.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:CDE4154BA96DA2C646E821A7126D48E98E178A55
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45203.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3F8C8B72FEFE434571BD049CE0C17F4258585D1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45204.jpg" />
 </div>
 
 

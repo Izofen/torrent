@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1935.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:918971B719339A59BC2E7E3AA414B565DEC2D90E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1936.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1937.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:014670F5E04A215BF045E7AF55E02B9074141DDE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1938.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E27DC304250B6FA38092211E1D8C177A3E42288D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1939.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1940.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1941.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:DE392D69ADCB9E739B67D5534309379A45CA2C0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1942.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:67FB5105F1869332DF1360181542165DC1397702
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1943.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Catfish John Tisdell - Rust and Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1944.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1945.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1946.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ben Rice & the PDX Hustle - Fallen Angel (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1947.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F993C5B230CDBDBD7F25F43472DF5C1CB04BF87F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1948.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1949.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1950.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1951.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1952.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (2025) [MP3|320 Kbps] <Prog Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1953.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1954.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1955.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1956.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Surgical Steel - Cranck It Up! (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1957.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:DB5B81A219CE0E9CF30CAA6D252203C9AC10C173
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1958.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Armin van Buuren - A State Of Trance 1243 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1959.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1960.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1739123   (106158) от 26.07.2024
+
+Minimal Audio - Ripple Phase 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ripple Phaser - это нечто большее, чем просто еще один фазер,
+который привносит в ваш звук плавный характер и анимированное движение благодаря своим эксклюзивным режимам фильтрации и экстремальному сдвигу фазы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4433A50DDBB3B4286C9F8EB5AE41F8D548462FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739010   (106159) от 26.07.2024
+
+Imperia - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Place (4:15)
+02. Reach My Tears (4:02)
+03. The Family Chain (4:56)
+04. The Tree Of Life (6:24)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178002FEBD13DA055FBECD503B198530C6E1D18A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739107   (106160) от 26.07.2024
+
+Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Comin' Home
+02. Plaster Caster
+03. Goin' Blind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750255A87788D8E4166172FA9B201E35ECB01E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739195   (106161) от 26.07.2024
 
 PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
@@ -6,7 +85,7 @@ PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106161.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106162.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106163.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106164.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:E21AF164535184E967D56CE8155FE8E63B08620B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106165.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ magnet:?xt=urn:btih:9307BD0CF48AF71E78649D94FD040A65963B1F50
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106166.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106167.jpg" />
 </div>
 
 
@@ -186,7 +265,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106168.jpg" />
 </div>
 
 
@@ -213,7 +292,7 @@ magnet:?xt=urn:btih:A26AFAF68F8F406E839610E55A8B48A83604897D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106169.jpg" />
 </div>
 
 
@@ -237,7 +316,7 @@ VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106170.jpg" />
 </div>
 
 
@@ -264,7 +343,7 @@ VA - Golf Cart Mixtape: Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106171.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ magnet:?xt=urn:btih:CF7A663019E81E7AA7D67BE48DBFBF699354086D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106172.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106173.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ Soulbound - obsYdian (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106174.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106175.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ Sugar Bytes - DrumComputer 1.3.4 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106176.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ Perfectly Clear Workbench 4.6.1.2680 + AddonsPack Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106177.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106178.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ Draw.io 24.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106179.jpg" />
 </div>
 
 
@@ -499,7 +578,7 @@ VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106180.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ PrivaZer Pro 4.0.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106181.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ Radiant Photo 1.4.1.501 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106182.jpg" />
 </div>
 
 
@@ -574,7 +653,7 @@ Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106183.jpg" />
 </div>
 
 
@@ -588,87 +667,6 @@ Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86B1AB2BA8129D970267F1016858A190CCE1A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739157   (106184) от 26.07.2024
-
-Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Symphonic Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heroes [3:46]
-02 - We Are Not Alone [4:35]
-03 - Dragons [4:05]
-04 - The Game Never Ends [3:54](   Читать дальше...   )Жанр: Metal, Symphonic Metal, Power MetalПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEDAF59FBB2E20FF5B6396E9BB5C5964AD032B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739069   (106185) от 26.07.2024
-
-Мураками - Казань / Big Twin Arena 2024 (2024) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рок-н-ролл (Live)
-2. Встречи не будет (Live)
-3. 364 (Live)
-4. Наутёк (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA10346BF77B8C4811336F2FDC5F6337FED5ACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739079   (106186) от 26.07.2024
-
-VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incognita Alma - Mahe (Original Mix) [5:05]
-02. Gary B - Rainy Day In The City (Original Mix) [1:52]
-03. Supira - Beautiful You (Original Mix) [5:04]
-04. Beamy - Still Waters (Original Mix) [4:26](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E43FE8B5E5060CD8D8397AD3819A6F0F136B949
 ```
 
 

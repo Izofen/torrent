@@ -6,7 +6,7 @@ Process Explorer 17.06 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54878.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Transmission 4.0.6 (38c164933e) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54944.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Process Explorer 17.06 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54947.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Pale Moon 33.1.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55031.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Privacy Eraser Free 6.7.2 Build 4929 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55113.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TheBig [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55159.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ EzPing 2.1 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55192.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MSMG ToolKit 13.7 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55257.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Foxit PDF Reader 2024.2.2.25170 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55371.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55459.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Air Live Drive Pro 2.4.2 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55467.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinNc 10.7.5.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55558.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Reboot Restore Rx Professional 12.7 Build 2709799653 RePack by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55577.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Universal USB Installer 2.0.2.3 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55600.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.6 Portable
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55657.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Quick Search 6.0.1.9 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55918.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Absolute Uninstaller 6.0.1.7 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55919.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Don't Sleep 9.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55922.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ GetDataBack Pro 5.71 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55964.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ TrustViewer 2.13.0.5255 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56055.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Quick CPU 4.10.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56152.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ MetaProducts Offline Explorer Enterprise 8.6.0.4976 Portable by FC Portables [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56257.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Windows Manager 2.0.0 (x64) Portable by FCPortables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56273.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Supermium 122.0.6261.152 (R5) - Security patch [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56278.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ASAP Utilities for Excel 8.6 Home and Student [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56380.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Midori Browser 11.3.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56476.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1703658   (114894) от 01.03.2024
+
+Моё прекрасное несчастье 2 / Beautiful Wedding (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если вы поженились в Вегасе после одной безумной ночи? Конечно же, устроить себе отвязный медовый месяц в жаркой Мексике! Вещи собраны, а друзья уже в пути, ведь Эбби и Трэвис доказали всем, что они - идеальная пара. Но готовы ли они к браку, или же всё закончится ещё одним прекрасным несчастьем?Производство: США / Voltage PicturesЖанр: мелодрама, комедияРежиссер: Роджер КамблАктеры: Дилан Спроус, Вирджиния Гарднер, Остин Норт, Либэ Барер, Роб Эстес, Стивен Бауэр, Алекс Айоно, Эммануэль Кабонго, Деклан Майкл Лэйрд, Тревор Ван УденПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, full)Продолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378FD0F665A69032A2257C633D07C044B41F7322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703655   (114895) от 01.03.2024
+
+Моё прекрасное несчастье 2 / Beautiful Wedding (2023) WEB-DLRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если вы поженились в Вегасе после одной безумной ночи? Конечно же, устроить себе отвязный медовый месяц в жаркой Мексике! Вещи собраны, а друзья уже в пути, ведь Эбби и Трэвис доказали всем, что они - идеальная пара. Но готовы ли они к браку, или же всё закончится ещё одним прекрасным несчастьем?Производство: США / Voltage PicturesЖанр: мелодрама, комедияРежиссер: Роджер КамблАктеры: Дилан Спроус, Вирджиния Гарднер, Остин Норт, Либэ Барер, Роб Эстес, Стивен Бауэр, Алекс Айоно, Эммануэль Кабонго, Деклан Майкл Лэйрд, Тревор Ван УденПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, full)Продолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583543795BE8012AA96DBD621C4F386BD7842AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703668   (114896) от 01.03.2024
+
+Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penny's Big Breakaway - это яркий 3D-платформер с инновационным геймплеем. Игроки берут на себя роль Пенни, уличной исполнительницы с уникальным видением звездной славы, и ее динамичного компаньона Йо-Йо. По сюжету Пенни неожиданно проходит прослушивание в придворные артисты императорского дворца, где случайная встреча с космической струной превращает йойо в живое (   Читать дальше...   )Тип издания: RepackРазработчик: Evening StarЖанр: Arcade, Third-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703612   (114897) от 01.03.2024
 
 Код 8: Часть 2 / Code 8: Part II (2024) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114897.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E461852BD28FF8F7B07FB8FEAD5722802C5C2F4A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114898.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:FE49557053D83E5031268C1016EDAFAD781EF727
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114899.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114900.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ UnHackMe 15.80.2024.0220 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114901.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114902.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ VA - Ласковый Май в инструментальных версиях 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114903.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:B3DAFEA8596460F9B34F09CC227AF26D1B9F77CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114904.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ Topaz Photo AI 2.4.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114905.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114906.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114907.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114908.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114909.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114910.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114911.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:C652442198621F8D406304FBF4B8F5AB59277D90
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114912.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:53F240FD0CB74BBBA2D09E6FA89DC2EA563388CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114913.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:386101A2B3B7DEE86EE40B15BACCD3401012DF50
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114914.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:D16C8B8C1D35D3FF1C14BE9D4F4F0F3F23055625
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114915.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Slave Zero X (2024) [Ru/Multi] (1.00) Repack FitGirl [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114916.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114917.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:D4CBB8627716C3CCE6233A808FCC1DE496057103
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114918.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:2D74285E93CA045B6E6D2A347796D3C01EFC4183
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114919.jpg" />
 </div>
 
 
@@ -557,78 +629,6 @@ magnet:?xt=urn:btih:2D74285E93CA045B6E6D2A347796D3C01EFC4183
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654F16AA0923929F2626057744027B41AA3FC3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703706   (114920) от 01.03.2024
-
-Выжившие: Яна (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир поразила эпидемия неизвестного вируса. Теперь те, кто проспит больше двух часов, уже не просыпаются. В такой страшной реальности существует и бывший менеджер нефтяной компании Максим. Он живёт в квартире и поддерживает жизнь спящей жены. Каждый день он ставит ей капельницы с глюкозой и потихоньку чинит в гараже машину. Максим рассчитывает однажды довезти жену (   Читать дальше...   )Производство: Россия / Лук-фильмЖанр: фантастика, триллер, драмаРежиссер: Евгений ЕмелинАктеры: Егор Корешков, Анастасия Куимова, Аслан Цаллати, Юрий Анпилогов, Мария ВасильеваПродолжительность: ~00:08:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BFFFEB3427A8C910FB8A81BB95AB9B65086F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703687   (114921) от 01.03.2024
-
-Выжившие: БЛОГГГЕР (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалипсис заставляет людей совершать самые разные поступки: уходить в леса, заниматься мародёрством, грабежами и убийствами. Парень Гоша не ушёл в лес и не переехал в бабушкин дом в деревне, он нашёл в сельской местности вдали от посторонних глаз церковь, которую переоборудовал практически в умный дом. Теперь Гошу кормят сразу несколько специально разработанных (   Читать дальше...   )Производство: Россия / Лук-фильмЖанр: фантастика, триллер, драмаРежиссер: Павел ТимофеевАктеры: Георгий Кудренко, Артур Мухамадияров, Филипп Авдеев, Богдан Голощук, Алексей Алексеев (II), Александра Ревенко, Александр Лырчиков, Николай Самсонов, Матвей Осокин, Алексей ОвсянниковПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B857CD887CD50DF970C9C7DFAE79FB8831A431D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703752   (114922) от 01.03.2024
-
-Тот, кто смотрит / Stranger in the Woods (2024) WEB-DLRip [H.265]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США / WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: Русский, АнглийскийСубтитры: Русский, АнглийскийПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A676B78892D6C8C6A01129B27F00B4DABED5A52E
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13453.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WPS Office + PDF v18.18.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13461.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66BE80311C5A83B62945EDF1C750F09B93DBAE5E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13465.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Xiaomi Home (Ранее. MiHome) v10.6.702 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13475.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 138.0.7204.50 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13476.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PotPlayer 250625 (1.7.22569) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13490.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MSI Afterburner 4.6.6.16555 Beta 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13495.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13507.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ CCleaner 6.37.11523 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13516.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13517.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13521.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WinRAR 7.12 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13522.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5103A2C9B89E83B9BFCD3F081B536AEA3B54D7D5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13524.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13526.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13531.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13555.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Firefox Browser 140.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13582.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Freemake Video Converter 5.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13604.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PotPlayer 250514 (1.7.22542) RePack (& Portable) by elchupacabra (24.06.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13606.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ MKVToolNix 93.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13613.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Fast Video Cutter Joiner 6.8.4.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13618.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ qBittorrent 5.1.1 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13623.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Capture One 23 Enterprise 16.6.3.2987 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13634.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:75AB4908C98E35740BA08078BEAA3BC8C7D952DC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13680.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13687.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Fort Firewall 3.18.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13696.jpg" />
 </div>
 
 

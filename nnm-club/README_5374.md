@@ -1,3 +1,177 @@
+###  Публикация: 1597823   (165218) от 16.12.2022
+
+Джон МакКрэй | Червь (Книга 10). Паразит (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 03:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6089A229C564563C35397F285B8DC9D14722FCF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516650   (165219) от 12.12.2021
+
+Посылки от папы / Xinling shizhong / Packages from Daddy (2016) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятилетний Лань живет в приморском городке с родителями и старшей сестрой Чэн. Однажды, вернувшись домой из школы, он узнает, что его отец покончил жизнь самоубийством. Лань винит в смерти себя, поскольку утром он накричал на отца. Чэн тоже винит себя, поскольку утром, видя, что отец расстроен, не подошла к нему. В скором времени начинают приходить посылки от папы, (   Читать дальше...   )Производство: Тайвань, Movie Bird FilmsЖанр: СемейныйРежиссер: Цай ИньчуаньАктеры: Фанн Вонг, Ли Лижэнь, Райан Тан, Катрина Юй, Се Фэй, Дин Нин, Жи-Пин Тан, Кэш ЧуанПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FD4BBB7C07EB6B957AFB1D207F95993C8D361D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673480   (165220) от 01.11.2023
+
+Журнал | Canadian Woodworking & Home Improvement №146 (2023) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, издающийся раз в два месяца, адресован тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом номере журналаЖанр: Столярное делоЯзык: АнглийскийИздательство: Sawdust Media Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2E6BEF0464EE8C863DA3AACD1A56A59C269CE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432204   (165221) от 16.12.2020
+
+Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Electro, Synth-Goth>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Lost [00:01:16]
+02. Fever [00:04:19]
+03. Trust the Pain [00:03:19]
+04. Undressed [00:04:51](   Читать дальше...   )Жанр: Gothic Electro, Synth-GothПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F9D0880DA2CC5EECCF3ECE5231C3FCEA7EDCAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345981   (165222) от 17.12.2019
+
+VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zalza - Nudel Soppa Blues
+02. Anamanaguchi - Planet
+03. Street of Rage - Round 3
+04. Jredd - Neon Alley(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673382   (165223) от 01.11.2023
+
+Журнал | Зарубежное военное обозрение №11 (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165223.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зарубежное военное обозрение» - ежемесячный информационно-аналитический иллюстрированный журнал Министерства обороны СССР и Российской Федерации. «Зарубежное военное обозрение» на различных этапах развития Вооруженных Сил было ведущим открытым военным изданием, освещающим широкий круг вопросов: строительство иностранных армий, военная политика, стратегия и тактика, (   Читать дальше...   )Жанр: Информационно-аналитическое изданиеИздательство: ОАО "ИД "Красная звезда"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BE8215C8E52FFD7300D24C537C38DCF186A062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516674   (165224) от 12.12.2021
+
+Миланский калибр 9 / Milano calibro 9 (1972) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий фильма по роману Джорджо Щербаненко. История закручивается вокруг чемодана с деньгами, который бандиты передавали друг другу, а в результате - появилась бумага вместо денег. Всех подельников пытали и убили. Кроме одного. Это был Уго Пьяцца. Он сел в тюрьму на три года, и после выхода на свободу его сразу же начали преследовать старые подельники, на 100% (   Читать дальше...   )Производство: Италия, Cineproduzioni Daunia 70Жанр: боевик, криминал, триллерРежиссер: Фернандо Ди ЛеоАктеры: Гастоне Москин, Барбара Буше, Марио Адорф, Фрэнк Вулф, Луиджи Пистилли, Иво Гаррани, Филипп Леруа, Лайонел Стэндер, Марио Новелли, Джузеппе КастелланоПеревод: любительский одноголосыйСубтитры: русские, английскиеПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662760CE4E2FEE79CC922CACCE85292CDF2D0DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597786   (165225) от 16.12.2022
 
 Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
@@ -6,7 +180,7 @@ Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165225.jpg" />
 </div>
 
 
@@ -33,7 +207,7 @@ magnet:?xt=urn:btih:3C8489D539BBE63FD2E41DA4A0152D530507EE77
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165226.jpg" />
 </div>
 
 
@@ -57,7 +231,7 @@ Das EFX - Real Hip-Hop (2019) Reissue, Compilation [FLAC|Lossless|Web-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165227.jpg" />
 </div>
 
 
@@ -84,7 +258,7 @@ Adobe Media Encoder 24.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165228.jpg" />
 </div>
 
 
@@ -108,7 +282,7 @@ VA - Music News vol.155 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165229.jpg" />
 </div>
 
 
@@ -135,7 +309,7 @@ Mp3tag 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165230.jpg" />
 </div>
 
 
@@ -159,7 +333,7 @@ magnet:?xt=urn:btih:66918C53D6CB9B02E4ACEF7C0EC27EB102648ED0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165231.jpg" />
 </div>
 
 
@@ -183,7 +357,7 @@ VA - Its Time To Party December (2019) [MP3|320 Kbps] <Electro, Big Room, Dutch 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165232.jpg" />
 </div>
 
 
@@ -210,7 +384,7 @@ Unclutter 2.1.25 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165233.jpg" />
 </div>
 
 
@@ -235,7 +409,7 @@ Topaz Video AI 4.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165234.jpg" />
 </div>
 
 
@@ -259,7 +433,7 @@ magnet:?xt=urn:btih:46654C675F283A1157AD5ED214ED6729872EB022
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165235.jpg" />
 </div>
 
 
@@ -283,7 +457,7 @@ VA - Christmas Rock Legends (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165236.jpg" />
 </div>
 
 
@@ -310,7 +484,7 @@ magnet:?xt=urn:btih:D41D23BDF2B4D6600C9268F13AB7ACB2574D46B7
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165237.jpg" />
 </div>
 
 
@@ -335,7 +509,7 @@ Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165238.jpg" />
 </div>
 
 
@@ -359,7 +533,7 @@ magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165239.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165240.jpg" />
 </div>
 
 
@@ -410,7 +584,7 @@ magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165241.jpg" />
 </div>
 
 
@@ -434,7 +608,7 @@ magnet:?xt=urn:btih:DEB2E2DCC178B9182AD0B4243282F261B5BB8614
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165242.jpg" />
 </div>
 
 
@@ -458,7 +632,7 @@ Listen Audiobook Player v5.2.1 (972) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165243.jpg" />
 </div>
 
 
@@ -469,186 +643,6 @@ Listen Audiobook Player v5.2.1 (972) Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9044E3537F7A5D9AA37F741A0FDE28BF548B333D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516612   (165244) от 12.12.2021
-
-Omega - Testamentum (Búcsúztató) (2021) Maxi Single [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Égi jel 4:18
-2.Búcsúztató 5:11
-3.Elfújta a szél 5:08Жанр: Progressive RockПродолжительность: 00:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5C93F7DCD807F98A1A33B05106D31CFB26A560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597933   (165245) от 16.12.2022
-
-djay - DJ App & AI Mixer 4.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165245.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D907A5B90531DD9BE6E0800D33E935152ADE4E50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431804   (165246) от 16.12.2020
-
-Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, Electro>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiest Days Of Our Lives (Cover Version)
-02. Another Brick In The Wall, Part 2 (Cover Version)
-03. Hey You (Cover Version)
-04. The Great Gig In The Sky (Cover Version)(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1432A566E1FCD47EE162DBB010796021D3DF87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516806   (165247) от 12.12.2021
-
-Елена Ананьева | Популярная научно-практическая энциклопедия современных знаний. Опасная природа. Необычные и грозные явления природы (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Опасная природа. Необычные и грозные явления природы» рассказывает о необычных и грозных явлениях на Земле, таких как извержения вулканов и землетрясения, гейзеры и фумаролы, огромные волны-цунами и наводнения. Отдельно рассказано о катастрофах в жизни нашей планеты: падении огромных метеоритов, массовых вымираниях.
-Книга адресована всем читателям, которые (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD95613351042D2B0D485AC3978CAC1074064A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597753   (165248) от 16.12.2022
-
-Ripper - Return To Death Row (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die While We're Alive
-02. Embattled
-03. The Night (Take It Back)
-04. Silent Cage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A241F267F1381DDA354D3C4C8D68717E1E8EEE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673418   (165249) от 01.11.2023
-
-Icecream Screen Recorder Pro 7.31 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72A96FA35D7C0CCA2C783FC44E9B285ED00BE64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345887   (165250) от 17.12.2019
-
-Freddie Gibbs & Amerigo Gazaway - A Freddie Christmas Album (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Mashup>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa's Knicks (2:55)
-02. Christmas In Gary (2:31)
-03. Merry and Broken feat. Scarface (2:43)
-04. Peace At Harold's (2:44)(   Читать дальше...   )Производство: Altered CratesЖанр: Hip-Hop, Underground Hip-Hop, MashupПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0837E275773CE8C1ED83A80A4A484E80E5D9F06
 ```
 
 

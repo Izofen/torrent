@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67490.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zmarłym (Zmarlym) - Wielkie Zanikanie (2025) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67491.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gedanken toten Lebens - Essenz der Urwunde (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67492.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67493.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67494.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mayhemic - Toba (2024) [FLAC|Lossless|image + .cue] <Black Metal, Thrash>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67495.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67496.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67497.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67498.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67499.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67500.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:330396B94D573BA6C73445625CFEC30ED53CBC6F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67501.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67502.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - TOP 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67503.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B305D9C12AC05F5B082FCA698F30E200CCF5F4B4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67504.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67505.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67506.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Infinite Deep Vibes (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67507.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Cosmic Cathedral - Deep Water (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67508.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C9
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67509.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67510.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67511.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67512.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Epic Death - The Seer (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67513.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Verheerer - Urgewalt (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67514.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67515.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52000.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52001.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52002.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52003.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:48567F9F37ED770F203B08E47561EFE2F876BD7A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52004.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C2DBB12A1A7E00A1BF8F0FC4F2A6BE1F94C21D10
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52005.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A3E26B4A472640F42E82F1374621F1DED5ABE559
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52006.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6E59C9710553F50AAF52C9907D204ABC9523FEB6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52007.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F60F81E8AB88B3168CE90AE7A48E6D56A0FE9D8F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52008.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8E899CEF3078522890EE21C9EA34549BC309970B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52009.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:154AA51F457A2192DAA602D3FC716CA306F0B686
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52010.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:7C19892895EA9EE59665F167CB68B2F8B3735A67
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52011.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:09D26C3B5BAFC3EE935D9B123314453003C2DC75
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52012.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F6E20592FE8B13E60CC181DA67D821535600866E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52013.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B83191413AB380C9D03ECA412D90729F58B4898F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52014.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B459F247641B39713C7B258F8C309F48D6593A3D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52015.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52016.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52017.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:0BFC8245AE0A65E7C2B17F66E5FFAF4283B5DE25
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52018.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:0C0EE803DCFD30EDA4A929068244E570DE628A90
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52019.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2CC73EB3C0AA4E513268C7E0B95A2BEB0F3EEFE6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52020.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52021.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - DJ Hits Vol. 103 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52022.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Whole - Hydra (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52023.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Borne Of Ash - From the Dark, They Came (2024) [FLAC|Lossless|WEB-DL|tracks] <At
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52024.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ LazyboyProactive - Runaway (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52025.jpg" />
 </div>
 
 

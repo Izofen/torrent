@@ -6,7 +6,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CB9E65A920BEC0AEAAEAC4A24FE87B0025276190
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20789.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Firefox Browser 137.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20790.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Desktop Calendar 3.22.230.7088 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20791.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1BE1BA2D2B7C5876AB8FC62B2F7BC47603A85A38
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20792.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Balabolka 2.15.0.893 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20793.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:40226DA1DD2EB45B2E90CC5855AA3D3742F0AD74
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20794.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20795.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D59CE021C25082B7E41DCE52DB546E3CD511D529
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20796.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Firefox Browser 137.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20797.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:AD1CC677DD15E9B3C99258AFD2A959D410CF4ADD
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20798.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:28616E6CAE3DEE86F4B6B6AB350FB7093894AE6A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20799.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A787D1F84DEC5D60F9CB62C58356A8EC7493661B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20800.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kangoku Gakuen | Школа-тюрьма (2011) [28 томов, 278 глав + �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20801.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Oshi no Ko | Звёздное дитя (2020) [16 томов, 166 глав + 8 �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20802.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20803.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Jujutsu Kaisen | Магическая битва (2018) [30 томов, 272 гл
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20804.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Record Super Chart 19.04.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20805.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:CFE832774B42921A1718C8924A7590C434F441F4
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20806.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:05893BE74AAB6A3A3D0A3A79D7461355175BB004
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20807.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:FA0CFC7A63F20F2BF7C776A5327166BDD1E493C3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20808.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:4178388E737F4DCF2B7BDCD1ACFA43636A556B9E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20809.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:79DC4DA2D5130BC7A895144326354335CCA7D3CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20810.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:74679425ECF2E9F0FD6C9071BB401349267B604F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20811.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Shoujo the Wild's | Шальные девчонки (2011) [1 сезон, 260 г
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20812.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Fort Firewall 3.17.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20813.jpg" />
 </div>
 
 

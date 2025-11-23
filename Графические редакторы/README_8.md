@@ -6,7 +6,7 @@ FigrCollage Professional 3.3.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110274.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nevercenter CameraBag Pro 2024.1.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110304.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoResizerOK 2.91 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111976.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Photo Mechanic Plus v6.0 build 7102 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115267.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Axialis IconWorkshop Professional 6.9.5.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116093.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ON1 Photo RAW MAX 2026 20.0.4.17586 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117595.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Icecream Image Resizer Pro 2.14 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118611.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Procreate (Corel) Painter 7 7.1.357 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124402.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6B54AD0081462BF9C245CCB48B3FEAD2B72D4C78
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125254.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PanoramaStudio Pro 4.1.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126087.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127846.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ JixiPix Spektrel Art 1.1.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128441.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ onOne Perfect Portrait 2.0 Premium Edition [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131223.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Jixipix Watercolor Studio 1.4.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131736.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132610.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Teorex Inpaint 10.2.3 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132998.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133352.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Adobe Director MX 2004 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133360.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Macromedia Flash 5.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133621.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Director 11.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133676.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ID Photos Pro  8.11.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133697.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136729.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ reaConverter Pro 8.0.144 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136846.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Corel Painter X3 13.0.1.920 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136938.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Corel Painter 12 12.2.1.1212 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136939.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Corel Painter 11 11.0.1.42 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136940.jpg" />
 </div>
 
 

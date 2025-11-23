@@ -6,7 +6,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18758.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18956.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18959.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Food Park Manager (2025) [Multi] (1.0.0c) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19050.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19070.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19298.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19401.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stellar Outpost Commander (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19403.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19514.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19640.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19813.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20053.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20573.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20573.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20608.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20750.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20750.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Anno 1800 (2020) [Ru/Multi] (9.2.972600/dlc) Repack seleZen [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21164.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21164.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.3-468950/dlc) Repack Decepticon [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21917.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22224.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22224.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Spirited Thief (2023) [Multi] (1.0.0.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22408.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22440.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22452.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22492.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22747.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (55) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22976.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23356.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Empires of the Undergrowth (2017) [Multi] (1.101071/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23362.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132608.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132612.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132615.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BF9E84E504DC0EB8EA00791058040D1913D89F8B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132616.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Reface v3.56 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132618.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:763F4E85352D642F5943FB508F0DFE68F774AAF2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132619.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:004C35AD4677B8D91D3609B2429E947709BEC244
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132635.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ungoogled Chromium 119.0.6045.199-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132639.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Windows Repair (All In One) 1.9.3 + Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132640.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ LibreWolf 120.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132642.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Calculate Linux 13.0 [x86-64] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132653.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SRWare Iron 118.0.6000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132658.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ PrivaZer 4.0.80 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132666.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132682.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132684.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Listen Audiobook Player v5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132691.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132693.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Photo Studio PRO v2.7.1.2163 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132700.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Sandboxie plus 1.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132703.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ PictureThis - Plant Identification v3.71 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132704.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:7BC68C491EDFAFCF9EAB007BE2D5EE84CB169BC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132706.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:76B89F21A722BE59116A673284AFEAE66A83E835
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132710.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sandboxie 5.67.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132715.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132721.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132732.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ New year wallpapers 2013 (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132734.jpg" />
 </div>
 
 

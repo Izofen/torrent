@@ -1,3 +1,79 @@
+###  Публикация: 469057   (96982) от 17.03.2012
+
+Эллери Квин | Приятное и уединенное место [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2008Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9306E9DAE831D08A846194EA43C8817EB07BAF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469495   (96984) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96984.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+Название: Sexy Girl Wallpapers Pack 35
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469049   (96985) от 17.03.2012
+
+Эллери Квин | Последняя женщина в его жизни [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2008Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313F8A77BCE5C7979C79A7D147787B8392BCE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469066   (96986) от 17.03.2012
 
 Мисс Никто / Miss Nobody (2010) DVD9
@@ -6,7 +82,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96986.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96986.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96987.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96988.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96989.jpg" />
 </div>
 
 
@@ -115,7 +191,7 @@ VA - Woodstock One and Two (1970-1971) [FLAC|Lossless]<Rock, Blues-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96991.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96991.jpg" />
 </div>
 
 
@@ -148,7 +224,7 @@ VA - Woodstock One and Two (1970-1971) [FLAC|Lossless]<Rock, Blues-Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96995.jpg" />
 </div>
 
 
@@ -172,7 +248,7 @@ magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96998.jpg" />
 </div>
 
 
@@ -200,7 +276,7 @@ magnet:?xt=urn:btih:B45EAF3C7D4A643E46BFE8923F527734637BB82A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96999.jpg" />
 </div>
 
 
@@ -228,7 +304,7 @@ magnet:?xt=urn:btih:BCFB9959A1EB68A7F66BE399813AA599073BA5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97001.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97002.jpg" />
 </div>
 
 
@@ -284,7 +360,7 @@ magnet:?xt=urn:btih:8E8712398B969B301F4C95EEBDA435C7EE7B8A8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97004.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97004.jpg" />
 </div>
 
 
@@ -308,7 +384,7 @@ magnet:?xt=urn:btih:8E8712398B969B301F4C95EEBDA435C7EE7B8A8F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97005.jpg" />
 </div>
 
 
@@ -332,7 +408,7 @@ VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97008.jpg" />
 </div>
 
 
@@ -365,7 +441,7 @@ Opera Diabolicus - 1614 (2012) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97009.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ magnet:?xt=urn:btih:DF73442E1963F8C0E659E79C89DDC5D79829D1A7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97012.jpg" />
 </div>
 
 
@@ -420,7 +496,7 @@ magnet:?xt=urn:btih:C0BBFF7F9F5E6AC1C0A8F0BDAB3E7BF654B66C39
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97013.jpg" />
 </div>
 
 
@@ -448,7 +524,7 @@ Small Town Terrors: Livingston (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97014.jpg" />
 </div>
 
 
@@ -472,7 +548,7 @@ magnet:?xt=urn:btih:1639BCBAC1D301480529F003C4381D4094D3D6E2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97015.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ magnet:?xt=urn:btih:EAB3BD3EE6A7FD8F37E76875D2E69526909E03EF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97017.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97018.jpg" />
 </div>
 
 
@@ -553,7 +629,7 @@ magnet:?xt=urn:btih:39DDC51C872610B75BD48C4294AA88F05452E4AB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97019.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97019.jpg" />
 </div>
 
 
@@ -579,7 +655,7 @@ magnet:?xt=urn:btih:39DDC51C872610B75BD48C4294AA88F05452E4AB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97020.jpg" />
 </div>
 
 
@@ -603,7 +679,7 @@ magnet:?xt=urn:btih:CD0122DD310C9FF11E1172F7784C77F3749FF7DF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97021.jpg" />
 </div>
 
 
@@ -614,96 +690,6 @@ magnet:?xt=urn:btih:CD0122DD310C9FF11E1172F7784C77F3749FF7DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0945BA9FAF795F69373DCD97D4F0E3EEDEA3ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468425   (97023) от 17.03.2012
-
-Children Of Nova - Impossible Landscape (2012) [FLAC|Lossless]<Progressive Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erratic (3:45)
- 02. Kaleido (4:17)
- 03. Impossible Landscape (3:32)
- 04. Moments of Clarity (4:29)
- 05. Feel Alive (4:08)
- 06. First Signs (3:49)
- 07. What Do You See? (3:05)
- 08. The Troubled Soul (2:26)
- 09. This Graceful Tragedy (3:34)
- 10. Silhouette (3:39)(   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469054   (97025) от 17.03.2012
-
-Любовь с риском для жизни / La chance de ma vie (2010) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97025.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Жюльена серьезная проблема. Он прекрасный консультант в брачных вопросах, но ни одна женщина не остается с ним дольше, чем на две недели. Он приносит им несчастье. Не абстрактную неудачу, а вполне конкретное несчастье: его женщины или попадают в больницу несколько раз в неделю, или у них рушится карьера, или они ссорятся навсегда со своими близкими. Джоанна убедится в этом на собственном опыте. В день, когда их пути пересеклись ее карьера находилась на взлете, ее личная жизнь наконец наладилась… Все это может очень быстро измениться.Жанр: Комедия, МелодрамаРежиссер: Николя КюшАктеры: Вирджиния Эфира, Франсуа-Ксавье Демезон, Армель Дойч, Рафаэль Персонас, Томас Н’Гиоль, Брижит Роюан, Ив Жак, Мари-Кристин Адам, Эли Семун, Франсис Перрен...Перевод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:27:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468383   (97030) от 17.03.2012
-
-VA - Turkish Hits. Жаркие хиты из Анталии (2008) [MP3|112 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97030.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:17] 01. Tarkan - Dedikodu
-[04:41] 02. Demet Akalin - Bebek
-[04:28] 03. Arkin Celik - Serden Gectim
-[04:39] 04. Gokhan Ozen - Tovbeliyim
-[03:52] 05. Betul Demir - Baska Bir Sey
-[03:46] 06. Gulzen - Muhtelif Zamanlarda
-[03:41] 07. Yildiz Tilbe - Bn Seni Var Ya
-[04:20] 08. Kemal D.Hande Yener - Bir Yerde
-[04:48] 09. Tan - Sozumu Tutamadim
-[03:34] 10. Mustafa Sandal - Indir(   Читать дальше...   )2008Жанр: PopПродолжительность: 13:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9A5FEEC5B0CAD2155877BA50A6C2C55E6177B1
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1693135   (122018) от 19.01.2024
+
+VidCoder 9.18 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122018.jpg" />
+</div>
+
+
+###  Подробнее
+
+VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake.Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F9F0B0DC4233D90F6AFD77FEA0443800B705E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693051   (122019) от 19.01.2024
+
+Beyond Compare 5 for Mac 5.0 beta [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальность цифровых файлов - они копятся. И у пользователей, как правило, скапливаются одни и те же файлы снова и снова. Так как же вы узнаете, что два огромных файла действительно одинаковые, прежде чем удалить один из них?
+Есть один инструмент, который поможет вам устранять дубликаты, объединять изменения из нескольких источников и поддерживать синхронизацию каталогов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2024Разработчик: © 2021 Scooter Software, Inc.Поддерживаемая ОС: Mac OS X 10.11 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E8188F0A0948E245308CB8EFE9DF18805F0EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693095   (122020) от 19.01.2024
+
+Клуб / El Club / The Club (2015) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо католических священников на пенсии живут в уединённом доме на окраине небольшого чилийского пляжного городка под присмотром бдительной смотрительницы. Им не разрешается общаться с горожанами, и выходить на улицу разрешается только ранним утром и поздней ночью. Их единственное хобби - разводить скаковых собак и участвовать в соревнованиях... Их распорядок (   Читать дальше...   )Производство: Чили / FabulaЖанр: драма, детективРежиссер: Пабло ЛарраинАктеры: Альфредо Кастро, Роберто Фариас, Антония Сехерс, Марсело Алонсо, Хайме Вадель, Алехандро Гойк, Алехандро Сивекинг, Хосе Соза, Франсиско Рейес, Диего МуньосПеревод: любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: русские (creo140), английскиеПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7E821CF22F035504DB0DA5749B2B5AAC525438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693081   (122021) от 19.01.2024
 
 Пикник / Pikunikku / Picnic (1996) BDRip [H.264/720p] [DVO]
@@ -6,7 +79,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122021.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Opera Crypto Browser 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122022.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:0CE1E862BA1363D217E1071D939F28C6590834B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122023.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:F51C610F540E3C7A41C90BF85BC16E9DF86F78CC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122024.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:CC3C1CA3C9358D53D8698C791D7EED4547BD9631
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122025.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Opera GX 106.0.4998.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122026.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:8CB144680EC4A6044BF4845A32CFA29129D2CEFF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122027.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:2BCB1FB71D899CCACAB63D50437C834958CEA7C2
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122028.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Den Harrow - The Best Of Den Harrow (1989) [OGG Vorbis|480 Kbps] <Electronic, It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122029.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ magnet:?xt=urn:btih:16D45BC23AC532D1629EF4AEB5F76F465A3A74FF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122030.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ Den Harrow - Day By Day (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122031.jpg" />
 </div>
 
 
@@ -281,7 +354,7 @@ magnet:?xt=urn:btih:A2FD75DA61D57C86B0BB7C87D944645DC1883FF0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122032.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ VA - Black Hole Trance Music 01-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122033.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ Telegram Desktop 4.14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122034.jpg" />
 </div>
 
 
@@ -359,7 +432,7 @@ magnet:?xt=urn:btih:C251BFF0B4CDDC9DCCBABDF6322E7A32A9664132
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122035.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122036.jpg" />
 </div>
 
 
@@ -408,7 +481,7 @@ magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122037.jpg" />
 </div>
 
 
@@ -432,7 +505,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122038.jpg" />
 </div>
 
 
@@ -456,7 +529,7 @@ Calibre 7.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122039.jpg" />
 </div>
 
 
@@ -480,7 +553,7 @@ FileOptimizer 16.50.2809 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122040.jpg" />
 </div>
 
 
@@ -505,7 +578,7 @@ HiBit System Information 2.1.20 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122041.jpg" />
 </div>
 
 
@@ -529,7 +602,7 @@ SeaMonkey 2.53.18.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122042.jpg" />
 </div>
 
 
@@ -553,7 +626,7 @@ magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122043.jpg" />
 </div>
 
 
@@ -564,81 +637,6 @@ magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F7B3DE83B9333A468342AD62436A781B4C4C35C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693112   (122044) от 19.01.2024
-
-Green Day - Saviors (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American Dream Is Killing Me (3:06)
-02. Look Ma, No Brains! (2:04)
-03. Bobby Sox (3:44)
-04. One Eyed Bastard (2:53)(   Читать дальше...   )Жанр: Punk rock, Alternative RockПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE303B601D58138BE33586F7FD0E40CC9F27951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693078   (122045) от 19.01.2024
-
-Fort Firewall 3.10.13 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242F659A013C9CCB422B41D36A23DA9DCBFDF6FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693114   (122046) от 19.01.2024
-
-Chromium 120.0.6099.225 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9280CFB86B3C30B4C905F8940676FB1DD356AA
 ```
 
 

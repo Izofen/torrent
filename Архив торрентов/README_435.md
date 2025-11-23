@@ -6,7 +6,7 @@ Melanie Fiona - The MF Life (Deluxe Edition) (2012) [MP3|320 кб/с]<Soul, Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98373.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:8D7D3917D5B71438900022157B536E62359DD825
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98376.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Perfect Together Dreams (2012) [MP3|320 кб/с]<Trance, Progressive Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98378.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:D5B6F54A34A00071D4EC7AE3C3C891DACA94CFE8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98379.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Adam Beyer - Drumcode 080 - 087 (2012) [MP3|256 кб/с]<Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98381.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Eastwood - North-Eastern Massive (2012) [MP3|320 кб/с]<Atmospheric Dark / Pos
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98385.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98387.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98387.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98388.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:6B2EDDB6E3D5668AE4471A5835ED63C0DE04CABF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98389.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:DD956DA9D3F619C014DBAB1146CF2AC9A76F04F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98390.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A2A7611EA38B0228B86B867013A2D56FAB1922F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98391.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Mega Bounce! Spring (2012) [MP3|320 kbps]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98392.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:6858AFB91FFB53EE0755D1EA4A376CCBDBE603A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98393.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98393.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6858AFB91FFB53EE0755D1EA4A376CCBDBE603A1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98394.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:73BB84E13A3367463DF9B4C670ED3E359309605E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98395.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:56D894F675304B5211766A1F35A80FE6552B2F03
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98396.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:5B4321A26A1038E785BC62FE68B5F7A23CD07AA6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98398.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Isis - Live VI (16/11/2007) (Released: 14 Feb 2012) [MP3|256 кб/с]<Post-Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98399.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:9C11D60249203F20682B808EC26180AF6F7B1D46
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98400.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:8BB3F4FDE97160A909CDFDFFC33AFF72CF250962
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98401.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Memoira - Memoira (2008) [FLAC|Lossless]<Gothic Metal,Melodic Metal (Female Voca
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98404.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98404.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Fjorsvartnir - Legions of the north (2012) [MP3|320 кб/с]<Melodic Black Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98405.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:302F3F570B252021492CD6986455577CCBA219D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98408.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:44C52C23EA89452190D60C2C8CFE3C36A3569630
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98409.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:A5CA6436BA1DDBF77F662F45385CFC83604E18A5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98411.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Fading Waves - The Sense Of Space (2011) [MP3|320 кб/с]<Progressive Sludge / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98413.jpg" />
 </div>
 
 

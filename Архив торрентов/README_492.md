@@ -6,7 +6,7 @@ WinToUSB Technician 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera One 109.0.5097.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109884.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FolderSizes 9.6.483 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109885.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 124.0.6367.156 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109886.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lucky Patcher 11.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109891.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Opera GX 109.0.5097.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109892.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ IObit Uninstaller Free 13.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109893.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Google Chrome 124.0.6367.156 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109906.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PotPlayer 240509 (1.7.22222) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109910.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ USB Device Tree Viewer 4.2.5.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109913.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Opera One 109.0.5097.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109914.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Surge XT 1.3.2 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109915.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Topaz Photo AI 3.0.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109933.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinTools.net Premium 24.5.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109936.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Icecream Screen Recorder PRO 7.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109983.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ n-Track Studio Suite 10.1.0.8667 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109987.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Image Uploader 1.4.0 Build 5141 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109992.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Vivaldi 6.7.3329.26 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109993.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Skype 8.119.0.201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110002.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Slimjet 43.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110003.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Icecream Video Editor Pro 3.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110007.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Process Lasso Pro 14.0.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110009.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wise Care 365 Pro 6.7.2.645 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110012.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FanControl V189 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110014.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Skype 8.119.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110015.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ HDCleaner 2.071 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110017.jpg" />
 </div>
 
 

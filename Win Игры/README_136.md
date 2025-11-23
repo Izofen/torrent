@@ -6,7 +6,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38885.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38886.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38936.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pure Rock Crawling (2018) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38965.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Devilated (2021) [Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38968.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39017.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39019.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39022.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39054.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39056.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39111.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Terraformers (2022) [Ru/Multi] (1.5.30/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39116.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39121.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39123.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39131.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39135.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39145.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39148.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.18.1-f3/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39169.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39200.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39204.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39205.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39208.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Great Rebellion (2024) [Multi] (1.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39219.jpg" />
 </div>
 
 

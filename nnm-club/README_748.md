@@ -6,7 +6,7 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:270996B755A343CEE59699354D968B3324CFE765
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19773.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19774.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19775.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:615CC725E1B1C8C56DBCDCE39840434B350CF9E6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19776.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19777.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ MediaInfo 25.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19778.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:46143D7D67E2AF9BBCA94DC3B5F63C1E1357B556
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19779.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:567D39D99640975EC8C1A92EB1C1946E16D3AEF1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19780.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:53CA8B396C9A9E533A029FA76E398D926364275B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19781.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ OCCT 14.0.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19782.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:64F9D4AAF6F8AFEF0384826F581E311E4CB82301
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19783.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Douglas Comer | Operating System Design: The Xinu Approach. 3rd Edition (2025) [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19784.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E0F03FDDCEA668CE2C55AA14FD8352E7526B78B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19785.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MediaHuman YouTube Downloader 3.9.11 (2904) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19786.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:CBB8D8F02FDC0BD02783841410B6A19FE903C7FD
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19787.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7:2369) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19788.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:99550B93F8AA7B557C7D9C470641D97F21CDF259
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19789.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometr
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19790.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Gary Moore - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19791.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:5F555A328806D00EE6142B7C403AD8B426F6F902
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19792.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:57F9CE85F8205D2BFE6AA5BB8DD0BE615588CFD9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19793.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:83D82E10824336B5D45EA907148216B344B4101C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19794.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:47F3B77784A517BC08C7AA7E4D302069F7BF8783
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19795.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:EDA3E9A5EF11CCCD26255737B214834447716439
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19796.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Tor Browser Bundle 14.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19797.jpg" />
 </div>
 
 

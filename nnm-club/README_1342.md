@@ -6,7 +6,7 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35245.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E33C3063FAC00E1A64C6CDC5FC1113F502D37E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35246.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RustDesk 1.3.4 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35247.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FEE5CB3BED12A078B4F4E65D9F63AFC49778570B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35248.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0414D1524939F17590D3039F8F680E63980DE6A9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35249.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Display Driver Uninstaller 18.0.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35250.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A909E01E88BDF989D26CB9DC6FB84CBD910C9B22
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35251.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BC4CB36B5F7311BCEDAAA4703AE2640C03D6E982
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35252.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1E7373E1E416780EAA78293A104CBAA233709B74
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35253.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:B9EBC2029514DB1C139937FB010200B495EDE181
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35254.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Jigsawscapes® - Пазлы v3.6.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35255.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:54C5A6247587C8D46FCE03EB8528F3DA6BA8E157
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35256.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35257.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AnyDesk 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35258.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ JetBrains CLion 2024.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35259.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:BC9D9337FA2B40D17DF7D8247ACEEE1430E92675
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35260.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:99EB96B4DB5A3BF1B98CD3A300EA907DF20A8A16
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35261.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C2F6A4133FFFD80951CE0F3F4667D43AA7222F43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35262.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.25849S/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35263.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35264.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35265.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Topaz Video AI 6.0.0.0 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35266.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:353D822FBD8FFB76831A855FD0E9724757C4196D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35267.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:9545675A7C8BE9A6D837CEE7D6023A2F76152B1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35268.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35269.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35270.jpg" />
 </div>
 
 

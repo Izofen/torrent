@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69674.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:344E6537A94D7579B8C1965F81AA3AE1812B2B41
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69675.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - City Skyline: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69676.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69677.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2CA624D26F56DE7ACE381FF185876403182D1A9E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69678.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69679.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:20A25D6608682D61C2ED503BB6E213BE4AD69881
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69680.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Ease & Flow: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69681.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Photo Mate R3 v4.0.4 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69682.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:654F0DA6C085D648B06F5903F1E7DBFE84E66594
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69683.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:5261177A0211C073C1604CA10088397463013D02
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69684.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:C52D8C8C1F1CE1218187B6B2D06B37BC4B264989
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69685.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69686.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:45EE13011542BE05621C689CDF1FCCA55B55DD3A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69687.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:87BDA6D65466E9EE667439CE701B0CF0B2E46DFB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69688.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:7364CDE2BE418060BFA0AC1F4EA0AC5FC73DECBB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69689.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2625246E6611635385783ACC27A6DFE5E81C7FD3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69690.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Surmachina - Хождение за три моря (2025) [MP3|~245 Kbps (V0)] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69691.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:19994F911CE4D1262C2A1207086C083C6745C1D4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69692.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:75B1320BE243B93C461068D8C3B307998CB0D40F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69693.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Avatar Of Hate - Necrotic Awakening (2025) [MP3|320 Kbps] <Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69694.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Roadrunner United - The Concert (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69695.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Telegram Desktop 5.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69696.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:858E569BFC10B5445D52F78101EE23C1498E695E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69697.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ TikTok Private Plus v39.0.5 Mod by TikTok + Plugin Update [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69698.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:38C33DCD13FA2CD00E4F242905ED7076BAAD2061
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69699.jpg" />
 </div>
 
 

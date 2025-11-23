@@ -6,7 +6,7 @@ Duplicate Cleaner Pro 5.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58813.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58830.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BananaVisualLibraries 1.0.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58855.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Soft Organizer Pro 9.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58856.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ TikTok 34.4.3 Mod by Dmitry Nechiporenko + Plugin 1.34 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58857.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Double Commander 1.1.13 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58858.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58859.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Firefox Browser 125.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58867.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ YT Downloader 9.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58875.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Glary Utilities Pro 6.9.0.13 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58876.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ XYplorer 25.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58878.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:652F134E8FF3614AF979919EAF6C35BCF956EE65
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58883.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NirLauncher Package 1.30.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58887.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Absolute Uninstaller 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58892.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Glarysoft Malware Hunter PRO 1.183.0.804 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58898.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ uTorrent Pro 3.6.0 Build 47062 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58911.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Aiseesoft FoneLab for Android 5.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58912.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ DxO PhotoLab Elite 7.6.0 build 189 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58917.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:600D39F7FF771971CADFE07924F35B9B96BE45A2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58928.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Malwarebytes Windows Firewall Control 6.11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58931.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58951.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Duolingo: изучай языки 5.147.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58959.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Pencil Photo Sketch : Drawing v2.0.78 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58966.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Textra SMS v4.72 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58969.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Horary Chart / Астрология: Хорарная Карта v3.1.2 [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58971.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Soul Browser 1.4.15 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58973.jpg" />
 </div>
 
 

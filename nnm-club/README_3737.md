@@ -1,3 +1,79 @@
+###  Публикация: 1700722   (116844) от 18.02.2024
+
+Stardust - Kingdom of Illusion (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War (4:44)
+02. The Fire (3:36)
+03. Losing Me (5:01)
+04. Sacrifice (3:37)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71845A64FFD0E9A4D91E12350E14F4CC93280F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700729   (116845) от 18.02.2024
+
+BusyContacts 2024.1.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116845.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2007-2024 Busy AppsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B502BD91A873516C91F794C63B72B1D31FEE8A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700839   (116846) от 18.02.2024
+
+Кукла для избалованной дочери / The Spoiled Darling's Doll (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капризные дети это всегда фу-фу-фу! И если родители обожают свое дитя и считают её просто ангелом, то у прислуги совсем иное мнение на этот счет. И нет никакой управы на неё! И никто не сможет исправить ее скверный характер? А если применить волшебство?Производство: США, Thanhouser Film CorporationЖанр: короткометражный, драма, фантазия, немое киноРежиссер: нет сведенийАктеры: Хелен Бэджли, Мари Элайн, Дэвид ТомпсонПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D992DC97F11CDE957C91CF544785836A4CF1D6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700800   (116847) от 18.02.2024
 
 Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
@@ -6,7 +82,7 @@ Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116847.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116848.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116849.jpg" />
 </div>
 
 
@@ -87,7 +163,7 @@ Desktop Stickers 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116850.jpg" />
 </div>
 
 
@@ -112,7 +188,7 @@ For I Am King - Crown (2024) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116851.jpg" />
 </div>
 
 
@@ -139,7 +215,7 @@ Swanee - Bushido (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116852.jpg" />
 </div>
 
 
@@ -166,7 +242,7 @@ Photo Studio PRO v2.7.3.2306 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116853.jpg" />
 </div>
 
 
@@ -190,7 +266,7 @@ magnet:?xt=urn:btih:6C221EF944AAAB00678D0EA30574939F102F13E5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116854.jpg" />
 </div>
 
 
@@ -216,7 +292,7 @@ Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116855.jpg" />
 </div>
 
 
@@ -243,7 +319,7 @@ U.F.O. - Covenant (2000) Remaster, 2024, Cherry Red Records [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116856.jpg" />
 </div>
 
 
@@ -270,7 +346,7 @@ S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116857.jpg" />
 </div>
 
 
@@ -297,7 +373,7 @@ magnet:?xt=urn:btih:E889036A502C790614EB27D58FE25E548EF2DC89
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116858.jpg" />
 </div>
 
 
@@ -321,7 +397,7 @@ magnet:?xt=urn:btih:77C669DF2949981AA8CE8C42BF3A9653802DD93C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116859.jpg" />
 </div>
 
 
@@ -345,7 +421,7 @@ magnet:?xt=urn:btih:D8A28FEE09699AD3EC1C1D232F906B01334CDC62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116860.jpg" />
 </div>
 
 
@@ -369,7 +445,7 @@ magnet:?xt=urn:btih:B309B0C5796F7DD7220407389AED7BB51DE4991E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116861.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116862.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ magnet:?xt=urn:btih:6CF1D0CA8298055EC7518EA293073AD495642BB6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116863.jpg" />
 </div>
 
 
@@ -448,7 +524,7 @@ VA - Breakin' News: 10 Years of Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116864.jpg" />
 </div>
 
 
@@ -475,7 +551,7 @@ magnet:?xt=urn:btih:6F17A97FD0C778EAB5D10E035B62480D4AC53F2D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116865.jpg" />
 </div>
 
 
@@ -499,7 +575,7 @@ magnet:?xt=urn:btih:B2BB11E34EB5077AF12154969F2BA067C61B52C2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116866.jpg" />
 </div>
 
 
@@ -526,7 +602,7 @@ Heart Line - Rock 'n Roll Queen (2023) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116867.jpg" />
 </div>
 
 
@@ -553,7 +629,7 @@ iTranslate 1.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116868.jpg" />
 </div>
 
 
@@ -579,7 +655,7 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116869.jpg" />
 </div>
 
 
@@ -593,85 +669,6 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6D5371AB2DEBCB27D242EEB4AB1A516E8AD243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700730   (116870) от 18.02.2024
-
-Газета | Невыдуманные истории №6 (410) (февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116870.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F052C45EFD0157719337AA75B93EAADBC6A94F8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700779   (116871) от 18.02.2024
-
-Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starwater [00:07:58]
-02. Thinking of M [00:04:45]
-03. Acidalia [00:07:02]
-04. Asterisms [00:11:06](   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFC5C437B3E540D81F686BD95398C1E8F70E830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700508   (116872) от 18.02.2024
-
-VA - Blind Raccoon & Nola Blue Collection, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi MacDonald - Ballad of Pat Hare (feat. The Reverend Shawn Amos) (3:41)
-02. Anthony Geraci - Tidal Wave (4:32)
-03. kip london - My Baby Loves Me Like a Hurricane (2:25)
-04. Douglas Avery - Survival (feat. Franck L. Goldwasser) (5:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD16082B5287BCF20E9D097726D656804EAD500
 ```
 
 

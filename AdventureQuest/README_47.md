@@ -6,7 +6,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124724.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124796.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124813.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125221.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125488.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125512.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125815.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125949.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126572.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126842.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127013.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128811.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128891.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128997.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130648.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132161.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132824.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132863.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134053.jpg" />
 </div>
 
 

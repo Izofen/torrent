@@ -1,3 +1,78 @@
+###  Публикация: 1756052   (103557) от 19.10.2024
+
+VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Löhr - Everybody (Electro Swing Mix) (3:40)
+02. The Soulmate Project - The Addams Family (Electro Swing Mix) (2:54)
+03. Glenn Gatsby - Somebodys Watching Me (Electro Swing Mix) (2:41)
+04. Ashley Slater - Ghostbusters (Spooky Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB036290BC0AFBB7C6E343BE3D5B8EC34C59911E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756021   (103558) от 19.10.2024
+
+Kekkon Yubiwa Monogatari | Сказание об обручальных кольцах [2024, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сато - старшеклассник, влюбленный в свою лучшую подругу Химэ, неземную красавицу из другого мира. Когда она возвращается на свою родину, чтобы выйти замуж, Сато не раздумывая отправляется за ней и срывает свадьбу. Химэ решает поцеловать его вместо своего жениха, что по местным законам связывает их с Сато магическими узами брака! Но она - принцесса Кольца Света, а (   Читать дальше...   )Производство: Студия Staple Entertainment, ЯпонияЖанр: приключения, фэнтези, романтика, эттиРежиссер: Такаси НаояЯзык озвучки: ЯпонскийСубтитры: Русские (CrunchyRoll)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC26C5FC39E7AA66A4FCBB338C19EBF68EE38B57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756128   (103559) от 19.10.2024
+
+Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом стремительном роуглайте вы станете Ember Knights, последней искрой надежды для погрузившейся в хаос вселенной. Безумный чародей Праксис похитил жизненные силы Горящего древа и бежал через четыре Начальных Мира, попутно заразив их своей скверной. В одиночку или в совместном режиме до 4 игроков используйте мощное оружие и навыки, чтобы прорубиться через орды (   Читать дальше...   )Тип издания: RepackРазработчик: Doom TurtleЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755992   (103560) от 19.10.2024
 
 Саша Фишер | Князь Никто (Книга 1) (2024) [MP3, Владислав Горбылев]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103560.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Red Giant - Red Giant (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103561.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:F982555891AA289BD207701F36D553CD056ABF84
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103562.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:CA69C0114F4F810476943045F75E2F3A19E14E25
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103563.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103564.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ VA - John Digweed - Live in (Stereo) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103565.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:A294F28D70324A8FF06BD3908F10C02BC58B66A1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103566.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103567.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:B9AE7B327E8A81D20A0F36EBA1EA44DED45E57C5
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103568.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ Photo Lab PRO v3.13.32 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103569.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ SnapEdit - AI photo editor v7.1.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103570.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:32C7F63A2685DD771DF4A31ADB5723D31A4FAE57
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103571.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:DB611CEE8BB1D550E8B855B6F26C75AFD40F1A48
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103572.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103573.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103574.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ magnet:?xt=urn:btih:E66E1244A287496371E818C3B5F3F06C7D5B2D8A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103575.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103576.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103577.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103578.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:7B4AF070D25D104057F77F2897B5504A50E8874A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103579.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103580.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:49329C1F8FC7898C2417D3A124D12F2FDA03BE87
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103581.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103582.jpg" />
 </div>
 
 
@@ -579,87 +654,6 @@ DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755847   (103583) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755849   (103584) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755856   (103585) от 18.10.2024
-
-Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Ashes of Deceit (1:47)
-02. Aflame the Cold (4:48)
-03. Oblivion (5:18)
-04. Symphony of Demise (4:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
 ```
 
 

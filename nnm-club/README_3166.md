@@ -1,3 +1,76 @@
+###  Публикация: 1765616   (101424) от 13.12.2024
+
+Реми Майснер. Желчно-невротическая беседа о вреде всяких революций. Часть 1-я (2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш уютнокухонный творческий коллектив смотрит и разбирает контрреволюционный ролик "Бездна. Как мы все потеряли. Империя без автомобилей." за авторством Стаса Асафьева.
+Вечно живой Ильич учит нас: один дурак может нагородить столько чуши, что и сто мудрецов устанут разбирать. Весь стасиковый цикл роликов О Вреде Революций мы разобрать не успели, ибо за (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, экономикаЯзык озвучки: РусскийПродолжительность: 05:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D65F0DD0809DEE935506841878A98B7C70E3C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765505   (101425) от 13.12.2024
+
+Лучшее рождественское представление на свете / The Best Christmas Pageant Ever (2024) WEB-DLRip  [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не готов к хаосу и сюрпризам, которые происходят, когда шесть самых непослушных детей городка срывают ежегодный Рождественский спектакль.Производство: США, Канада / Lionsgate, Media Capital Technologies, Kingdom Story CompanyЖанр: комедия, семейныйРежиссер: Даллас ДженкинсАктеры: Stanlee Arches, Ванесса Бенавенте, Мариам Бернштейн, Себастьян Биллингсли-Родригес, Kamal Chioua, Беатрис Шнайдер, Сара Констибл, Mason D Nelligan, Мэттью Лэмб, Joshua DownesПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765420   (101426) от 13.12.2024
+
+Журнал | Homebuilding & Renovating №1 (2025) [PDF][EN]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A07813088D812E3BC89CB9F80D67AA74FBAEA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765539   (101427) от 13.12.2024
 
 Periodic Table / Таблица Менделеева 2025 PRO v3.5.7 Mod by Balatan [Ru/Multi]
@@ -6,7 +79,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.7 Mod by Bala
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101427.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Aoki Honoo | Blue Flames | Холодное пламя (Синие огни) [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101428.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.2 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101429.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:48FED0C3D59959D61450F83DC6250304D44FBCC4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101430.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Reanimation inc / Скорая Помощь Inc v61 Mod by vadj [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101431.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:1E76489A4D1573DB02FA0F578EC980F38FE39FFB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101432.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ VA - Amazing New Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101433.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101434.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ The Offspring - Supercharged: Worldwide in '25 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101435.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ magnet:?xt=urn:btih:E348A28D041C721EC53CC6BF54CC93A7BFB78607
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101436.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ magnet:?xt=urn:btih:2CCF40992E638CCCACDFAA2998F2458B0F0DE0AB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101437.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ Bria Mobile: VoIP Softphone v6.18.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101438.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ DeWolff - Muscle Shoals (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psych, South
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101439.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ SOBA, Moussa Koita, Emile Biayenda - Fiman (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101440.jpg" />
 </div>
 
 
@@ -360,7 +433,7 @@ Terry Wilson Slesser feat. Back Street Crawler Band - Forever Blue (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101441.jpg" />
 </div>
 
 
@@ -387,7 +460,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101442.jpg" />
 </div>
 
 
@@ -414,7 +487,7 @@ Shyfrin Alliance - Upside Down Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101443.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ magnet:?xt=urn:btih:C18DEBA7ED449F49F602579FF56363F7A14B5837
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101444.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ John Popper - Zygote (1999) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101445.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:5E3682C13555235C236DCB8036784C120264451F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101446.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:3F26A17A5844135C1E0064BA84A477F2B6526064
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101447.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:415AA1D0CB605F96341C7EB1870693B7DBC28A63
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101448.jpg" />
 </div>
 
 
@@ -566,7 +639,7 @@ Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101449.jpg" />
 </div>
 
 
@@ -580,85 +653,6 @@ Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20B9D669FE21BA95C4D1BA1026D1EFBCC393502C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765231   (101450) от 11.12.2024
-
-Пэпо (1935) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый армянский звуковой фильм. По мотивам одноименной пьесы Габриэла Сундукяна.
-1870 год. Тифлис, армянский квартал. К скромной, работящей, красивой Кекел, сестре рыбака Пэпо, посватался торговец Дарчо. И для него было немаловажно, что как приданое, за девушкой дают 1000 рублей, которые были отданы несколько лет назад богатому купцу Зимзимову на хранение ее отцом, (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: драма, комедияРежиссер: Амо Бек-Назаров, Армен ГулакянАктеры: Грачья Нерсисян, Татьяна Махмурян, Давид Малян, Авет Аветисян, Амвросий Хачанян, Асмик Агопьян, Григор Аветян, Нина Манучарян, Армен Гулакян, Надежда ГеворкянСубтитры: отсутствуютПродолжительность: 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EACCE960BFBEBBEC68144DD6F7E2FC6212CFC26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765074   (101451) от 11.12.2024
-
-Wildstreet - Origins (I-II) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It [00:03:54]
-02. Poison Kiss [00:03:53]
-03. Cocked and Ready [00:03:58]
-04. Hot Lixx [00:03:09](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B2241AFD0315C2CA94019AD3102E4B11B34359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765171   (101452) от 11.12.2024
-
-Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock; Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джерри Фултон Кантрелл младший (англ. Jerry Fulton Cantrell Jr.; род. 18 марта 1966 года) — американский музыкант, основной автор песен, гитарист и вокалист группы Alice in Chains.1998 - Boggy Depot
-2002 - Degradation Trip
-2021 - Brighten
-2024 - I Want BloodЖанр: Hard Rock; GrungeПродолжительность: 05:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D119A60D7A3A103BDF8C22AC66A3ADAC6C7F0A6
 ```
 
 

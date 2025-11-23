@@ -1,3 +1,75 @@
+###  Публикация: 485670   (89876) от 21.04.2012
+
+[EN] Сущность / Nature (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет эротическую драму о молодой паре, которая пытается восстановить свою сексуальную страсть. После неудачного эксперимента с ролевыми играми они на неделю выбираются глубоко в лес для занятий сексом. Постепенно они осознают, что за ними следует некто, который наблюдает за интимными моментами их отношений. С этим преследователем все, что они намеревались сделать приобретает новый смысл, и они должны решить как далеко следует зайти, чтобы получить нужный результат. Насколько близко они позволят ему приблизиться к ним, и какова будет для них цена этого? Фильм исследует секс через моногамные отношения на фоне величественных лесов, окружающих живописные горы в штате Орегон. В конечном счете фильм является незабываемым путешествием в природу страсти.Жанр: ТриллерРежиссер: Джефф ПикеттАктеры: Людмила Ширяева, Райан Харпер Грэй, Джефф Пикетт, Лиззи Дэвис, Стивен КлейнПеревод: ОтсутствуетПродолжительность: 01:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26317E12FDC86305902318B0C6DB9246BE491573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486166   (89878) от 21.04.2012
+
+Формула 1. Сезон 2012. Этап 4. Гран-при Бахрейна. Квалификация (Эфир 21.04.2012) SATRip [ENG]
+
+>>След.
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автодром в Сахире, местечке, расположенном в 30 километрах от столицы Бахрейна Манамы, был построен за 16 месяцев и обошелся организаторам в 150 миллионов долларов. Спроектировал трассу Герман Тильке. Он же является автором малазийского трека «Сепанг» и он же приложил руку к перестройке немецкого «Хоккенхаймринга». В строительстве, которое велось местными компаниями при участии малазийской фирмы WCT Engineering, было задействовано более 3000 тысяч человек. В конструкции использовано 70 тысяч кубометров бетона и 8,5 тысяч тонн стали. Вдоль трассы выстроены защитные ограждения из 82 тысяч покрышек. Автодром может принять около 50 000 зрителей. По меркам автоспортивных комплексов международного значения это не так уж много, но для самого Бахрейна эта цифра означает семь процентов всего населения страны. Автодром в Бахрейне — это не только трасса для проведения гонок Формулы-1. Это комплекс из шести треков различной длины и конфигурации, включая прямую для соревнования дрегстеров и овал. Для сезона 2012 года трассе (   Читать дальше...   )Жанр: Спорт, автоспортТелекомпания: SkySportsПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605472AD7F33114974786451860FD74FE4C04534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485649   (89879) от 21.04.2012
+
+Рикер / Reeker (2005) [1080p] HDTV
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недобрый час компания студентов оказалась в заброшенном мотеле под названием «На полпути». Они и не подозревали, что в самом деле застряли «на полпути»: на перепутье между светом и тьмой, ночью и днем, живыми и мертвыми. Отрезанные от всего мира, они попали в ловушку к кошмарному, издающему невыносимый тошнотворный запах монстру, открывшему на них охоту. Чтобы дожить до утра, им нужно не только узнать, что же такое РИКЕР, но и понять одну вещь: если хочешь жить, не надо бояться смерти…Жанр: Ужасы, ТриллерРежиссер: Дэйв Пэйн / Dave PayneАктеры: Девон Гаммерсолл, Дерек Ричардсон, Тина Иллман, Скотт Уайт, Ариэль Кеббел, Майкл Айронсайд, Марша Страссман, Лес ДжэнкиПеревод: Профессиональный (полное дублирование)Продолжительность: 01:27:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485999   (89880) от 21.04.2012
 
 Small Town Terrors: Livingston / Террор в городке Ливингстон (P) [Ru] 2012
@@ -6,7 +78,7 @@ Small Town Terrors: Livingston / Террор в городке Ливингст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89880.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:725AC5190B362CCAFCF10610A948613243B3F8E8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89884.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:725AC5190B362CCAFCF10610A948613243B3F8E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89886.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89889.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:28F3F729BC64DD2C1A7DDB9D339013A88BE3D89E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89890.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:28F3F729BC64DD2C1A7DDB9D339013A88BE3D89E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89891.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:28F3F729BC64DD2C1A7DDB9D339013A88BE3D89E
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89892.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:F995A30EFA6A05A964049F1F5C2B47D66EFD8D05
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89896.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:F995A30EFA6A05A964049F1F5C2B47D66EFD8D05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89898.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:6F40BB80219A67547830F106650A627076978736
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89899.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:FA362EEBAF61E9FB97276A6C25B1E1D33A7DF3BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89901.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89903.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89911.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ magnet:?xt=urn:btih:5438477BACA90E18A3F762E3AD349E5BA9115BF9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89915.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:C5E45FFEE7109E3B398136478AE287EE5DD775C8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89919.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ Mecha World (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89920.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:382BB2E6B1C7BA924D350D258397B373D3BAC92E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89921.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:78E3E31C9B218C0F704E4B24F197D38F12600832
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89923.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ magnet:?xt=urn:btih:E6F0092EE4EA0867F3C4A230773666DD33A4B964
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89924.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89926.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ magnet:?xt=urn:btih:90629F9042BB703AD73A23A492E0151BEEAE8B23
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89928.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ Tom Clancy's Rainbow Six 3: Complete Edition + Raven Shield 2.0 [En] (RePack) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89930.jpg" />
 </div>
 
 
@@ -561,83 +633,6 @@ Tom Clancy's Rainbow Six 3: Complete Edition + Raven Shield 2.0 [En] (RePack) 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627C5267B81903B7280EDF4DCE95CDD8DC5A3560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484801   (89931) от 21.04.2012
-
-Зелёная миля / The Green Mile (1999) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89931.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам произведения Стивена Кинга "Зеленая Миля".
-
-Обвиненный в страшном преступлении, Джон Коффи оказывается в блоке смертников тюрьмы «Холодная гора». Вновь прибывший обладал поразительным ростом и был пугающе спокоен, что, впрочем, никак не влияло на отношение к нему начальника блока Пола Эджкомба, привыкшего исполнять приговор.
-
-Гигант удивил всех позже, когда выяснилось, что он обладает невероятной магической силой…Жанр: Фэнтези, драма, криминал, детективРежиссер: Фрэнк ДарабонтАктеры: Том Хэнкс, Дэвид Морс, Бонни Хант, Майкл Кларк Дункан, Джеймс Кромуэлл, Майкл Джитер, Грэм Грин, Даг Хатчисон, Сэм Рокуэлл, Бэрри Пеппер, Джеффри ДеМанн, Патришиа Кларксон, Гарри Дин Стэнтон, Дэббс Грир, Ив Брент, Уильям Сэдлер, Пола Мэлкомсон, Брайан Либби, Брент Бриско, Гэри Синиз, Рэйчел Сингер, Гэри Имхофф, Тим Смит, Тодд ТомпсонПеревод: Профессиональный (дублированный)Продолжительность: 03:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6E07A5EBE571F2EAEBF2367A995B217F516D17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486245   (89932) от 21.04.2012
-
-Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, триллер, приключенияРежиссер: Брэд БёрдАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Пола Пэттон, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйЯзык субтитров: Английский, русский, украинскийПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485582   (89934) от 21.04.2012
-
-Platinum Hide IP 3.1.8.2 [Мульти/Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Platinum Hide IP 3.1.7.8 - программа служит для защиты вашей конфиденциальности, способом сокрытие вашего истинного IP- адреса, что приводит к тому, что вас будет невозможно отследить. Программа в автоматическом режиме настраивает прокси-сервер, и использует его для скрытия вашего IP адреса на вашем компьютере.
-Отличительной чертой программы является - маленький размер и очень удобное управление.Название программы: Platinum Hide IPЯзык интерфейса: (Multi/Rus)
-
-## Скачать торент
-```bash
-нет
 ```
 
 

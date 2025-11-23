@@ -1,3 +1,183 @@
+###  Публикация: 1516954   (164479) от 13.12.2021
+
+Vangarde - The Best Of Lounge: The Orange Lounge Suite (2001) [FLAC|Lossless|tracks + .cue] <Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syrian Swing (4:34)
+02. Pure Magic (feat. XXL) (4:11)
+03. Lounge Suite (3:59)
+04. Future Vision (5:24)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B466D5564EA7D7814CD288157F2C6E0EF198C6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673696   (164480) от 02.11.2023
+
+Node Video - Pro Video Editor 6.8.4 Mod by PieMods [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Node Video - один из самых мощных видеоредакторов для мобильных устройств. Используя множество революционных функций, вы можете создавать невероятные эффекты, которые вы даже не могли себе вообразить! Профессиональный видеоредактор Node Video - это аналог Adobe After Effects, с богатыми возможностями для композитинга, покраски материала, Motion-дизайна.Тип издания: ProРелиз состоялся: 30.10.2023Разработчик: Shallway StudioПоддерживаемая ОС: Android 7.0+ (Только для ARM64)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C50C3C8A5CB22922B6492D15A1BF3F7F95E6238
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597482   (164481) от 16.12.2022
+
+Любовники (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь наладить личную жизнь, Саша, Лёша и Паша идут на групповую терапию для мужчин, пострадавших от женщин. Случайная встреча оборачивается гениальным планом — друзья решают помогать товарищам по несчастью, выводя коварных любовниц на чистую воду. Вот только они те ещё гуру отношений и понятия не имеют, как помочь даже самим себе.Производство: Россия / Революция ФильмЖанр: комедияРежиссер: Елена ХазановаАктеры: Павел Прилучный, Роман Курцын, Алексей Золотовицкий, Максим Виторган, Алёна Бабенко, Любовь Толкалина, Елена Муравьева, Наталья Чистякова-Ионова, Дарья Румянцева, Игорь ЯшанинПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F3D187CA6B600956B52ED6F39D07E0A20EB216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346109   (164482) от 18.12.2019
+
+VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ouzo Bazooka - Sleep Walk
+002. Hippo Campus - Bubbles
+003. Hodera - If You Want Me To
+004. Per Frost - Furious Machines(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597690   (164483) от 16.12.2022
+
+Аватар / Avatar (2009) DCPRip [H.265/2160p] [4K, SDR, 10-bit] [Расширенная версия]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейк Салли — бывший морской пехотинец, прикованный к инвалидному креслу. Несмотря на немощное тело, Джейк в душе по-прежнему остается воином. Он получает задание совершить путешествие в несколько световых лет к базе землян на планете Пандора, где корпорации добывают редкий минерал, имеющий огромное значение для выхода Земли из энергетического кризиса.Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: фантастика, боевик, драма, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Мишель Родригес, Джованни Рибизи, Джоэл Мур, Си Си Эйч Паундер, Уэс Стьюди и др.Перевод: ДублированныйСубтитры: Русские (полные, полные колоризованные, экстра-полные колоризованные, форсированные, форсированные колоризованные, форсированные стилизованные), английские (SDH, полные, форсированные)Продолжительность: 02:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A42C51937E846B1088C2C25624FA1186FE532A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517057   (164484) от 13.12.2021
+
+Wolftooth - Blood & Iron (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahab (07:03)
+02. Hellespont (05:21)
+03. Blood & Iron (07:08)
+04. A King's Land (04:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BF6D25C7A56EBC0FDCDAA3C63E7FCCE620D411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431960   (164485) от 17.12.2020
+
+Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Danger (2:49)
+ 02. The Ghost of You and Me (3:11)
+ 03. The Struggle (4:05)
+ 04. Cold as Ice (3:28)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, ElectronicПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E794796BC495FB786A7B54DE096771845859CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673655   (164486) от 02.11.2023
 
 Иван Тургенев | Записки охотника (2003) [MP3, Вячеслав Герасимов]
@@ -6,7 +186,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164486.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ VA - Frozen Sounds: Techno Hypnotic Mix (2019) [MP3|320 Kbps] <Techno, Minimal, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164487.jpg" />
 </div>
 
 
@@ -60,7 +240,7 @@ OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164488.jpg" />
 </div>
 
 
@@ -84,7 +264,7 @@ CorelDRAW Graphics Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164489.jpg" />
 </div>
 
 
@@ -108,7 +288,7 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164490.jpg" />
 </div>
 
 
@@ -135,7 +315,7 @@ magnet:?xt=urn:btih:304E7A93143D329DB00976519237AF0A5D5DF22C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164491.jpg" />
 </div>
 
 
@@ -159,7 +339,7 @@ NoteBurner Spotify Music Converter 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164492.jpg" />
 </div>
 
 
@@ -183,7 +363,7 @@ FonePaw Android Data Recovery for Mac 5.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164493.jpg" />
 </div>
 
 
@@ -207,7 +387,7 @@ ProPaint -Image & Photo Editor for Mac 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164494.jpg" />
 </div>
 
 
@@ -231,7 +411,7 @@ Disk Analyzer Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164495.jpg" />
 </div>
 
 
@@ -256,7 +436,7 @@ magnet:?xt=urn:btih:B2B88AB64B9641C39B9D34E730760AE059E46E0B
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164496.jpg" />
 </div>
 
 
@@ -280,7 +460,7 @@ magnet:?xt=urn:btih:656C8B9D140548BBFC4BC56752FC4B583273D71F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164497.jpg" />
 </div>
 
 
@@ -307,7 +487,7 @@ magnet:?xt=urn:btih:67BAE72078EF983B3FA2599BE84169E84A04425C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164498.jpg" />
 </div>
 
 
@@ -331,7 +511,7 @@ Axxis - Monster Hero (2018) Japanese Edition, 2019 [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164499.jpg" />
 </div>
 
 
@@ -358,7 +538,7 @@ Veonity - Sorrows (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164500.jpg" />
 </div>
 
 
@@ -385,7 +565,7 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|image + .cue] <Modern Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164501.jpg" />
 </div>
 
 
@@ -412,7 +592,7 @@ magnet:?xt=urn:btih:4F6FFD63740278A81D8136B39AF0C97D74C5E2D3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164502.jpg" />
 </div>
 
 
@@ -436,7 +616,7 @@ magnet:?xt=urn:btih:155EEFC636D4D130AE424AF582D229DD30132A1C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164503.jpg" />
 </div>
 
 
@@ -460,7 +640,7 @@ magnet:?xt=urn:btih:6C734F196DDCE4484DDDCA4E7D18D18257635F46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164504.jpg" />
 </div>
 
 
@@ -471,183 +651,6 @@ magnet:?xt=urn:btih:6C734F196DDCE4484DDDCA4E7D18D18257635F46
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AD6F75628EC0E8D5FA8FA2A65DF46C980C8577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517056   (164505) от 13.12.2021
-
-Valentina Studio Pro 11.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF46E716F064348959E8F6FEA3F46BC0B60027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432200   (164506) от 17.12.2020
-
-Atlanta - Nugrybauti (2020) [MP3|320 Kbps] <Psychedelic Rock, Prog Rock, Jam Bands>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marabou Blues (08:10)
- 02. Honolulu Strut (11:36)
- 03. Deventer Kunstweg (07:22)
- 04. Dog Whistle Concert No. 5 in E minor (11:29)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Jam BandsПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563F2B643A2E8B7252C74C65E6A968CB4C3447F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346270   (164507) от 18.12.2019
-
-Александр Мирский - Семь Военных Песен (2009) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай, солдат (03:25)
-02. Ты победишь! (04:00)
-03. Прости нас капитан!(04:20)
-04. Я бы вернулся (03:24)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006C969EE6634C8BEDF0DC5813B4CDEDAB0A5C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432362   (164508) от 17.12.2020
-
-Any RecScreen 2.0.55 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any RecScreen - это простая в использовании утилита записи экрана для Mac, которая позволяет записывать происходящее на  мониторе в полноэкранном режиме или в настраиваемой области. Вы можете записать веб-камеру для создания видео «картинка в картинке», добавив веб-камеру в область записи. Также может быть записан звук в ваших видео с микрофона или системного звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5922812672832984D6099846B2B3864C1021465F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597515   (164509) от 16.12.2022
-
-Новый закон: в 2023 году Android-смартфоны сильно изменятся
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_164509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство промышленности и информационных технологий Китая приняла новый закон, согласно которому выпускаемые на территории страны смартфоны должны соответствовать новым требованиям. Речь идет о предустановленных программах.Теперь производители должны сделать так, чтобы пользователь мог удалить все приложения со своего девайса. В министерстве назвали программы, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673647   (164510) от 02.11.2023
-
-Иван Тургенев | Вешние воды (2022) [MP3, Владимир Левашёв]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: XIX век. Русская проза.
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860). Считается одним из классиков мировой литературы.
-
-Студия «АРДИС» предлагает вашему вниманию повесть Ивана Тургенева Вешние воды из ряда повестей-воспоминаний о прошлом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760C5F0DAE7B734FC4BD1353FD99F87049B2DE05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516993   (164511) от 13.12.2021
-
-Smooze 1.9.23 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 11.12.2021Разработчик: © 2021 Start BootstrapПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662EB6100E436A80731E461929398264F0DE52DB
 ```
 
 

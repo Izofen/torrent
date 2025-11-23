@@ -6,7 +6,7 @@ Firefox Browser 122.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EF Commander 24.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118977.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 4.14.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118983.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ WizTree Enterprise 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118984.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Video AI 4.1.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118989.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7AA4EDB464589D530006441B5E0E928D6CC489CD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118994.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Master PDF Editor 5.9.82 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118995.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ TreeSize Professional 9.1.1.1869 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118997.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Cockos REAPER 7.09 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119002.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Reg Organizer 9.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119003.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ TreeSize Professional 9.1.1.1869 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119006.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Imagine 1.4.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119007.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BE999EE418DB6F59391828FE4ABFACA5998CD6CA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119011.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:593A47D5CB11D15C38D62B639A40EB6E09A552A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119012.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mirillis Action! 4.39.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119021.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Glary Utilities Pro 6.6.0.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119022.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Reg Organizer 9.40 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119023.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Advanced Renamer 3.93.0 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119025.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:41276B44E290F1DBD98B7C956895B92D851D60E7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119032.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Boxy SVG 4.23.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119068.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Clearview X 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119074.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Bookends 14.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119084.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Scrutiny 12.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119087.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119088.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Glary Tracks Eraser 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119095.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Text Editor Pro 28.4.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119104.jpg" />
 </div>
 
 

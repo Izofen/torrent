@@ -1,3 +1,77 @@
+###  Публикация: 1630300   (237171) от 30.04.2023
+
+Soundly - Place it 1.0.1 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин Place it в Soundly Voice Designer был настолько популярен, что мы получили бесчисленное количество запросов на автономную версию для всех DAWS и наборов для редактирования — и мы прислушались!
+Place it позволяет вам эмулировать звук выбранного динамика и размещать его в одной из 40 различных сред - и все это на основе мастерски записанных импульсных характеристик (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FFBCF5B62207870E4492BE6E3B13551CED02B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630367   (237177) от 30.04.2023
+
+PSPaudioware - Lexicon PSP 42 2.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lexicon PSP42 — это высококачественный плагин для цифровой стереофонической задержки и фразового сэмплера, основанный на легендарном процессоре Lexicon PCM42, известном своей уникальной концепцией и отличительным звучанием.
+В версии 2 оригинальное видение Lexicon PSP42 было улучшено как в звуковой точности, так и в гибкости функций. В дополнение к пышному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5E47E0D5E9358DFDDD52C20860FE86F6F1CC99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630847   (237178) от 02.05.2023
+
+BDtoAVCHD 3.1.1 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237178.jpg" />
+</div>
+
+
+###  Подробнее
+
+BDtoAVCHD - бесплатная и простая в использовании программа, которая позволяет быстро создавать AVCHD-диски из Blu-Ray или HD MKV-файлов, получая на выходе данные готовые к записи на DVD5 или DVD9. Приложение сжимает видео без потери качества изображения, причем пользователь может самостоятельно задавать желаемый размер данных (4.7 Гб (DVD5), 8.5 Гб (DVD9), USB 4 (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35F7FD67A8CC3DFD023F570821D72C025ACD681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630193   (237276) от 29.04.2023
 
 Zynaptiq Plugins Bundle 04.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
@@ -6,7 +80,7 @@ Zynaptiq Plugins Bundle 04.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237276.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237276.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Zynaptiq - Orange Vocoder 4.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237774.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237774.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ Line 6 - The Metallurgy Collection 1.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237855.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237855.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Plugin Alliance & NEOLD - U2A 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237885.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237885.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ DMG Audio - All Plugins 2023.04.03 VST, VST 3, AAX, RTAS (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237965.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237965.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Ashampoo Music Studio 10.0.0.26 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237987.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237987.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Ashampoo Music Studio 10.0.0.26 Portable by Жека [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237994.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237994.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ CyberLink PhotoDirector Ultra 14.4.1619.1 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238129.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238129.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ BABY Audio - Crystalline 1.3.0 VST, VST 3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238267.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238267.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ AIR Music Technology - Ether 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238455.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238455.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ BABY Audio - IHNY-2 1.0.1 VST, VST 3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238549.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ Steinberg - Groove Agent 5 5.1.20 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238822.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238822.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ Greenfish Icon Editor Pro 4.2 + Portable (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238885.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ Adobe Prelude 2022 22.6.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238922.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238922.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ Xfer Records - Serum & SerumFX 1.35b1 Standalone, VSTi, AAX (x64/x86) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238936.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238936.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ Fuse Audio Labs Plugins Bundle 2.5.1 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238968.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238968.jpg" />
 </div>
 
 
@@ -398,7 +472,7 @@ Xfer Records OTT 1.37 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239186.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_239186.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ ArtRage 6.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239265.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239265.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ Insofta Cover Commander 7.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239418.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_239418.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ Sonible Plugins 04.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239640.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239640.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ Image Tuner Pro 9.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239807.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239807.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ discoDSP - Discovery Pro 7.7 STANDALONE, VSTi, VSTi 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239845.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239845.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ magnet:?xt=urn:btih:75BBA1622DB2D3E4C1EA10E6EED8A661C4C3669C
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240524.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240524.jpg" />
 </div>
 
 
@@ -553,78 +627,6 @@ magnet:?xt=urn:btih:75BBA1622DB2D3E4C1EA10E6EED8A661C4C3669C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2812D639E66BB09F7932CC0424DC1C5EF7A2448D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569950   (241254) от 15.08.2022
-
-Overloud Gem studio plug-ins 08.2022 Standalone, VST, VST3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Overloud Gem studio plug-ins предлагает вам полный набор плагинов для микширования и мастеринга Gem, включая Gem Comp76, Gem EQ495, Gem Tapedesk, Gem EQ84 и Gem Dopamine. Пакет предоставляет инженерам и продюсерам аутентичные эмуляции старинных эквалайзеров, магнитофонов и микшерных консолей, а также включает в себя легендарный динамический процессор, обогащенный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBA33D5B415CDB7593388C795CFD2B784DE35B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624907   (241779) от 07.04.2023
-
-Aiseesoft DVD Creator 5.2.58 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft DVD Creator - это одна из лучших профессиональных программ для создания DVD дисков. Она легко конвертирует в DVD или ISO практически любые популярные видеоформаты, включая AVI, MPEG, DivX, TS, MTS, DV, VOB, WMV и MP4. Кроме того, Aiseesoft DVD Creator позволяет создавать замечательные пользовательские меню DVD, которые можно выбрать из предлагаемых шаблонов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC919066CBCF7D18AE5B22B80A50BBDE41EA7B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569190   (242159) от 11.08.2022
-
-Acoustica MixCraft Pro Studio 9 9.0 Build 470 (x86/x64) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixcraft, созданный музыкантами для музыкантов, не имеет себе равных в отрасли благодаря простоте использования и необузданной мощности. Записывайте и микшируйте свои треки до совершенства в рекордно короткие сроки с невероятно интуитивно понятным интерфейсом Mixcraft, молниеносным звуковым движком, бросающей вызов реальности технологией смещения высоты тона и растяжения (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
 ```
 
 

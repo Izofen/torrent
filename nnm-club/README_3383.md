@@ -1,3 +1,76 @@
+###  Публикация: 1731707   (107640) от 22.06.2024
+
+Байкеры / The Bikeriders (2023) TS [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:50:16Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731927   (107641) от 22.06.2024
+
+Дикий: Война зверей / The Wild / Deo waildeu: yasudeului jeonjaeng (2023) WEB-DLRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107641.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Чул был успешным боксером и подавал большие надежды, пока однажды на ринге не случилась трагедия. У Чул нанес противнику смертельный удар, за что боксера приговорили к восьми годам лишения свободы. Отсидев положенный срок, У Чул выходит изменившимся человеком. Из тюрьмы его встречает старый приятель До-шик, который тут же предлагает боксеру работу. Но бывший спортсмен (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: боевик, криминалРежиссер: Ким Бон-ханАктеры: Пак Сон-ун, О Дэ-хван, Со Джи-хе, Чу Сок-тхэ, Хван Му-ён, Чон Су-гё, Хван Сэ-ин, Вон У, О Даль-суПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:04Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936C8D7AFE4ACA0221A316C067CBC7D426B70F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731797   (107642) от 22.06.2024
+
+Главная дорога (22.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кабриолет или кондиционер? Кто из автолюбителей не завидовал тем, кто в жару ездит без крыши! Только владельцы кабриолетов и ведущие «Главной дороги»: Андрей Федорцов и Денис Юченков испытали ветро-холодовой индекс в жару и выяснили, как прохладнее и безболезненнее ездить в машине в летний зной — с открытым окном, кондиционером или без крыши над головой.
+ Ремонт с (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12CB5F4C2F76D5325AC06638588C70602BDC214
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731946   (107643) от 22.06.2024
 
 Tablacus Explorer 24.6.21 Portable [Multi/Ru]
@@ -6,7 +79,7 @@ Tablacus Explorer 24.6.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107643.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:7036D9FDC0D3EF5A7308DA64FAFEA16F286520AD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107644.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:C3C81A01226C62E59B23BC27A46E36E2BE9573F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107645.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:C3C81A01226C62E59B23BC27A46E36E2BE9573F6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107646.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:F3846A5A6327CEA24ABB2F76DC2394DC59557E4E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107647.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Bootleg Contraband - Mars Colony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107648.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ Kryder - We Rave You Presents Hot & Current #21 (2024-06-06) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107649.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107650.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107651.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107652.jpg" />
 </div>
 
 
@@ -265,7 +338,7 @@ Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107653.jpg" />
 </div>
 
 
@@ -292,7 +365,7 @@ Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107654.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107655.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Malignancy - Eugenics (2012) [FLAC|Lossless|image + .cue] <Brutal Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107656.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Membaris - Poetry of Chaos (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107657.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Malignancy - Intrauterine Cannibalism (1999) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107658.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107659.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ Malignancy - Ignorance Is Bliss (2001) Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107660.jpg" />
 </div>
 
 
@@ -481,7 +554,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107661.jpg" />
 </div>
 
 
@@ -508,7 +581,7 @@ Speedtest от Ookla 5.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107662.jpg" />
 </div>
 
 
@@ -532,7 +605,7 @@ magnet:?xt=urn:btih:0A3D4EF9ADA13E532E8D55B6F15327D5000A9F27
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107663.jpg" />
 </div>
 
 
@@ -559,7 +632,7 @@ Topaz Gigapixel AI 7.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107664.jpg" />
 </div>
 
 
@@ -584,7 +657,7 @@ magnet:?xt=urn:btih:2A37E41D093C64BBE6FB1B2FED2EF3E651682A10
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107665.jpg" />
 </div>
 
 
@@ -595,82 +668,6 @@ magnet:?xt=urn:btih:2A37E41D093C64BBE6FB1B2FED2EF3E651682A10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85FC2BF5EDD49A0C389B0F816F8532EF7D27BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730878   (107666) от 21.06.2024
-
-Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
-02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731427   (107667) от 21.06.2024
-
-VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Indus, Synthwave, Electro-Synthpop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Future Sounds Of Kraut 2) [00:02:47]
-02. Angekommen in der letzten Reihe [00:06:32]
-03. Vertical Section [00:02:12]
-04. Monotonikum (Edit) [00:04:46](   Читать дальше...   )Жанр: Trip-hop, Indus, Synthwave, Electro-Synthpop, DowntempoПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287DF90C9C03812ABC85EB0BFC95CB544B470BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731572   (107668) от 21.06.2024
-
-Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
 ```
 
 

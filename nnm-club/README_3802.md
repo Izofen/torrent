@@ -1,3 +1,77 @@
+###  Публикация: 1698408   (118534) от 09.02.2024
+
+Повышение / Upgraded (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна стремится начать свою карьеру в искусстве и изо всех сил старается произвести впечатление на свою требовательную начальницу Клэр Дюпри. Но когда Анну приглашают на аукцион, который пройдет в Лондоне, молодая героиня неожиданно оказывается в салоне первого класса по пути в аэропорт, где встречает красавца Вилли. В результате, чтобы оправдать свою поездку в первом (   Читать дальше...   )Производство: США / FAE Film and Television, Gulfstream PicturesЖанр: мелодрама, комедияРежиссер: Карлсон ЯнгАктеры: Камила Мендес, Арчи Рено, Мариса Томей, Лена Олин, Энтони Хэд, Томас Кречман, Грегори Монтель, Рэйчел Мэттьюз, Фола Эванс-Акингбола, Эйми КаррероПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH) и другиеПродолжительность: 01:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDF0070CF8752BD8341DAA260E48B4CED8E566C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 400126   (118535) от 09.02.2024
+
+Виталий Бианки | Рассказы и сказки (2005) [MP3, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Хрестоматия школьной литературы.
+Виталий Валентинович Бианки (1894-1959) – известный писатель, классик советской детской литературы. На его книгах выросло не одно поколение детей в нашей стране. За свою жизнь он написал более 300 рассказов, сказок, повестей.
+Книги Виталия Бианки, раскрывающие мир природы и помогающие постигать ее тайны, и по сей день (   Читать дальше...   )Жанр: Русская литература для детей,рассказ, сказкаИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 12:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A4C194CDBDD8FA56590661023854896B07F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698394   (118536) от 09.02.2024
+
+Самозванка / Some Other Woman (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ева и Питер переезжают на тропический остров, чтобы Питер мог строить там карьеру. Ради мужа Ева вынуждена отказаться от своих профессиональных амбиций, что мешает ей искренне радоваться его успехам. После очередного выкидыша Ева и вовсе впадает в депрессию.Производство: США / Balcony 9 Productions, Productivity MediaЖанр: ТриллерРежиссер: Джоэль МурАктеры: Эшли Грин, Том Фелтон, Аманда Крю, Рик Фокс, Брук Лайонс, Саманта Бэнтон, Эмбер Эшли Смит, Каролина Рейно, Джим Ригли, Jeton BennettПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642CC2FEFFD2FD399BCC43B16C1C34F9AD7352B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696894   (118537) от 09.02.2024
 
 Интерстеллар / Interstellar (2014) UHD BDRip [H.265/2160p] [4K, SDR, 10-bit] [IMAX]
@@ -6,7 +80,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118537.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Doppler for Mac 2.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118538.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ File List Export for Mac 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118539.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:EB4F5579652F9B91BA9F4B03E42AA9FE55855A66
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118540.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Text Workflow 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118541.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118542.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Multitouch 1.27.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118543.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ FSNotes 6.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118544.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118545.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Six Foot Six - The End of All (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118546.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ Note-C 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118547.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ JetBrains RubyMine for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118548.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ LungBurner - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118549.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ Innerload - Mater Tenebrarum (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118550.jpg" />
 </div>
 
 
@@ -357,7 +431,7 @@ Weedow - Weedow (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118551.jpg" />
 </div>
 
 
@@ -384,7 +458,7 @@ Multitouch 1.27.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118552.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ Syncovery for Mac 10.11.3 Intel [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118553.jpg" />
 </div>
 
 
@@ -432,7 +506,7 @@ Roland Hanna - Perugia (1974) 1987, Freedom [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118554.jpg" />
 </div>
 
 
@@ -459,7 +533,7 @@ Dato 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118555.jpg" />
 </div>
 
 
@@ -484,7 +558,7 @@ magnet:?xt=urn:btih:DF86DAE22363F61F1F967507ABCBB5203C74683F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118556.jpg" />
 </div>
 
 
@@ -508,7 +582,7 @@ uDock 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118557.jpg" />
 </div>
 
 
@@ -532,7 +606,7 @@ DxO ViewPoint 4 for Mac v.4.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118558.jpg" />
 </div>
 
 
@@ -557,7 +631,7 @@ Syncovery for Mac 10.11.3 ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118559.jpg" />
 </div>
 
 
@@ -568,82 +642,6 @@ Syncovery for Mac 10.11.3 ARM [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1515D47104402ACFC6BFAD479FAD49ACC84A56E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697104   (118560) от 08.02.2024
-
-Demon Seizure - Murder Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Groove>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirst [00:03:33]
-02. Servants of the Moon [00:03:55]
-03. Entering the Telepod [00:02:33]
-04. Venom Trip [00:03:45](   Читать дальше...   )Жанр: Stoner Metal, GrooveПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E568324C8F9A25607FC42664FE2E861458DEC9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698162   (118561) от 08.02.2024
-
-Smart Converter Pro 3 v.3.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
-Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 2024 Systemic Pty LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5A1B6EADD8BF43B3EC34E4EB8BFE953C359C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698291   (118562) от 08.02.2024
-
-Keep It 2.4.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02722D8F479C738F893CB585E0CF615FBE9903DC
 ```
 
 

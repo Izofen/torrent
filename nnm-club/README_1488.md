@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39041.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:12B3115341BB496B6666EA5F201F9022827BE14C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39042.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:12B3115341BB496B6666EA5F201F9022827BE14C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39043.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C8EB7E4CF7E51AD22B4FE29FDA142FA7ED36007E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39044.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9D581DA32A392FE36A534406398E7F0A067BD185
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39045.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:433AD0F297D14CE40CD7CE26C4956A57E811FDFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39046.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B1B24683F0A9B4FBFE7E7EED34FDB920002BBBC1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39047.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B1B24683F0A9B4FBFE7E7EED34FDB920002BBBC1
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39048.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:99908529346007FA14D950162E868A35E585A588
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39049.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6DCC6FD6BDC5FE95BDACE8B1BEA0CED515E7E0F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39050.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:90A4ADC63F96127ED873905F74AC2C124394D987
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39051.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:661FDAC907CFCCA344A9079B959CCE8706C3E88C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39052.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:661FDAC907CFCCA344A9079B959CCE8706C3E88C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39053.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39054.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Green Day - American Idiot (2004) 20th Anniversary Deluxe Edition, Remaster, 202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39055.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39056.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39057.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:869C6DDF1B10CD2120A123ABE423D6CAA8481E63
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39058.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39059.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39060.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - compilation  part 126 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39061.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Compilation part 127 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39062.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:6DE3A6D0401B612D915702AA2AF5BFE2F3C18D14
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39063.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:0BF5B4CF31464F2DDECC00CF3E66C5F146525A2F
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39064.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ King Crimson - Red (1974) Elemental Mixes, 2024, Discipline Global Mobile [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39065.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:32255D59C983B9770501C30340AB7084C6E14217
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39066.jpg" />
 </div>
 
 

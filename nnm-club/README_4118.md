@@ -1,3 +1,81 @@
+###  Публикация: 1686088   (126755) от 21.12.2023
+
+VA - Music News vol.325 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. sozONik - Я Верила (02:20)
+ 002. ADO - Сон (02:14)
+ 003. Alina Eremia - Dans (02:39)
+ 004. Alina Eremia - Nu Te Mai Astept (Chopin Remix) (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D840E1E52AEA6EFB1B1A9F018E8E2A4D0AA78D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675822   (126756) от 21.12.2023
+
+У меня проблема / Bir Derdim Var (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) SesDizi
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал является ремейком итальянского сериала "Oltre La Soglia". Он расскажет о реабилитации группы молодых ребят, некоторые из которых являются преступниками, в клинике при поддержке доктора-психолога Нилюфер.Производство: Турция / AyNA YapimЖанр: драмаРежиссер: Бурак МюждеджиАктеры: Бирдже Акалай, Мерт Фырат, Энгин Хепилери, Эрдем Ченочак, Башак Гюмюльджинелиоглу, Неслихан Арслан, Идил Сивритепе, Шеннур Ногайлар, Угур Карабулут, Ата Артман, Эзги Гёр и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5DB7347C5AE51BEBF463BDEE29E7C05350FAA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686176   (126757) от 21.12.2023
+
+Animal ДжаZ - Корни (2023) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никогда
+02. Оранжевый Дао
+03. Лёд.жесть
+04. Уходишь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A66F2CEF483FAACF197CE0BED0EC5DD04CBD14E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686085   (126758) от 21.12.2023
 
 Waterfox Current G6.0.7 [Multi/Ru]
@@ -6,7 +84,7 @@ Waterfox Current G6.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126758.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:B2A02891ED3D886DC5EFBD39A657E3CA72303E03
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126759.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Ossuary - Stellar Annihilation (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126760.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ PowerDirector – Video Editor v13.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126761.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126762.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:978367F42AEEDD7CE3B938FE4B2192B5DADD1C5C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126763.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ magnet:?xt=urn:btih:7F68DE31DCFF85FA91B6D34D0697E6F023ECB057
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126764.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ VA - Christmas Time Is Here:  The Greatest Holiday Songs (2023) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126765.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ VA - Dance Mix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126766.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ magnet:?xt=urn:btih:CA927A2184092C2E807233A107BE2D1C60CAB7DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126767.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126768.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ VA - Silent Place, Vol. 1-3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126769.jpg" />
 </div>
 
 
@@ -312,7 +390,7 @@ magnet:?xt=urn:btih:0DF7144193D78BEA8E75F77480117D1B6DF74F77
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126770.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126771.jpg" />
 </div>
 
 
@@ -363,7 +441,7 @@ magnet:?xt=urn:btih:AFAC41A690BE7F666C3C0D537451AA3AEC4ED416
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126772.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ magnet:?xt=urn:btih:9B9E324F2528968811E701CC0D5BEAA4D74761B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126773.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ magnet:?xt=urn:btih:66A58127B495EDAA23A37DBC79A8652B6392E65D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126774.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ magnet:?xt=urn:btih:056F6441EE528A7918431A3DC3C167F81E444DE5
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126775.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:056F6441EE528A7918431A3DC3C167F81E444DE5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126776.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:5B0D9D02CDC8055D75592A91B1AF2B9688E13C1A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126777.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:F36FF818EC2826A8BB766D4C4837329585946A58
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126778.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ magnet:?xt=urn:btih:BDD909F038045ECD73DC51BF630B6D87D943B3F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126779.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ magnet:?xt=urn:btih:E5A57C1B0B373A73312AE5BC7B3867CC097BD774
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126780.jpg" />
 </div>
 
 
@@ -569,78 +647,6 @@ magnet:?xt=urn:btih:E5A57C1B0B373A73312AE5BC7B3867CC097BD774
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E54B7449EEB633E38336E4EB5683C47BE9210C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686189   (126781) от 21.12.2023
-
-AR Ruler App: Линейка Рулетка v2.7.6 Mod by srajawwal09 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126781.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 20.12.2023Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B7D395722070507D12C9008B1269A0AD51CF95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686105   (126782) от 21.12.2023
-
-Н.В. Вдовикина и др. | Программирование в ОС Unix на языке Си (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие подготовлено авторами на основании практического опыта использования и преподавания языка Си на факультете ВМиК. В данном пособии предложены методические рекомендации по проведению семинарских занятий по программированию, поддерживающих курс лекций «Операционные системы», читаемый в третьем семестре на факультете ВМиК МГУ.Жанр: Компьютерная литератураИздательство: Факультет ВМиК МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6172054DE6FD2B61E57C6EDF88E5319F101B0C19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685878   (126783) от 21.12.2023
-
-Игры и люди (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
-
->>Спорт и активный отдых
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал об олимпийской истории советского и российского спорта. Проект рассказывает о зрелищных победах и наиболее драматичных моментах, которые произошли на аренах престижных международных соревнований. С момента дебюта на Олимпийских играх в 1952 году наши спортсмены одержали десятки выдающихся побед. Советский и российский спорт прошел через многочисленные (   Читать дальше...   )Производство: Россия | «Tempo-Rhythm»Жанр: Документальный, спортРежиссер: Юрий ОднопозовЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F072406B938589451A9FB263581E93D719CB9F94
 ```
 
 

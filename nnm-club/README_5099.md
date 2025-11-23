@@ -1,3 +1,176 @@
+###  Публикация: 1433224   (157884) от 20.12.2020
+
+Павел Царегородцев | Красивое и сильное тело без спортзала (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите иметь сильное и красивое тело, но у вас нет возможности или желания ходить в тренажерный зал - то эта книга станет вашим лучшим помощником в построении вашего идеального тела! В ней подробно раскрываются вопросы по питанию, режиму дня, и, конечно же, тренировочных программ, которые приведут вас к вашей цели. В этой книге простым и доступным языком (   Читать дальше...   )Жанр: Спорт, Фитнес, Здоровое и правильное питаниеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC9B171147683C5838FD7A76BF5DA61D37390F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958357   (157885) от 22.12.2015
+
+Ник. Горькавый | Теория катастрофы (2015) [MP3]
+
+>>След.
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никки — редчайший случай соединения острого ума, необъятной эрудиции (посредством «встроенного» компьютера), сверхскорости и сверхудачливости. Она учится в самой крутой школе Солнечной системы, у самых лучших учителей (хотя иногда трудно понять, кто кого учит), у нее множество верных друзей. Врагов, правда, тоже немало, и все норовят ее убить...Жанр: ФэнтезиПродолжительность: 19:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B598E80CFB32DFD429C76AEB0E4835B59693AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194386   (157888) от 24.12.2017
+
+Журнал | Все загадки мира. Другое измерение. Спецвыпуск №4 Затерянный мир (2017) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664D5E17F17220740E079139D60299ABC689432C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426639   (157889) от 20.12.2020
+
+Рождественские хроники 2 / The Christmas Chronicles 2 (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт выросла и стала циничным подростком, но тем не менее ей придётся объединиться с Сантой, чтобы остановить таинственного волшебника по имени Белсникель, задумавшего отобрать у человечества Рождество.Производство: Канада / 1492 Pictures, Wonder WorldwideЖанр: Фэнтези, комедия, приключения, семейныйРежиссер: Крис КоламбусАктеры: Голди Хоун, Курт Расселл, Джуда Льюис, Джулиан Деннисон, Кимберли Уильямс, Дэрби Кэмп, Джазир Бруно, Тайриз Гибсон, Патрик Галлахер, Аманда КлегхорнПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233608FBB5E21229D104ED8B17A4D09BCB5CC1C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346739   (157890) от 20.12.2019
+
+Big Mean Folder Machine 2 v2.41 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
+
+Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE32AA06599EA2F7C84A8336906FC4368B3036D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193477   (157892) от 24.12.2017
+
+Maury Laws & Jules Bass - Сумасшедшая вечеринка чудовищ / Mad Monster Party (1967) 1998 [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maury Laws - The Baron
+02. Ethel Ennis - Mad Monster Party
+03. Maury Laws - Waltz for a Witch
+04. Maury Laws - Cocktails(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958350   (157893) от 22.12.2015
+
+В пустыне смерти / Into the Badlands (2015) WEB-DLRip (сезон 1, серии 1-6 из 6) NewStudio
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий боевик о двух друзьях. В пустыне смерти, какие испытания предстоит пройти главным героям на пути просвещения. Ради обретения высшей мудрости мастер боевых искусств Санни и его юный напарник решают пройти через неизведанные земли. Они знают, что там их будут встречать враждебно, но ради высшей цели главные герои готовы вынести всё. В основу сюжета (   Читать дальше...   )Производство: СШАЖанр: боевик, драма, приключенияРежиссер: Дэвид ДобкинАктеры: Эмили Бичем, Сара Болгер, Орла Брэйди, Мартон Чокаш, Элли Иоаннидес, Арамис Найт, Мадлен Манток, Майкл Сил, Оливер Старк, Дэниэл Ву и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38A236844B6A6A46EB20A20290D85B255277DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737805   (157894) от 23.12.2013
 
 Андроид / App / Android (2013) DVD9
@@ -6,7 +179,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157894.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157895.jpg" />
 </div>
 
 
@@ -57,7 +230,7 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157896.jpg" />
 </div>
 
 
@@ -84,7 +257,7 @@ magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157898.jpg" />
 </div>
 
 
@@ -108,7 +281,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157901.jpg" />
 </div>
 
 
@@ -135,7 +308,7 @@ Topaz Gigapixel AI 5.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157902.jpg" />
 </div>
 
 
@@ -159,7 +332,7 @@ Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterpr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157905.jpg" />
 </div>
 
 
@@ -186,7 +359,7 @@ magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157906.jpg" />
 </div>
 
 
@@ -210,7 +383,7 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157907.jpg" />
 </div>
 
 
@@ -237,7 +410,7 @@ magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157908.jpg" />
 </div>
 
 
@@ -261,7 +434,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157910.jpg" />
 </div>
 
 
@@ -285,7 +458,7 @@ magnet:?xt=urn:btih:D8076508FFF54ED6904DDD45A7BCB5DAD7EC5E7D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157911.jpg" />
 </div>
 
 
@@ -311,7 +484,7 @@ magnet:?xt=urn:btih:E38FF1023BA3DB1D09FC46F150C53278E4C99F7E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157913.jpg" />
 </div>
 
 
@@ -338,7 +511,7 @@ magnet:?xt=urn:btih:FD5DAD2B59638A7BB5DCC4595D897D66525D0BE1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157914.jpg" />
 </div>
 
 
@@ -362,7 +535,7 @@ Skynet 2019.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157915.jpg" />
 </div>
 
 
@@ -386,7 +559,7 @@ magnet:?xt=urn:btih:BCA9937F2F7AD5E053A9DEEBC359977B3EE300AE
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157916.jpg" />
 </div>
 
 
@@ -410,7 +583,7 @@ magnet:?xt=urn:btih:2C2F37B4938B5F9FABA0AE8DB11B7568500AFF2E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157917.jpg" />
 </div>
 
 
@@ -436,7 +609,7 @@ Ummy Video Downloader 1.5.0.4 RePack (& Portable) by Killer000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157918.jpg" />
 </div>
 
 
@@ -460,7 +633,7 @@ magnet:?xt=urn:btih:3CCCE0B6B9270BDB2EAAA40B13DB998149E42277
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157919.jpg" />
 </div>
 
 
@@ -471,182 +644,6 @@ magnet:?xt=urn:btih:3CCCE0B6B9270BDB2EAAA40B13DB998149E42277
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBE98D10C9DCE3ACED36B925626334A2420199D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194375   (157920) от 24.12.2017
-
-VA - Turn On The Dark (Mixed By Oberon) (2017) [MP3|320 Kbps] <Trance,Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Changes - The Beginning (Original Mix)
-02 Michael Milov - It's Coming This Way (Original Mix)
-03 Neos - Murderer Of Minds (Original Mix)
-04 R.E.L.O.A.D. - Now I'm Disturbed (Splattered Implant Remix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2879CB199B51C1BC6092A8FAA1E761EEE3FFBED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433411   (157922) от 20.12.2020
-
-Марина Уланова | Смарт-объекты в Photoshop. Чудесные помощники или бесполезная функция (2020) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157922.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том что смарт-объекты помогают нам сохранить качество картинок при трансформации, знают наверное многие. А вот как они могут помочь при первичной обработке фото в Camera Raw? И как используя смарт-фильтры можно создать иллюзию движения при обработке?
-
-Об этих, и еще некоторых полезных свойствах смарт-объектов, именно для фото обработки, и пойдет речь в новом уроке.Производство: psd-studio.comЖанр: ФотоПродолжительность: 00:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C24D78997A199C92BB6EA0033AE05556859960C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194272   (157923) от 24.12.2017
-
-Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persona [06:07]
-02. Don't Forget The Poet [04:58]
-03. Child Of The Real And Ideal [05:41]
-04. Coralie [05:40](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440312   (157924) от 22.12.2015
-
-Вселенная: Семь чудес Солнечной системы 3D / Universe: 7 Wonders of the Solar System 3D (2010) BDRip [1080p] <вертикальная анаморфная стереопара>
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните ближе на некоторые из самых удивительных чудес нашей Солнечной системы, типа гейзеров Энцелада; удивительных колец Сатурна; Большого Красного Пятна Юпитера; и высот горы Олимп на Марсе...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702AB1F084CC9CBC39B0C537A99C173EE5E8A09E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968179   (157926) от 22.12.2015
-
-Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Halo 3 - видеоигра в жанре шутера от первого лица, созданная компанией Bungie Studios эксклюзивно для игровой консоли Xbox 360. Игра является продолжением истории, начатой в Halo: Combat Evolved и продолженной в Halo 2. В игре представлены новые виды транспорта, оружия и особенности игры, отсутствующие в предыдущих играх серии.Тип издания: UnofficialРазработчик: Bungie StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E513BE6A9F500E21905274D00AAF399256ECF0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433196   (157927) от 20.12.2020
-
-Movavi Video Editor Plus 2021 v21.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этом приложении есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте утилиту прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Movavi Software LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D834A0E73992E147A39AE0750F2D87AC8BF72D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968164   (157928) от 22.12.2015
-
-Простая девчонка (2015) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алена Шелестова живет и работает в большом городе. Несмотря на то, что Алена еще очень молода, она занята серьезным делом – пишет кандидатскую по истории стекольного производства, а заодно организует выставку старинных изделий из стекла...Производство: Россия / ООО "Тесей Продакшн", МЕГА ПродакшнЖанр: МелодрамаРежиссер: Максим БриусАктеры: Анастасия Стежко, Станислав Эрдлей, Борис Хвошнянский, Александр Абрамович, Светлана Никифорова, Галина Чернобаева, Инна Коляда, Виктор Васильев (II), Ольга Сизова, Светлана Клименко, Константин ЗадворныйПеревод: Не требуется (язык русский)Продолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802263A92F081A79C70046FAE15D6E728AD2596D
 ```
 
 

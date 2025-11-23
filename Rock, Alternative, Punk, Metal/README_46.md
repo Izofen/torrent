@@ -6,7 +6,7 @@ Lee Aaron - Tattoo Me (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58558.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Accept - Humanoid (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58595.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Metallica - Metallica (1991) Reissue, 2007, Vertigo [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58654.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Los Furios - Old Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <reggae, ska punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rage - The Millennium Years (2001-2003) Box Set, 6 x CD, Compilation, 2021, Dr. 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58769.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Within Temptation - The Artone Sessions (2024) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58872.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Smokie - Best Of Smokie 3CD Box Set (2002) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58893.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pattern-Seeking Animals - 4 Albums (2019-2023) [FLAC|Lossless|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Savage - Loose 'N Lethal (1983) Reissue, Remastered, 2008, Krescendo Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59139.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris Rea - 20 Studio albums + 4 Compilations + Box Set (1978-2008) [WavPack|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:43491FF31E9ED1569E80F42B990EB57A242D9B29
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59173.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59190.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:79A711003C6B89702E591319C68DF41E990DBC4F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59191.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pearl Jam - Dark Matter (2024) [FLAC|Lossless|tracks + .cue] <Alt.Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59194.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:83F9706BD6CE476442AB2F3BDEC298C17C217EF3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59211.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Demon - 14 albums, 28 CD (1981-2020) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59241.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bless Her Evil - We Are Mystery.. (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59297.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Linkin Park - Papercuts (2000-2023) Compilation, 2024, Warner Records [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59384.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59387.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Emerson, Lake & Powell - Complete Collection (1986, 2003, 2020) 3CD Remaster, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59401.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:CCF0FD6936E3F6C3C99BB1EB053BFA130F2D0A68
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59425.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Pearl Jam - Live Rarities (2024) Compilation [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59604.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - 20's Rock Bangers (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59607.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Rock This Wedding (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59612.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:9D5DF1A0B11BFB78C0A977FCE369BE26CBC64825
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59648.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:6B4DB9A6FD9E4EEF491974C7BDEFC03902CE2D2C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59659.jpg" />
 </div>
 
 

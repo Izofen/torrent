@@ -1,3 +1,83 @@
+###  Публикация: 1768158   (101112) от 25.12.2024
+
+Футбол. Кубок Италии 2024/2025. 1/8 финала Интер - Удинезе (19.12.2024) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101112.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 декабря 2024 Милан 1/8 кубка Италии
+Стадион: Джузеппе Меацца
+«Интер» в Лиге чемпионов занимает шестое место в таблице общего этапа. В Кубке Италии «нерадзурри» только начинают свой путь. В прошлом сезоне миланцы также стартовали с 1/8 финала, но тут же вылетели от «Болоньи». Отметим, что в итальянской Серии А «Интер» занимает третье место, а «Удинезе» - девятое. (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4B9418B8881CF3477214CFE06B220D7700F181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768654   (101113) от 25.12.2024
+
+Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer- Feeling (3:16)
+02. Hungry for Love (4:08)
+03. I'm Here (3:14)
+04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768669   (101114) от 25.12.2024
+
+The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Budapest in Winter (3:38)
+02. Windows of Warmth (3:13)
+03. Blessed Day (3:28)
+04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768633   (101115) от 25.12.2024
 
 Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
@@ -6,7 +86,7 @@ Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101115.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101116.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101117.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ Cтарец Иосиф Ватопедский | О кончине века и а
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101118.jpg" />
 </div>
 
 
@@ -108,7 +188,7 @@ After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101119.jpg" />
 </div>
 
 
@@ -135,7 +215,7 @@ Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101120.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101121.jpg" />
 </div>
 
 
@@ -186,7 +266,7 @@ magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101122.jpg" />
 </div>
 
 
@@ -210,7 +290,7 @@ magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101123.jpg" />
 </div>
 
 
@@ -234,7 +314,7 @@ magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101124.jpg" />
 </div>
 
 
@@ -258,7 +338,7 @@ magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101125.jpg" />
 </div>
 
 
@@ -282,7 +362,7 @@ magnet:?xt=urn:btih:59E170A7B221ED4574F494EC0DC4AE83F03677AF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101126.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101127.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101128.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101129.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ Shayne J Davis - Wardrop Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101130.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101131.jpg" />
 </div>
 
 
@@ -441,7 +521,7 @@ Sean Taylor - The End Of The Rainbow (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101132.jpg" />
 </div>
 
 
@@ -468,7 +548,7 @@ magnet:?xt=urn:btih:F57B90AE084A1F3C99FAD166A38D20FB1865D2AC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101133.jpg" />
 </div>
 
 
@@ -495,7 +575,7 @@ John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101134.jpg" />
 </div>
 
 
@@ -522,7 +602,7 @@ John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101135.jpg" />
 </div>
 
 
@@ -549,7 +629,7 @@ Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101136.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101137.jpg" />
 </div>
 
 
@@ -590,87 +670,6 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF007C9581643B37FEB19D59AAD96F9EDAE10D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768157   (101138) от 24.12.2024
-
-Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messiah (3:32)
-02. His Blood Can Make You Whole (3:48)
-03. No Pain No Gain (3:24)
-04. Put Your Trust in Him (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D18E47EF05CA36AF2E0AB37EA90F7F3F61B97B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768155   (101139) от 24.12.2024
-
-Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting & Hoping (3:41)
-02. Waltz & Sway (3:54)
-03. Mark Jeffrey (3:00)
-04. La Groove (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C456CAFCC35039B157757C600CC56171C4CE3C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768150   (101140) от 24.12.2024
-
-Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. POTATISMOS OCH SKANDINAVISK BLUES (4:09)
-02. BLUES ÄR INTE GRATIS (5:24)
-03. DJÄVULEN I FLASKAN (4:20)
-04. EN MAN SOM HETER LASSGÅRD (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
 ```
 
 

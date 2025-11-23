@@ -1,3 +1,100 @@
+###  Публикация: 1669334   (172860) от 16.10.2023
+
+Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB71514CC202335F749C96EAB86BE6E69AD4F5E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669330   (172864) от 16.10.2023
+
+High-Logic FontCreator Professional 15.0.0.2941 Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172864.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572F120BEB7783EF77F1D8B5DFBDF7EB302912A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669463   (172871) от 16.10.2023
+
+EverWeb (Standalone) 4.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172871.jpg" />
+</div>
+
+
+###  Подробнее
+
+С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
+EverWeb даже создает мобильные сайты, которые отлично смотрятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2023Разработчик: © 2022 RAGE SoftwareПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F0623989500D9670053F4413EC36E4A54902F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669364   (172872) от 16.10.2023
+
+System Dashboard Pro 1.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172872.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2023 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95E37E5A60E375CD4F44F290A6149A4BAA35097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669363   (172875) от 16.10.2023
 
 PhotoSweeper X 4.8.4 [En]
@@ -6,7 +103,7 @@ PhotoSweeper X 4.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172875.jpg" />
 </div>
 
 
@@ -31,7 +128,7 @@ KCNcrew Pack 10-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172876.jpg" />
 </div>
 
 
@@ -55,7 +152,7 @@ PhotoMill X 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172880.jpg" />
 </div>
 
 
@@ -81,7 +178,7 @@ Path Finder 2161 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172881.jpg" />
 </div>
 
 
@@ -105,7 +202,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172885.jpg" />
 </div>
 
 
@@ -129,7 +226,7 @@ ADB AppControl 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172907.jpg" />
 </div>
 
 
@@ -154,7 +251,7 @@ Adobe After Effects 2024 v.24.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172920.jpg" />
 </div>
 
 
@@ -179,7 +276,7 @@ Auslogics Driver Updater 1.26.0.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172922.jpg" />
 </div>
 
 
@@ -203,7 +300,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172923.jpg" />
 </div>
 
 
@@ -227,7 +324,7 @@ Adobe Illustrator 28.0.0.88 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172928.jpg" />
 </div>
 
 
@@ -252,7 +349,7 @@ Topaz Photo AI 2.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172941.jpg" />
 </div>
 
 
@@ -276,7 +373,7 @@ vpnify - Безлимитный VPN 2.1.4.9 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172948.jpg" />
 </div>
 
 
@@ -300,7 +397,7 @@ VPN Russia - VPN сервера в России 1.175 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172953.jpg" />
 </div>
 
 
@@ -324,7 +421,7 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172972.jpg" />
 </div>
 
 
@@ -348,7 +445,7 @@ Topaz Photo AI 2.0.5 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172975.jpg" />
 </div>
 
 
@@ -372,7 +469,7 @@ Topaz Video AI 3.5.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172976.jpg" />
 </div>
 
 
@@ -396,7 +493,7 @@ Topaz Video AI 3.5.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172982.jpg" />
 </div>
 
 
@@ -420,7 +517,7 @@ Nitro PDF Pro 14.13.0.7 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172983.jpg" />
 </div>
 
 
@@ -444,7 +541,7 @@ Dict Box - Английский словарь v8.8.1 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172984.jpg" />
 </div>
 
 
@@ -468,7 +565,7 @@ SplitCam 10.7.20 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172985.jpg" />
 </div>
 
 
@@ -492,7 +589,7 @@ Luminar Neo 1.14.1.12230 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172986.jpg" />
 </div>
 
 
@@ -518,7 +615,7 @@ DxO PhotoLab Elite 7.0.1 build 76 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172993.jpg" />
 </div>
 
 
@@ -529,103 +626,6 @@ DxO PhotoLab Elite 7.0.1 build 76 Portable by 7997 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6B7CA7AA992C3B0053E5A26A5B0770635D55C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669213   (172994) от 15.10.2023
-
-Attribute Changer 11.30 + Portable [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Attribute Changer - простенькая утилита для удобного изменения основных атрибутов файлов и папок. После установки программы она интегрируется в проводник Windows, добавляя в контекстные меню соответствующий пункт.
-Этот инструмент поможет установить такие атрибуты, как только для чтения, скрытый, архивный, системный и др. Кроме того, доступны изменение даты файла (   Читать дальше...   )Язык интерфейса: Английский и другие (Русского нет!)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9096A3A61E3CB0CF393044E3A3A8471002BFFC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669285   (172995) от 15.10.2023
-
-JRiver Media Center 31.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172995.jpg" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center — мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230336492EDB658B863F978A0E1C4C65DE04EE3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669088   (173001) от 15.10.2023
-
-Icecream Screen Recorder Pro 7.30 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8996BBB0D30F314C8A1318B3DBC733B455C55D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669092   (173005) от 15.10.2023
-
-Ashampoo Photo Optimizer 9.4.7.36 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Photo Optimizer 9 представляет собой программное обеспечение для оптимизации и улучшения качества фотографий. Ashampoo Photo Optimizer предлагает автоматическую и ручную оптимизацию изображений, коррекцию перспективы, пакетную обработку и множество творческих инструментов. Идеально подходит для быстрого и качественного редактирования фото.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539F950533430519FAB966D7561DA9E9EA69D1E5
 ```
 
 

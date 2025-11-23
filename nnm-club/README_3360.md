@@ -1,3 +1,78 @@
+###  Публикация: 1734943   (107042) от 05.07.2024
+
+XYplorer 26.20.0100 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107042.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F30FBE4027BCCB333FCB4E6666E781A126E858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734853   (107043) от 05.07.2024
+
+VA - Armada Electronic Elements - Ibiza 2024 - Extended Versions (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ede – Do My ThingЖанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 03:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A961A803B869567E0AF52A9911C899322B4109BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734838   (107044) от 05.07.2024
+
+Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You (Bossa Nova Version)
+02. I Love You Always Forever (Leo Portela Rework)
+03. Hunting High and Low (Summer Remix)
+04. Alive And Kicking (Leo Portela Rework)Жанр: Bossa Nova, LoungeПродолжительность: 00:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FB218DD1E52F53831B214E4A62E18C511A4497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734794   (107045) от 05.07.2024
 
 Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +81,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107045.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:EF2CA4BC70C5C220D8B9C65BE69583BC3D4BD8FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107046.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ magnet:?xt=urn:btih:9B768E7F717C82857336460121BEB0847E7DEAA7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107047.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ VA - Armin van Buuren - A State Of Trance 1180 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107048.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ magnet:?xt=urn:btih:CF5ACF380FA97ABC73515A06593F3A023A052145
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107049.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ magnet:?xt=urn:btih:6E948DAE30B8CC7867BD8E69A1BFFF04ACC22B3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107050.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107051.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:96AC0251B2C514FB8C9A8916B114E36085BC27DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107052.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:81482121FA534240EE24C7E2DE5E7DC6FC4E8172
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107053.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ magnet:?xt=urn:btih:5EDDF261F7DD0323A0691A1066CE20499460FAA9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107054.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107055.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107056.jpg" />
 </div>
 
 
@@ -313,7 +388,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107057.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ Kryptos - Decimator (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107058.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ Howard McGhee & Illinois Jacquet - Here Comes Freddy (1976) 1990, Sonet Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107059.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ magnet:?xt=urn:btih:E8071A2EB39FA891DC6E06844657F018EC620A20
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107060.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ magnet:?xt=urn:btih:6DB14936FADCDFED1E0356E99233BC16A0B7AFAB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107061.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107062.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:7601E4B232BBDFD32D4F091DFE1DA7ABF1B83F40
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107063.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ Sumatra PDF 3.6.16388 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107064.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ magnet:?xt=urn:btih:65B55E7933B55F34B17B17E3BD5258550D7E5011
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107065.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ magnet:?xt=urn:btih:CD613C12AF62913C8C84B2F8EB4834E608033F13
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107066.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107067.jpg" />
 </div>
 
 
@@ -578,81 +653,6 @@ VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26151952F9C7A9FF9CB2D1505B1C7F5352A1000A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734872   (107068) от 05.07.2024
-
-VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Chill Coast (3:41)
-02. Autonne - Under the Sea (3:53)
-03. Lounge Groove Avenue - Lime Lights (2:52)
-04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952F277E5B14B78ED0164E2FA9FCFF95D0F70E3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734824   (107069) от 05.07.2024
-
-Золото Рейна / Золотой инкассатор / Rheingold (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107069.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, основанная на реальных событиях. Сначала беженец, потом мелкий преступник, а потом крупный наркодилер. За смелость и жестокость его прозвали Опасным. Теперь у него новая цель – стать звездой хип-хопа. Но как это сделать, когда тебя упекли за решетку? История становления рэпера и немецкого хип-хоп-рэпера, предпринимателя и бывшего заключенного Гивара Хаджаби.Производство: Германия, Италия, Нидерланды / Bombero International, Corazón International, Lemming Film, Palosanto Films, Rai Cinema, Warner Bros. Film Productions GermanyЖанр: драма, криминал, биография, музыкаРежиссер: Фатих АкинАктеры: Эмилио Сакрая, Мона Пирзад, Кардо Радзаци, Согол Фагани, Хусейн Топ, Арман Кашани, Денис Москитто, Энсар Альбайрак, Угур Юджель, Самир ЖебреллиПеревод: Дублированный (Pride Production), Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced, Full), Английские, Немецкие (Forced)Продолжительность: 02:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D82C55EA9F8870E2586716FD4CE05ACCCCCFC4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734877   (107070) от 05.07.2024
-
-Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste / Ingeborg Bachmann - Journey Into the Desert (2023) WEB-DL [H.264/1080p] [звук с TS]
-
->>Горячие новинки
->>Экранки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ингеборг Бахман и Макс Фриш, настоящие рок-звезды литературы, впервые встречаются в Париже летом 1958 года. Они страстно влюбляются друг в друга, но профессиональные и личные амбиции начинают разрушать гармонию.Производство: Австрия, Швейцария, Германия, Люксембург / Amour Fou Luxembourg, Amour Fou Vienna, HeimatfilmЖанр: драма, биография, историяРежиссер: Маргарете фон ТроттаАктеры: Вики Крипс, Рональд Церфельд, Тобиас Самуэль Реш, Бэзил Айденбенц, Луна Ведлер, Марк Лимпах, Ренато Карпентьери, Катарина Шмаленберг, Никкель Бёзенберг, Филип Леонард КельцПеревод: Дублированный (звук с TS)Язык озвучки: Русский, НемецкийСубтитры: Немецкие (forced hardsub, на иностранную речь)Продолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD65A030EDA1D6B3A2E63231F72B696D5BE1A98
 ```
 
 

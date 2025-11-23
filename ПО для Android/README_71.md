@@ -1,3 +1,76 @@
+###  Публикация: 1593931   (203466) от 27.01.2023
+
+LibriVox Аудиокниги Pro v10.13.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203466.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibriVox Аудио книга Сторонник предлагает неограниченный доступ к более чем 24 000 бесплатных аудио книг - без рекламы. Каждый аудио книга LibriVox может передаваться через Интернет или загрузить для последующего использования без каких-либо обвинений. Приложение LibriVox Аудио книги включает в себя списки для новых записей, показывая классические бестселлеры и из (   Читать дальше...   )Тип издания: Paid / Pro с МаркетаРелиз состоялся: 26.01.2023Разработчик: BookDesignПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655885   (203808) от 28.08.2023
+
+365Scores: Live Scores & News 12.9.5 Mod by ModdingUnited [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203808.jpg" />
+</div>
+
+
+###  Подробнее
+
+365Scores — это полноценное спортивное приложение: оно охватывает огромное количество видов спорта и соревнований со всего мира , а также самые последние прямые трансляции футбольных матчей, баскетбола, тенниса и других видов спорта.
+Выберите предпочитаемую команду, лиги и соревнования и будьте готовы получить всю информацию, которая может вам понадобиться.Тип издания: PremiumРазработчик: 365Scores LTDПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6A279E66336ACBBD1B4B0FD833F06AA5138770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574063   (203821) от 19.01.2023
+
+Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это лучшее приложение для удаления фона, которое позволяет с помощью инструментов с ИИ автоматически вырезать картинки, удалять фон и делать прозрачные PNG-фотографии высокого качества.Тип издания: Mod / ProРелиз состоялся: 12.12.2022Разработчик: InShot Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF879D93DF30AF9D0372B9C56F58EECECE60FDC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655906   (203922) от 28.08.2023
 
 Screen Lock Pro 5.1.2p_ap Mod by Balatan [Ru/Multi]
@@ -6,7 +79,7 @@ Screen Lock Pro 5.1.2p_ap Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203922.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203922.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ GPS Локер Prime v2.4.4 Mod by No_Hammer [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204193.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204193.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ FaceLab v2.19.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204257.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204257.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204358.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204358.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204467.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204467.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204474.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204474.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204515.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204515.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204540.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204540.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204606.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204606.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ Moon+ Reader Pro 8.3 (803004) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204776.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204776.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ One Shield Plus 2.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204802.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204802.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ Kiwi VPN Proxy: Safer & Faster 43.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204963.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204973.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204973.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205021.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205021.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ BSPlayer Pro 3.18.246-20230801 Mod by master1274 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205040.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205040.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205077.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205077.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205159.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205159.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by KirIif' [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205194.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205194.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Photomath Plus 8.28.0 (b70000935) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205229.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Moovit v5.103.0.556.556 Mod by Joipoi [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205258.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205258.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ MyMovie - Видеоредактор 12.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205264.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ KillApps: Закройте приложения v1.27.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205315.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205315.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by ImanAlien [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205388.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205388.jpg" />
 </div>
 
 
@@ -558,78 +631,6 @@ Node Video - один из самых мощных видеоредакторо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8C40520D4E5FA8ED0DDD5365A9B42F530EE544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467198   (205514) от 06.08.2022
-
-ElectroCalc v3.2 Pro [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ElectroCalc в основном предназначено для расчетов силовых электронных схем. Это приложение полезно тем, кто проявляет интерес к электронным схемам, которые могут рассчитывать схемы, такие как таймер NE555 для нестабильного и моностабильного с операционным усилителем внутреннего обзора для инвертирования неинвертирующих суммирующих усилителей последовательные (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 30 июля 2022 г.Разработчик: SolarElectroCalcПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B13698CE2B23890F2B0B5C4BDB85FC007ECA763
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568149   (205559) от 06.08.2022
-
-Фоторедактор Fotor 7.3.11.135 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор Fotor - мощное приложение, что является одновременно и редактором для фотографий и платформой на которой можно рекламировать и продавать свои творения. Программа взаимодействует с фотобанком и тем самым обеспечивает внимание со стороны потенциальных покупателей. Ну а мощный набор функций, инструментов, эффектов и всего прочего поможет существенно улучшить (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.07.2022Разработчик: Everimaging Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7442BC2811A7A24E0BD27010B98D2C08E7F226A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654348   (205744) от 20.08.2023
-
-Flowx: Weather Map Forecast 3.404 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flowx: Weather Map Forecast - это приложение для всех поклонников погодной тематики, которые переросли стандартные варианты с плашками, красивым оформлением и всем прочим, что разработчики пытаются внедрить в свои проекты. Данный вариант больше подойдёт для профессионалов, которые не чураются впечатляющих спецэффектов и приятной анимации. Они получают визуализированный (   Читать дальше...   )Тип издания: ProРазработчик: Flowx Weather AppПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D029D22FEE074503A4C4570BAA1203E8EA72D59B
 ```
 
 

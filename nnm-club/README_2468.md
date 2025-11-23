@@ -6,7 +6,7 @@ Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64916.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64917.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F897A95F27FB7377D388E278C650EEAFB38A26DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:96BFC7ED4C4724215E41461CE780F26EBF6743DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64919.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F43E6CB85F5A40B1E22DFF3CAF99B2AC8FDC0915
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64920.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BEDC0B70E74A3E69AC452BBB0606FBA3170AF7EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64921.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:90E524341031604C98A76DDCE926A940F1A97A69
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64922.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Temptress - Catch The Endless Dawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64923.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A262F61518349AE6A92B849D6029B4C0A81FBADB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64924.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:254D1352D0DDBEE86F62E5CEEA6474F0E5F875AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64925.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Jerome Richardson - Midnight Oil (1961) 2009, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64926.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:B925F29F17B4B3ACCD4533C305D3F8FA41BEE241
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64927.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:AB4C7EFE033012988FB98025D5F515238A9FE83F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64928.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:64903A78EFE24C592DEC82DAD7BE76012E740403
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64929.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:260AA610D1F50ADDA89C71E1A03D0F953A3EE170
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64930.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cold Slither - Cold Slither (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64931.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AEA6B3393C0D90FAA2008A67BFA9A013B9E5EF60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64932.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:C77A1A189665525C44BD74CAF3EB2ACB02C62388
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64933.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:F8B48297B9DFCB6BFC8A5882ECB44DE8494FE462
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64934.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Honeymoon Suite - Wake Me Up When The Sun Goes Down (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64935.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:AF30A8B74B11828A691AF3CC7060B7EF107397C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64936.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Anita O'Day - The Lady Is A Tramp (1952, 1957) 1991, Polygram [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64937.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:BDD65F2AEECF9F4455ACD5D4E7574C217157514D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64938.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9B1615AF45B3759122047C6F29485E9C3B839BBB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64939.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Ori Uplift - Uplifting Only Episode 650 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64940.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6732C5200EBD3E9A762EF031578D857E7665169C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64941.jpg" />
 </div>
 
 

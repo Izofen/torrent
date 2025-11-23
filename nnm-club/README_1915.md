@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50146.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5C15084829CD3B2AD31459539409F76BE6FC63B7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50147.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CC98B6B2640DA43C025231C871A5DEB508484F88
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50148.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Happy Birthday to Me! (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50149.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:87D9A47A563B3CA2687BCFB4D9F118059E081A2F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50150.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E6CD234422C39089070FA244CE5FDFAE0CAC440C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50151.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EEFF31417DF804495BBB4F01ABEB7FB062D28435
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50152.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Master PDF Editor 5.9.85 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50153.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:01CD53FC5456F31F34845B742F940538E6D8F10E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50154.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:85934714EF2348319CD9CA86A871BBF6C9BD7748
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50155.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F3D71A099CD7A77A01DC22B4B2B2DEC2B7ACBEF7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50156.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7C846AE454FD92712426227052B29067C43C7DB0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50157.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6BE016099496A2822FCE9878B2E629A6DC439B70
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50158.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D2F72B756DE2748C96A5B206940EB4EFD6085956
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50159.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0B3DED161C9B2E317CAE8A599DEDC022798D8100
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50160.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:96435FED0713DADA2A30F1DF56514221665F8EDC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50161.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:CD918499500F6801F97FEA2301AC8872220222B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50162.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50163.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50164.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:86CD207A05B924B8E9A8C93FE9565D9EE9C02248
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50165.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50166.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Nik Collection by DxO 6.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50167.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Rock Love Songs (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50168.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:F7F7B2C69643D95734875EEA7B53A45176EE8F01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50169.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:92C1C38155F67E1FA0EDCADCECA2343440351821
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50170.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1599256   (160063) от 22.12.2022
+
+Aiseesoft HEIC Converter 1.0.26 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертировать HEIC в JPG / JPEG / PNG на Mac.
+Apple использует HEIC в качестве формата изображения на устройстве с iOS 11. Это может быть заменой формата изображения JPEG, поскольку это не снижает качество изображения, но экономит память на устройствах. Неудобно, что он несовместим с устаревшей iOS или другими платформами. JPG и PNG гораздо более совместимы, так (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12506D7849058D37BE52E89BD28650E79E066147
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599170   (160065) от 22.12.2022
+
+Advanced Installer 20.2 RePack (& Portable) by xetrin [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10/11, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10/11.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9064C96E2BFBFA092077697B01618B5DCE5109F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675354   (160069) от 09.11.2023
+
+Start11 Version 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stardock Start11 – новая версия приложения для настройки меню «Пуск», на этот раз с функциями, специально предназначенными для Windows 11. Как вы, наверное, уже знаете, Windows 11 поставляется с новым дизайном меню «Пуск», вдохновленным Windows 10X, с основными изменениями, включая новое расположение на экране и отсутствие живых плиток.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C24ADF63C71039E53DF7260C5BE6F6295E58C46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675187   (160074) от 09.11.2023
 
 Start11 Version 2.0 BETA 1.02 [Multi/Ru]
@@ -6,7 +79,7 @@ Start11 Version 2.0 BETA 1.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160074.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ MAGIX Samplitude Pro X7 Suite 18.2.0.22559 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160079.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Sandboxie plus 1.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160082.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Adobe Media Encoder for Mac 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160091.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Sandboxie 5.61.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160093.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Adobe Photoshop Lightroom 9.0.1 (arm64) / 8.2.3 (arm7) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160095.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ HWiNFO 7.35 Build 4940 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160097.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160101.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Macrorit Data Wiper 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160104.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Eon Timer 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160106.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ Luminar Neo 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160110.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ VueScan Pro 9.8.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160115.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ magnet:?xt=urn:btih:5CF4A9131B99F7129FE65108F9AD18AC518537D4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160116.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ VideoProc Converter 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160120.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ Perfectly Clear WorkBench 4.2.0.2372 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160122.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ Adobe Photoshop Express 11.4.156 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160125.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ iStatistica Pro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160134.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ DearMob iPhone Manager 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160136.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ Cockos REAPER 6.72 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160139.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ KiCad 7.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160148.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ FotoJet Collage Maker 1.2.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160150.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ MEmu 9.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160156.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ VueScan Pro 9.8.21 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160157.jpg" />
 </div>
 
 
@@ -549,79 +622,6 @@ VueScan - программа предназначена для замены ст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DEED850812D7B678E46471685A6D6EE2AC2632B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675443   (160161) от 09.11.2023
-
-TweakPower 2.047 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160161.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33D274B87EDB181DF6BC83E44147459F26372B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675588   (160163) от 09.11.2023
-
-FotoJet Photo Editor 1.1.7 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160163.jpg" />
-</div>
-
-
-###  Подробнее
-
-FotoJet Photo Editor - позволяет каждому стать экспертом по редактированию фотографий в кратчайшие сроки. Программа позволяет вам не только редактировать фотографии и легко применять удивительные фильтры, но также добавлять наложения, рамки, текст, клипарты и т.д., чтобы легко подправить ваши изображения.
-Являетесь ли вы новичком или профессионалом, FotoJet Photo (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F1E23270F3FE07E8D18C531855F04AD6DAECC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675613   (160164) от 09.11.2023
-
-Topaz Video AI 4.0.3 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489033A1B4AA8E49E7E79DFA9E8AB4BB34CE7CA3
 ```
 
 

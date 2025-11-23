@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FCB60035B7076ADE396DEE433503E68630F46476
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6608AE18D7E5A96F7DC01CCE8B6EE97B77B4CBE7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32699.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1C88930CC3E5BC20BAE8D843124DF9012F8DE028
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32700.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5862507815A4A073228BC81DCCB2BECF58ECDE23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32701.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5862507815A4A073228BC81DCCB2BECF58ECDE23
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32702.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:51F5150FC3B9C9367ED450116799A46C872E7797
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32703.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:761FAFBDD20A042A55EDAA42AFD25929D045E7DB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32704.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:7F945DA43887BA0C4E03A606D02615990E0B1C92
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32705.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:6DEF25C5C44DC5316116472BA32027D541E4784B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32706.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C5B4FB0124A989C999E5AB9FF2B2D62071F41189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32707.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:66D6D4D265696460017B5A525596C050E382BB1F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32708.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:40E8CB1DC47041032B931CCAA49E815A15DE2E4F
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32709.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:12AFAFDA1E3BE93A27B1043DD579879527A4BFB0
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32710.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:DDA6E63865AD8B9B441B46A9F35BFB96FF602390
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32711.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3E0ECC1205D4BD964EB620D819DF33B0C7E88E82
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32712.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:8719FF3B48A2F3101B7C7323532DDDA03B35FA85
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32713.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:6BEA8D1DEFB26E2C7B69610165D125CBAA85B217
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32714.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:41CB96592135FCD7194F30613062976D086A56B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32715.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5C9D79CCC26992546561D43C5A4B8DDD140B4D35
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32716.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Young Detective: The Mutation v1.2.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32717.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32718.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A2C7CDFC7F9BAFAAD884FBAA25AA96B19B531AF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32719.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - SAW 4 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32720.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:50D46651C5730688FF97A57C7DC3ABF7A49E1362
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2AD2D05490848DE831555ACBF0FA3D7487AC8968
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32722.jpg" />
 </div>
 
 

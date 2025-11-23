@@ -6,7 +6,7 @@ Ant Download Manager Pro 2.15.1 Build 89455 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25430.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Capture One 23 Enterprise 16.5.8.2763 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25431.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Driver Store Explorer 0.12.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25434.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25434.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ USB Device Tree Viewer 4.5.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25435.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Brave Browser 1.76.73 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25437.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25437.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ RAM Saver Professional 25.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25438.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25438.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F13DC34DA64294905A2795E22D6A1B212475A11B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25464.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Acrobat Pro 2025.001.20428 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25480.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VMware Workstation 17 Pro 17.6.3 Build 24583834 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25500.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Google Chrome 134.0.6998.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25503.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alfa eBooks Manager 9.1.24 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25507.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PrivaZer Pro 4.0.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25511.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Firefox Browser 136.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25515.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Magic Eraser / Магический ластик v2.20.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25519.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Firefox Browser ESR 128.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25525.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Free Download Manager 6.26.0.6142 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25544.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25544.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.15 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25549.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25549.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Antivirus Removal Tool 2025.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25555.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25555.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v23 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25557.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25557.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ GPS Compass Navigator v2.20.33 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25559.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ XRecode 3 1.164 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25561.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tor Browser Bundle 14.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25576.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25576.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v23 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25577.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25577.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Microsoft  Visual C++ Runtimes AIO v0.88.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25583.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25583.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34918.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25584.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25584.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Jigsawscapes® - Пазлы v3.7.10 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25609.jpg" />
 </div>
 
 

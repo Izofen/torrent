@@ -6,7 +6,7 @@ Kendra M. L. Cooper, Antonio Bucchiarone | Software Engineering for Games in Ser
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171372.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1ACF25765E273EFB96931E15311AEF13BE3A5AD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171491.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Chi Wang, Donald Szeto | Designing Deep Learning Systems (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171517.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171642.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171645.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171708.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171737.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:08716DCE862C8919631E54BCEB0464B3AFB34BBE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171790.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5A77B8F2BC404231D1F9BF067F92D5F1B9ED2563
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171793.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E17C40EAEEED6BDB418E6F3210D694B08161F514
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171891.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:8D39A519A8BA0B58A94D472137E1C42A8A4F5A12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172048.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sufyan bin Uzayr | CSS Frameworks: The Ultimate Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172060.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Stefan Baumgartner | TypeScript Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172063.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172187.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172189.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172201.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kaiwan N Billimoria | Linux Kernel Programming (2021) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172395.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Radu Nicoara | How to be a Web Developer (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172449.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Vaskaran Sarcar | Introducing Functional Programming Using C# (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172559.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Josh Goldberg | Learning TypeScript (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172610.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Anna Skoulikari | Learning Git (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172751.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Peter Spath, Chris Schaefer, Iuliana Cosmina | Pro Spring 6 with Kotlin (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172794.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Maaike van Putten, Sean Kennedy | Java Memory Management (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172810.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ahmad Sahar, Craig Clayton | iOS 16 Programming for Beginners, 7th Edition (2022
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172826.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:26A200EFE01DA4CC1A92C8C91FBDFB65558582FA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173085.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:6E76E01F9D98585E4352B5E332556EC918CD4D02
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173086.jpg" />
 </div>
 
 

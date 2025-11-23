@@ -1,3 +1,182 @@
+###  Публикация: 1675032   (160652) от 07.11.2023
+
+Благовест | О святых иконах (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра рассказывает о том, что представляют собой иконы и для чего они нужны; объясняется разница между иконой и портретом; раскрывается значение разных символов на иконах; большое место уделено истории появления и развитию иконописного творчества в истории Церкви, а также полемике с иконоборцами и догматических основаниях иконопочитания в Православной (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F019CDA5DD8F1358C63493ABCAF8A2F3F7A43D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675014   (160653) от 07.11.2023
+
+Галина Романова | Лабиринт простых сложностей (2023) [MP3, Максим Ушаков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник Хмельнова имела неосторожность назвать новое дело банальным. И как сглазила! Стройная версия рассыпалась, все запуталось, и кого подозревать в совершении убийства, непонятно… А началось все с того, что две подруги не поделили парня. Алла пригласила Ирину в гости, рассказала, что собирается уезжать с любимым Иваном на Сахалин, даже продает квартиру. В разгар (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20677F7A1F6EA581CFB99FE69040E13B1D500869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674854   (160654) от 07.11.2023
+
+Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Border Of Reality
+02. No More Faith
+03. Nightmare
+04. Centuries(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0C7698CA6D14929429F6C4241EF6336CFD72A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674754   (160655) от 07.11.2023
+
+Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160655.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wiseman
+A2. Alley Cat
+A3. The Angelmaker
+B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675020   (160656) от 07.11.2023
+
+Сибирская Благозвонница | Читаем Евангелие с детьми (2022) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой подробный, по стихам, разбор Евангелия от Луки, поданный в форме непринужденной беседы отца со своими четырьмя детьми. Разговор о Евангелии, предельно серьезный и глубокий, тем не менее остается доступным для восприятия ребенка и подростка. Автор говорит о важных и порой непростых вещах понятно и объясняет требующие толкования евангельские (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15810C95E3984C892F654D4B269A5E92D7B244C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675000   (160657) от 07.11.2023
+
+Be Focused Pro - Focus Timer 2.4 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
+«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
+Be Focused Pro - сосредоточитесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 XwavesoftПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC32D47487F2E8CB85508EFF8FE1F70D8F0EF36C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674795   (160658) от 07.11.2023
+
+Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На смерть поэта 5:57
+ 02. Моя философия 6:02
+ 03. Город 4:46
+ 04. Ветер души 3:58(   Читать дальше...   )Жанр: Symphonic Gothic Power MetalПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2E55389718641D28028EDC3B831B2747B0D7EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675009   (160659) от 07.11.2023
 
 FonePaw iOS Transfer for Mac 5.7.0 [Multi]
@@ -6,7 +185,7 @@ FonePaw iOS Transfer for Mac 5.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160659.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ Radioactive - Taken (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160660.jpg" />
 </div>
 
 
@@ -57,7 +236,7 @@ Degreed - Lost Generation (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160661.jpg" />
 </div>
 
 
@@ -84,7 +263,7 @@ Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160662.jpg" />
 </div>
 
 
@@ -111,7 +290,7 @@ Joshua Redman - Where Are We (2023) Blue Note Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160663.jpg" />
 </div>
 
 
@@ -138,7 +317,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -162,7 +341,7 @@ magnet:?xt=urn:btih:34B93396C8649C01FB33998D3D9702FA94C25B3A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160665.jpg" />
 </div>
 
 
@@ -186,7 +365,7 @@ magnet:?xt=urn:btih:9FE78998F1048A3DC3DCF39CB5236165E19D9775
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160666.jpg" />
 </div>
 
 
@@ -210,7 +389,7 @@ Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160667.jpg" />
 </div>
 
 
@@ -237,7 +416,7 @@ magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160668.jpg" />
 </div>
 
 
@@ -261,7 +440,7 @@ magnet:?xt=urn:btih:1FCA278C07623DF431435D785B30F9F676E7FB97
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160669.jpg" />
 </div>
 
 
@@ -287,7 +466,7 @@ Privatus 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160670.jpg" />
 </div>
 
 
@@ -311,7 +490,7 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160671.jpg" />
 </div>
 
 
@@ -338,7 +517,7 @@ magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160672.jpg" />
 </div>
 
 
@@ -365,7 +544,7 @@ Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160673.jpg" />
 </div>
 
 
@@ -392,7 +571,7 @@ Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160674.jpg" />
 </div>
 
 
@@ -419,7 +598,7 @@ Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160675.jpg" />
 </div>
 
 
@@ -446,7 +625,7 @@ Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160676.jpg" />
 </div>
 
 
@@ -473,7 +652,7 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160677.jpg" />
 </div>
 
 
@@ -487,186 +666,6 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578122682174B711742E4210F536E91108C55F08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674774   (160678) от 07.11.2023
-
-Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignem Purificat Lilitu
-02. Fearless Dominance
-03. Opus ad Errantem (instrumental)
-04. De verloren tijd(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FCF931D2EDFC1572BFC9982E76308600138022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674975   (160679) от 07.11.2023
-
-MWeb Pro 4.5.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160679.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BFB831AC489273BDE4E6FFD3849BFE992425DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674989   (160680) от 07.11.2023
-
-Slidepad 1.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160680.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB157676EB9D9250118218FB6A09712AF9D0FC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674986   (160681) от 07.11.2023
-
-SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160681.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD0EFC197D23BD832553264299A28B1B00BBD49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674779   (160682) от 07.11.2023
-
-Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IntroЖанр: Thrash MetalПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAFEB35F5BA9B8E3A49E7179D6C2ACACE62C00D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674861   (160683) от 07.11.2023
-
-Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poseso 03:47
-02. Sincronizado 04:04
-03. Mensaje oculto 03:19
-04. Provocacion 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03557961D6A9C5D46CDE4B02C7C43F775E09A4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674859   (160684) от 07.11.2023
-
-Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Live
-02. The One You Are
-03. Enjoy!
-04. Fly Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D850B76CB30F6F805603A1E921CE137B3FF82A
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1823907   (126104) от 13.10.2025
+
+Заклятие 4: Последний обряд / The Conjuring: Last Rites (2025) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи паранормальных явлений Эд и Лоррейн Уоррен берутся за самый страшный случай в своей практике. Семья переезжает в новый дом, но вскоре жилище начинает проявлять признаки демонической активности, превращая жизнь новых жильцов в кошмар.Производство: США, Великобритания, Канада / Atomic Monster, New Line Cinema, Warner Bros.Жанр: ужасы, драмаРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Миа Томлинсон, Бен Харди, Стив Култер, Ребекка Калдер, Эллиот Кауэн, Бо Гадсдон, Кила Лорд Кэссиди, Джон БразертонПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BB44F3D12D77E2C064C2F70A27004AB354E0E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823753   (126105) от 13.10.2025
+
+Книжная серия | Очевидец. Обо всём на свете [32 книги] (1995-2001) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия познавательных иллюстрированных энциклопедий от транснационального издательства, созданного в 1974 году, в сотрудничестве с Британским музеем. Серия «Eyewitness ® Guide» была разработана издательством «Дорлинг Киндерсли Лимитед» совместно с издательством «Галлимар».Жанр: ЭнциклопедииИздательство: Дорлинг КиндерслиФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A079EDDB48C50E9355855F3BF50EDED9CED4F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823832   (126106) от 13.10.2025
+
+Чужой против Хищника / AVP: Alien vs. Predator (2004) BDRip [H.264/1080p] [Extended cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши дни. Группа ученых отправляется в Антарктиду, чтобы отыскать колыбель цивилизации, царившей на Земле многие тысячелетия назад. Под толщей льда они находят пирамиды, в которых обнаруживают человеческие скелеты и следы жизнедеятельности чужих.
+Однако они еще не знают, что уже находятся под колпаком у хозяев этого города - хищников, и их дни сочтены. Человеческая (   Читать дальше...   )Производство: Чехия, Великобритания, Германия, Канада, США / 20th Century Fox Film Corporation, Brandywine Productions Ltd., Charenton Productions LimitedЖанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Пол У. С. АндерсонАктеры: Санаа Лэтэн, Рауль Бова, Лэнс Хенриксен, Юэн Бремнер, Колин Сэлмон, Томми Флэнаган, Джозеф Рай, Агат Де Ла Булае, Карстен Нёргор, Сэм ТротонПеревод: Дублированный (BD CEE) / со вставками многоголосого, / многоголосый  (Kinomaniya), (Kinoteatr TV), авторский (Гаврилов)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC41A78CB6FC4C573D2E88AEA57FB978A0FDECC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823862   (126107) от 13.10.2025
 
 Чужие против Хищника: Реквием / AVPR: Aliens vs Predator - Requiem (2007) BDRip [H.264/1080p] [Theatrical Cut]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126107.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Telegram Desktop 6.2.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126109.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:6DE248794C6DF04873D92713CF10EF09210233C3
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126110.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:75432FB43B44F6A1E3483E5EDF622F6C2B6752BC
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126111.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:CCC65FEBCD64DB6C38434DB1863712D43D1DD11D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126112.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126113.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126114.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:760586AB5F7DB724A1BFCC4CB2B0BBEB0BAFF83A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126115.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ magnet:?xt=urn:btih:A50D59015F41C2D560DF3A540E966EA65C04FD09
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126116.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126117.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ GoodSync Enterprise 12.9.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126118.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ One Read / Все Документы Читатель - Офис v1.2.6 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126119.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126120.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ magnet:?xt=urn:btih:5879891745344662CE74C28F80FA3DDA0506687B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126121.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ VA - Relaxed & Refined (The Chillout Experience) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126122.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ magnet:?xt=urn:btih:6DF1F61301DD455F296B61E90153BE635FDEADD5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126123.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ VA - Massage Music (Soothing Vibes for Massage Bliss, Bodywork, and Total Relaxa
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126124.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ magnet:?xt=urn:btih:65FBEE45F15301833ED0C1C209E80F4D937BF0FD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126125.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ Magic Eraser / Магический ластик v2.23.22 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126126.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ Process Lasso Pro 16.0.3.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126127.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ magnet:?xt=urn:btih:3CCA7781D26ED62DF12E9F799C59066D26C8F82F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126128.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:837FF7D93CD1BCD532D92D43ED7B2ACFAC9C7DBF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126129.jpg" />
 </div>
 
 
@@ -561,79 +634,6 @@ magnet:?xt=urn:btih:837FF7D93CD1BCD532D92D43ED7B2ACFAC9C7DBF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0919B38A10FED536F81EA3CD435FB5D5A71BCCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823742   (126130) от 12.10.2025
-
-Дзига Вертов. Шестая часть мира (1926) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм был профинансирован государственной монополией внешней торговли — Экспорт и импорт Госторга СССР. Госторг заказал фильм для продвижения своего имиджа и популяризации своей деятельности в годы новой экономической политики (НЭП).
-Госторг предложил Вертову щедрый бюджет, достаточный для финансирования десяти экспедиций в отдаленные районы Советского Союза и съемки (   Читать дальше...   )Жанр: документальный, история, немое кино, советский киноавангардРежиссер: Дзига ВертовЯзык озвучки: фильм немойСубтитры: русские интертитрыПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EC690066B04ED523EC4EF049AD09783FD5C294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823704   (126131) от 12.10.2025
-
-Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (2024) WEB-DL [EN / En Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс. Меня зовут Онер . Большинство из вас знают меня по моим обучающим видео и видеоурокам на YouTube. На моём канале YouTube более 400 обучающих видео и видеороликов с рабочими процессами. У меня более 16 лет опыта в архитектурной визуализации и 3D-дизайне. Я работал над многими проектами по визуализации архитектуры интерьера и экстерьера, а (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 03:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DBDE9CE0CFA8D264CB417281EB7CD94D754EF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753275   (126133) от 13.10.2025
-
-Честь дракона 2 / Tom yum goong 2 (2013) DVDRip [VO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126133.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Влиятельного владельца слоновьего заповедника Сучарта убивает неизвестный эксперт по боевым искусствам, использовавший три удара по смертельным для жизни точкам, и Кхам становится основным подозреваемым в убийстве, так как он был последним, кого видели на месте преступления. Ему пришлось бежать от властей, тем временем за ним начали охоту двойняшки — племянницы (   Читать дальше...   )Производство: Таиланд | Sahamongkolfilm Co.Жанр: БоевикРежиссер: Прачья ПинкаюАктеры: Тони Джа, Маррезе Крамп, Йанин Висмитананда, Винс Макилинг, Уджал Тхапа, Эдди Руис, Эдгар Варгас, Джон Данг, Джавед Эль Берни, Рэйден Интегра, RZA, Патрик Тэнг, Петчтай ВонгкамлаоПеревод: Одноголосый закадровый, любительский (Zelesk)Субтитры: ОтсутствуютПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57F0E6775139B16B0648FED9902D6735584EA06
 ```
 
 

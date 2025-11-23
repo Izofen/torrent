@@ -6,7 +6,7 @@ Dr. Folder 2.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209932.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CyberLink Screen Recorder Deluxe 4.3.1.25422 RePack by PooShock [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210287.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Product Key Explorer 4.3.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211801.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Screaming Frog SEO Log File Analyser 6.4 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212131.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212131.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MyPhoneExplorer 2.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212171.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212171.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ManicTime 2025.3.0.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212192.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212192.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Screaming Frog SEO Spider 23.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212391.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212391.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ TechSmith Camtasia 25.2.4 Build 12581 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212441.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ O&O ShutUp10++ 2.1.1015 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212445.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212445.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ TechSmith SnagIt 2025.4.0 Build 8498 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212497.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 11 Disable Or Restore Rounded Corners Portable 1.0.0.3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212998.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212998.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Photo EXIF Manager 3.0 Re-Pack & Portable by FoXtrot [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221598.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Pic-a-Pix Puzzle World 6.3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222143.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222143.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224618.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Image Comparer 3.8 Build 713 RePack (& Portable) by Trovel [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225378.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VoxCommando 2.2.4.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228698.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228698.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ PDF Compressor 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230395.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230395.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ PDF Password Remover 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230400.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Photo Album GPS Mapping Tool 2.8.4.777 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232513.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232513.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ iObit Start Menu 8 6.0.02 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233996.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235882.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235882.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Alternate Password Generator 1.140 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236368.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236368.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Winstep Nexus Ultimate 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236980.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Winstep Xtreme 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237047.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237957.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237957.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Your Universal MultiBoot Installer (YUMI) 2.0.9.4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238586.jpg" />
 </div>
 
 

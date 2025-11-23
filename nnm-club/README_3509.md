@@ -1,3 +1,84 @@
+###  Публикация: 1718460   (110916) от 25.04.2024
+
+Pectora - Twilight Knights (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - A Celestial Signal (01:40)
+2 - Twilight Knights (06:42)
+3 - Cold Void (05:05)
+4 - VIctory in Defeat (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCF936FC00075EB66E7DE87171EAB434C7BC706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718475   (110917) от 25.04.2024
+
+Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin Off (3:52)
+02. Dirty Rhythm (4:21)
+03. Fireback (3:15)
+04. Man on a Mission (4:35)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC9A548AB99FBD221E694C222CD7069D555826C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718490   (110918) от 25.04.2024
+
+Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Friendship [4:12]
+02. My Foolish Heart [3:38]
+03. I'll Take Romance [3:28]
+04. Get Out of Town [4:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718550   (110919) от 25.04.2024
 
 НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 2-й матч) Лос-Анджелес Кингз - Эдмонтон Ойлерз (24.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
@@ -6,7 +87,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110919.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ magnet:?xt=urn:btih:652AA308C2002D91C465AF062460D438D2A50087
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110920.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110921.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110922.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ magnet:?xt=urn:btih:2F1ECC0BF5D32C56803C256A39A8F62C5DC67CF5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110923.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ magnet:?xt=urn:btih:C5379A281B1D3A84B0E156B85155849708ED99A0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110924.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110925.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110926.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110927.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110928.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ magnet:?xt=urn:btih:AA5E191C44497C589CE1B0F2BCA63BDFF3EB0539
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110929.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ magnet:?xt=urn:btih:DA00D17F763683C43408BB119EA5192CCAA8A2D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110930.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110931.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ magnet:?xt=urn:btih:2561D8B0B5DC175ADB6D51EA40A5AEC5292FB2C4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110932.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ Strava: бег, велоезда, хайкинг v357.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110933.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ magnet:?xt=urn:btih:8A16528C872317ECD89E6A2A1029E1B97037AF8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110934.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ magnet:?xt=urn:btih:C225BDED818527ADEA2475931BE71614F33978A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110935.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ magnet:?xt=urn:btih:B2D1C4C004D7FF66850AB9EA17B149FAEC0F6595
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110937.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Vivaldi 6.7.3329.17 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110938.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ magnet:?xt=urn:btih:BE97F28DD3B25371212EEE8292819276C96F983C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110939.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ magnet:?xt=urn:btih:B9A95A225E9118C9A2C95AB728895039F55D6461
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110940.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110941.jpg" />
 </div>
 
 
@@ -565,81 +646,6 @@ Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B3C7FD1E9CEE99E070722F7401920BA42021415
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718559   (110942) от 25.04.2024
-
-Google Chrome 124.0.6367.79 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDF55A941343A15EE16AC6555CE14469F3FAA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718017   (110943) от 25.04.2024
-
-Механический Пёс - Benzin (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroclash, Breaks, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Queen [00:05:48]
-02. Electrical [00:05:13]
-03. Never look back [00:05:13]
-04. Old school [00:04:39](   Читать дальше...   )Жанр: Electroclash, Breaks, IndustrialПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA0DC27F537FBF548C12139440BBAEED93C687F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718549   (110944) от 25.04.2024
-
-Photo Lab PRO v3.13.7 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 18.04.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7359DCAB208E44AB018AE3CE6DF99CF8E277D306
 ```
 
 

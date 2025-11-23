@@ -1,3 +1,78 @@
+###  Публикация: 1716056   (111410) от 14.04.2024
+
+Судьба на двоих (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марина живет самой обычной жизнью: днем работает на швейной фабрике, а по вечерам ухаживает за пожилым отцом. Ей приходится браться за любые подработки, чтобы хоть как-то свести концы с концами. Неожиданно судьба сводит ее с солидным мужчиной на дорогом авто. Влюбившись с первого взгляда в Марину, он добивается ее и дарит настоящую сказку: дорогие рестораны, подарки, (   Читать дальше...   )Производство: Россия | «Авва-Фильм»Жанр: МелодрамаРежиссер: Руслан БальтцерАктеры: Эрика Булатая, Родион Галюченко, Сергей Борисов, Мария Глазкова, Христина Блохина, Татьяна Таушева, Татьяна Филатова, Александр Червов, Светлана Авдина, Ольга ТорощинаПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC47791DB7ABE76F1E4803DB872E728D167F1848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716229   (111411) от 14.04.2024
+
+Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая синтипоп-группа Новой волны, действовавшая с 1982 по 1987 год. Фронтменом группы является певица  Gabriele "Nena" Kerner (Нена Кернер), в состав группы также входили Йорн-Уве Фаренкрог-Петерсен (клавишные), Карло Каргес (гитара), Юрген Демель (бас) и Рольф Брендель (ударные). В 1982 году группа выпустила сингл «Nur geträumt», за которым последовал (   Читать дальше...   )Список альбомов:
+1983 - Nena
+1984 - ? (Fragezeichen)
+1984 - Nena (International Album)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 04:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716059   (111412) от 14.04.2024
+
+Зонтик для подруг (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ася, Лера и Надя – лучшие подруги со школы. У каждой из них своя налаженная жизнь, вот только отношения с мужчинами не складываются. Муж Нади после 20 лет брака ушел к беременной секретарше. Лера сразу после школы выскочила замуж и родила ребенка, но сына она давно уже воспитывает самостоятельно. Ее любовник Костик женат и из семьи уходить не собирается. Ася никогда (   Читать дальше...   )Производство: Россия | «Продюсерский центр "ТВИН"»Жанр: МелодрамаРежиссер: Кира АнгелинаАктеры: Анастасия Денисова, Юлия Юрченко, Лидия Милюзина, Тарас Кузьмин, Анна Калабина, Александр Дуда, Василий Шмаков, Михаил Данилюк, Егор Кузьмин, Кристина ЦветковаПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9569B2126213A6B70930836C1A1152D3CE8C05B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716058   (111413) от 14.04.2024
 
 Я тебя нашла (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111413.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Opera One 109.0.5097.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111414.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111415.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111416.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Subtitle Edit 4.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111417.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111418.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:2A7DE5D8855E4E17AEAAD59D07B36A7E48FD636E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111419.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111420.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111421.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111422.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ Oktay Kocamaz - No Money, no Honey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111423.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:D40EFB88709AED2470FFAD721622A37B2586EB79
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111424.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111425.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ magnet:?xt=urn:btih:1890356E74984F0B09D5A807A2A3C7A46F04748D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111426.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ magnet:?xt=urn:btih:6FAD1E4FD4C880C632C047D38B9331CC10C05891
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111427.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ I Am - Eternal Steel (2022) [FLAC|Lossless|image + .cue] <Death, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111428.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111429.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111430.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:E2FA93EF3FF6579809B26F2E17DD952451FC5981
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111431.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:9DE76934211BF28FD8417153F4CD05BE188ECA16
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111432.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111433.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111434.jpg" />
 </div>
 
 
@@ -572,7 +647,7 @@ Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111435.jpg" />
 </div>
 
 
@@ -586,82 +661,6 @@ Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47EE75C67B34795C5FD309074166DFBA9D4DFE62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715988   (111436) от 13.04.2024
-
-Сундук удачи / Chest of Fortune (1914) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтически-драматическая история парня, который во время гражданской войны (США) остался сиротой и даже не знал из какой он семьи. А вот папаша его возлюбленной, руку своей дочери готов отдать только молодому человеку из приличной семьи (что это такое?). А тут еще соперник интригует...
-Ну, такой себе фильм, не шедевр. И копия с дефектами.Производство: США, Kalem CompanyЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Джир Остин, Джон Мэкин, Джордж Холлистер мл., Джеймс Б. Росс, Хелен Линдрот, Генри Халлам, Дорис Холлистер, Гай Кумбс, Маргарит Коуртот, Harry F. MillardeПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BC46D6547D5E704676A6566075744A4EC329E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715763   (111437) от 13.04.2024
-
-Лига городов (2024) WEBRip [H.264/720p] (сезон 2, выпуск 10)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111437.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FE59D87A94BD3CF7697E40723F66409DCE5DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715830   (111438) от 13.04.2024
-
-Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex O'Rion – Elephant
-02. Alex O'Rion – Dank Farrik
-03. Alex O'Rion – Vale
-04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
 ```
 
 

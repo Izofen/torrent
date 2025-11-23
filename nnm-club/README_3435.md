@@ -1,3 +1,79 @@
+###  Публикация: 1725517   (108992) от 24.05.2024
+
+Arrows - First Hit (1976) Reissue CD, 2000, Repertoire Records [MP3|320 Kbps] <Pop Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108992.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Arrows были группой из Лондона, Англия. Участники и основатели группы Arrows: Пол Варли (1952-2008), Джейк Хукер (1953-2014) и Алан Меррилл (1951-2020).01. Onec Upon A Time (4:30)
+02. First Hits (4:25)
+03. Thanks (4:16)
+04. What's Come Between Us (3:35)(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E056576D320A97AE7AF6AD3C39416628DD3AD061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725427   (108993) от 24.05.2024
+
+НХЛ. Кубок Стэнли 2024. Запад - Финал. 1-й матч. Эдмонтон Ойлерз - Даллас Старз (23.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108993.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 мая 2024, пятница. 03:30 МСК. Финал - Запад. 1-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3D20B3B2BAE12DBEEECD8B2EDA208C26EC2CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725496   (108994) от 24.05.2024
+
+Не задерживайте движения (1930) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108994.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Октябрьской революции 1917 года в России уравняли в правах женщин и мужчин: теперь они могли выполнять одну и ту же работу и получать за нее одинаковую зарплату. Советские власти даже агитировали женщин обучаться «мужским» профессиям, чтобы увеличить рабочую силу. Однако не все были готовы к таким изменениям, поэтому власти начали снимать пропагандистские фильмы. (   Читать дальше...   )Производство: СССР / УкраинфильмЖанр: агитфильм, социальная драма, немое киноРежиссер: Павел КоломойцевАктеры: Николай Пальников, Вячеслав Гомоляка, Семен Грабин, Борис ЗагорскийСубтитры: русские (интертитры)Продолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9E6CEE6EACA1B6B41D2D262983CE60A66BB590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725450   (108995) от 24.05.2024
 
 HWiNFO 8.03 Build 5450 Beta Portable [Multi/Ru]
@@ -6,7 +82,7 @@ HWiNFO 8.03 Build 5450 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108995.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ VA - Fulltime Production Italo Disco, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108996.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:4BBD45F2FE5BF21DDC0A69D77ADC7E04F0FA5C18
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108997.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ magnet:?xt=urn:btih:6CE008C7BB3E6C08F43EEFFCE2F8472AAA1B83C7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108998.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ Speedtest от Ookla 5.3.7 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108999.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ magnet:?xt=urn:btih:CE32AB2665DFAE15A829B4A2378F32CD9E0D67BB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109000.jpg" />
 </div>
 
 
@@ -159,7 +235,7 @@ magnet:?xt=urn:btih:39DCC9007ADE3041BA503322963BC3223B1CBE8A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109001.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ Sound on Purpose - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109002.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ PhotoRoom 4.9.7 (b1416) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109003.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ Domination - Echoes Of Persecution (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109004.jpg" />
 </div>
 
 
@@ -261,7 +337,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109005.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ NetLimiter 5.3.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109006.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ XYplorer 26.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109007.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109008.jpg" />
 </div>
 
 
@@ -360,7 +436,7 @@ VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109009.jpg" />
 </div>
 
 
@@ -387,7 +463,7 @@ magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109010.jpg" />
 </div>
 
 
@@ -411,7 +487,7 @@ VA - Русская 30-ка хитов 2 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109011.jpg" />
 </div>
 
 
@@ -438,7 +514,7 @@ magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109012.jpg" />
 </div>
 
 
@@ -462,7 +538,7 @@ magnet:?xt=urn:btih:C33D859AE4C267BEC7919E070017B5B4A6578AFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109013.jpg" />
 </div>
 
 
@@ -486,7 +562,7 @@ Green Grey - The Best (2024) Remastered 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109014.jpg" />
 </div>
 
 
@@ -513,7 +589,7 @@ magnet:?xt=urn:btih:7C5A871AC7DA9A9FB6E6015FE8008A10C5F4EFE5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109015.jpg" />
 </div>
 
 
@@ -538,7 +614,7 @@ Vivaldi 6.7.3329.35 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109016.jpg" />
 </div>
 
 
@@ -562,7 +638,7 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109017.jpg" />
 </div>
 
 
@@ -576,84 +652,6 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725534   (109018) от 24.05.2024
-
-Савелий Гуреев | Рассказы о композиторах (2009) [MP3, Савелий Гуреев]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Беседы о музыке.
-Сборник рассказов с музыкальными иллюстрациями о великих композиторах написанный профессиональным искусствоведом Савелием Гуреевым.
-Вы услышите истории о жизни и творчестве Баха, Бетховена, Верди, Гайдна, Генделя, Гершвина, Глинки, Моцарта, Прокофьева, Рахманинова, Шопена, Шуберта, Шумана.Жанр: Биография, воспоминания, ЖЗЛИздательство: Вира-МПродолжительность: 00:37:11
-
-Из этого рассказа слушатели узнают немало интересного о жизни и творчестве одного из самых поэтичных европейских композиторов середины XIX века - Роберте Шумане. Великий музыкант не ограничивался сочинением музыки, он был еще и замечательным исполнителем своих фортепианных сочинений, составивших основное ядро его творчества, а также прогрессивным музыкальным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD76800EE895F872776FB86706BB1A07849C170F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725418   (109019) от 24.05.2024
-
-Sumatra PDF 3.6.16254 Prerelease + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76372944BA85D22ADF74AED8439A8CFB4987DC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725428   (109020) от 24.05.2024
-
-Q-Dir 11.65 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC68CB02D2CBC38EA1674F976538B857AF64773B
 ```
 
 

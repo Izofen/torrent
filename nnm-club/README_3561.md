@@ -1,3 +1,80 @@
+###  Публикация: 1712031   (112268) от 01.04.2024
+
+Марк Твен | Приключения Тома Сойера (2004) [MP3, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Марк Твен (1835–1910) – американский писатель.
+«Приключения Тома Сойера» (1876) – повесть о Томе и его друзьях. Том – мальчик из благонравной семьи, но ему не по вкусу жить по правилам провинциального городка, где мало места свободе и романтике. Он мечтает о вольной жизни, приключениях и подвигах. И поэтому никакие запреты взрослых (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 09:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C501234B14E5551921ED3E2537154509A26E5850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711920   (112269) от 01.04.2024
+
+Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture [04:25]
+02. Heaven On Their Minds [04:45]
+03. What's the Buzz? [02:26]
+04. Strange Thing Mystifying [01:54](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5415D2A9B362BB697C404A19CF425ECBB3A8456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711932   (112270) от 01.04.2024
+
+Закон и порядок / Law & Order (2000-2001) HDTVRip [H.264/720p] (сезон 11, серии 1-24 из 24) FOX Crime
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (FOX Crime)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59B3DF429C17D10114E7FBFDA20B96E00A140E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711915   (112271) от 01.04.2024
 
 Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Electro-pop, Downtempo, Indie Electronic>
@@ -6,7 +83,7 @@ Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112271.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ CudaText 1.211.4.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112272.jpg" />
 </div>
 
 
@@ -58,7 +135,7 @@ Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112273.jpg" />
 </div>
 
 
@@ -85,7 +162,7 @@ magnet:?xt=urn:btih:8D4A06A64840A01C7F6A4132BF151E4DDE08756D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112274.jpg" />
 </div>
 
 
@@ -109,7 +186,7 @@ Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112275.jpg" />
 </div>
 
 
@@ -136,7 +213,7 @@ Stoned Turtle - Blackout (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112276.jpg" />
 </div>
 
 
@@ -163,7 +240,7 @@ Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112277.jpg" />
 </div>
 
 
@@ -190,7 +267,7 @@ Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112278.jpg" />
 </div>
 
 
@@ -217,7 +294,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112279.jpg" />
 </div>
 
 
@@ -241,7 +318,7 @@ Leviathan Project - MCMLXXXII (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112280.jpg" />
 </div>
 
 
@@ -268,7 +345,7 @@ magnet:?xt=urn:btih:5AAAB8B03DD04B1A9252029CA58A6E99BE4225EC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112281.jpg" />
 </div>
 
 
@@ -292,7 +369,7 @@ magnet:?xt=urn:btih:BD6A98C23BD85B1BABD0181C446C675CBE417C76
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112282.jpg" />
 </div>
 
 
@@ -316,7 +393,7 @@ Ungoogled Chromium 123.0.6312.86-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112283.jpg" />
 </div>
 
 
@@ -340,7 +417,7 @@ magnet:?xt=urn:btih:49124769D27EDEE6BACC1793D03AED711AC68DBD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112284.jpg" />
 </div>
 
 
@@ -364,7 +441,7 @@ Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112285.jpg" />
 </div>
 
 
@@ -391,7 +468,7 @@ Dino Jelusick - Chosen Gems (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112286.jpg" />
 </div>
 
 
@@ -418,7 +495,7 @@ EarthView 7.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112287.jpg" />
 </div>
 
 
@@ -442,7 +519,7 @@ Bob Sinclar - Paradise (Remixed) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112288.jpg" />
 </div>
 
 
@@ -469,7 +546,7 @@ magnet:?xt=urn:btih:556D13E3C056A98D557277EBAA3328BB2597BB92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112289.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112289.jpg" />
 </div>
 
 
@@ -493,7 +570,7 @@ Glary Disk Cleaner 6.0.1.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112290.jpg" />
 </div>
 
 
@@ -517,7 +594,7 @@ magnet:?xt=urn:btih:5015D130164FC3517726FB6A74DCB40D6426ECBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112291.jpg" />
 </div>
 
 
@@ -543,7 +620,7 @@ VA - Uplifting Only Top 15: March 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112292.jpg" />
 </div>
 
 
@@ -570,7 +647,7 @@ magnet:?xt=urn:btih:084506BB81344012DF17296ED7A0DEA1B5457F64
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112293.jpg" />
 </div>
 
 
@@ -581,82 +658,6 @@ magnet:?xt=urn:btih:084506BB81344012DF17296ED7A0DEA1B5457F64
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F67D337AE875CC492595634928CADD476A3FBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711903   (112294) от 01.04.2024
-
-Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks + .cue] <Electronic, pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My Island (3:53)
-02. Pretty In Possible (3:36)
-03. Bunny Is A Rider (3:14)
-04. Sunset (2:43)(   Читать дальше...   )Жанр: Art pop, alt-pop, electronicПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711797   (112295) от 01.04.2024
-
-Проблемы найдут нас / Trouble Will Find Us (2020) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о молодой паре, чьи отношения начинают портиться под давлением жизненных обстоятельств.Производство: Великобритания, Água Viva Pictures, Stave Hill FilmsЖанр: драмаРежиссер: Александр Мило БишофАктеры: Benjamin Chandler, Пепа Дуарте, Дилан Эдвардс, Christopher Foran, Молли Громадзки, Кит Хилл, Isabella Brazier Jones, Рут Кирни, Jonathan Murphy, Philip SchockПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:03Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0714F35108EF3BB14570B0EF97A9005F495444D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711899   (112296) от 01.04.2024
-
-Мишель Сапане | Репортаж из морга (2021) [MP3, Рустам Османов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мишель Сапане – судмедэксперт с более чем 30-летним стажем работы. Каждый год его команда вскрывает и изучает более 450 тел, помогая следствию установить причины смерти и даже найти преступника.
-Повешенный бизнесмен с пулей в голове, мертвец без лица у железной дороги, задушенный мужчина в советском противогазе… У всех них разные загадочные истории, но один конец (   Читать дальше...   )Жанр: Истории из жизни, КриминалистикаИздательство: БОМБОРА, ЭКСМОПродолжительность: 09:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50211A61724D1F2C7DFD1ECF26C89A804E253C8B
 ```
 
 

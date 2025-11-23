@@ -6,7 +6,7 @@ Under The Scythe - Realms Of The Void (2023) [FLAC|Lossless|image + .cue] <Techn
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128384.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3E7CCDF3F23DCF7E37AF50C1F5E0BE707196974E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128401.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128410.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ David Gilmour - On An Island (2006) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128420.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tyrants - Beyond The Horizon (2023) EP [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128527.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:86FFDD2A557D98DA0ABBE6393520A28F7078F148
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128528.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128530.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128532.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Osiris - Meanders A Soul (2021) [FLAC|Lossless|image + .cue] <Symphonic Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128535.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128536.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Strike Master - U.F.T.M (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128537.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Strike Master - Strike Master (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128538.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128540.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Atack - Nine Lives (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128541.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Unknown - Big Dreams (1989) Reissue, 2023, FnA Records [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128546.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128548.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128549.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128552.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128556.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128557.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Frayle - Heretics & Lullabies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128592.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128643.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128661.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Big Big Train - Ingenious Devices (2023) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128684.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Alcatrazz - Disturbing The Peace (1985) Expanded Edition, 2023, Cherry Red Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128711.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hugo's Voyage - Inception (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128729.jpg" />
 </div>
 
 

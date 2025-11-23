@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B096532E0B2F0D032D3F5A6A46179A49FEF7D40
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23895.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Acrobat Pro 2025.001.20435 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23896.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23898.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23899.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23900.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CBA767BF3381F9BE5ADDA4EB8703186D1721A18A
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23901.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23902.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23903.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MyLanViewer 6.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23904.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:85CB67E114DFC95896C20FDB42D33051E80285CC
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23905.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FD25BFE8BD5A4032F9BC0CE9AB8FDC36956084BF
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23906.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.03.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23907.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C87FAC5B699D581DCCACFFEADA1387435A8B5515
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23908.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23909.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:EDC7B12DF748A9CB0B35B5EB2F4AFB233C529C24
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23910.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5E4DCB0A7840199E8027526ED6F9E8A382C1E6C9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23911.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23912.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23913.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23913.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3BCCC4E2661E64A74417E5F9521629E055994466
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23914.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23914.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Windows 11, 24H2 [26100.3476] 38in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23915.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23916.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Operator (2024) [Ru/Multi] (5091) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23917.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C6BF81902B69850B72098E6545E6A167BD420BAF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23918.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23918.jpg" />
 </div>
 
 

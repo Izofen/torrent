@@ -6,7 +6,7 @@ Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67802.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67803.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67804.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6784693C1F849E40CE8F66CFB224872492B34EE9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67805.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67806.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Polaris - Collection (2017-2023) 3CD [FLAC|Lossless|tracks + .cue] <Metalcore, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67807.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:97E2270E0F23B394119B7036C99A146335384E03
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67808.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sylosis - Dormant Heart (2015) Re-Recorded, 2025, Nuclear Blast Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67809.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:8C415732FC55E9CDB6A682E4F0A350151E984677
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67810.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:85504A6558C0461AABE86CEDFBF5449C4C4F2EC6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67811.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:001DB2216F5DF93C7304A2FC4384012B5EC49A7C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67812.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:44FF1505DD1D2937E8EB6FF7B5C3A8F4F4D3371E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67813.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:44FF1505DD1D2937E8EB6FF7B5C3A8F4F4D3371E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67814.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:31AC22DDEA00CAA53415F5CA029499065AB49E42
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67815.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Mindslip - Patient IV (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67816.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E943FB680B66180B79B491AE5DED497278BA8CA7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67817.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A118284D4A507EFCC6DA7576A6D81710D4175318
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67818.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6401094F99AD86B3C72BC8E6D735AD94D6821079
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67819.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ MotoGP. Этап 04 из 22. Гран-при Катара. Спринт (12.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67820.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Kustan Adam - Pretty Black Suit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67821.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Jason Wells - Worried Man Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67822.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mark Daly - Devil's Arms (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67823.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67824.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67825.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:3703D4F47C54F424F37BCBF30C8DFEEAB54F8513
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67826.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67827.jpg" />
 </div>
 
 

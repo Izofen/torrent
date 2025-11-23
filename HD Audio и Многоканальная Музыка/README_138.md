@@ -6,7 +6,7 @@ Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109040.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109074.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Big Special - Postindustrial Hometown Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109080.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rusthead - Gear Up (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109081.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Moon Shot - The Power (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109083.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ This - Impulsive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109084.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Simon Lasky Group - For the Dreamers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109086.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ A Bad Think - X (2022) Remaster, 2024, Windmark Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109090.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skov-Roar-Rifbjerg Trio - Busy Spectacle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109102.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Smooth Jazz Music Academy, Background Instrumental Music Collective - The Softne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109105.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109107.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Alana Yorke - Destroyer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Engineered Society Project - Deception (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109109.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Deep Forest, Olivier Delevingne - Crystal Clear (2024) [FLAC 24/44,1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109116.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Erik Nieder - Miracle Maker (2024) Devotional Edition [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109119.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sexual Music Collection - Sexy Swing Jazz Bar (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109129.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D08E6DAEA83ABB5749CED6BF8F201B6DFDEF8497
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109133.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109155.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109174.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109179.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109196.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109206.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Saint Agnes - Bloodsuckers (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109221.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sensual Lounge Music Universe - Levitating Sensuality: Sexy Smooth Jazz for Wild
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109232.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Francesco Del Prete - Divertissement (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109239.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ New Fossils - II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109240.jpg" />
 </div>
 
 

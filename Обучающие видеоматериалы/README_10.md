@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24530.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ton_dev~study() | Старт в профессии TON-разработчик (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24531.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24531.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24541.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ loftschool | Node.js серверный JavaScript (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24546.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24582.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24582.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24593.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24593.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Udemy, Businge Ismail | Houdini for every Artist (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24610.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24610.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ OTUS | Solidity Developer (2024) WEB-DLRip [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24661.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24687.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24688.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Stepik, Сергей Камянецкий | Буткемп «Записки юн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24727.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24728.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24755.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24813.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ fxphd, Doug Hogan | The Nuke Unfiltered Series (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24820.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24820.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2EE3F4BFD90305ABEC4446C8BFBBC26D31382546
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24845.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24845.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:0F427F4EB6FDBBE23DB54241061CB069A8F931B6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24854.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:2285B51EFCEFB7D92D6E870115A59C06BE2E2719
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24900.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Udemy, Rob Tuytel | Creating snow environments for Blender & Unreal (2025) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24947.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Udemy, Udit Gala | Blender Masterclass: Camera Tracking & VFX Combined (2025) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24950.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Udemy, Антон Ларичев | Node.js - с нуля, основы и пос
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25065.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Codeby | Paranoid Rebirth — курс по анонимности и безоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25174.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25191.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25191.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6680205BAD784A62612D5401C1489EA2D08749AB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25199.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:3EB77C186E9EBD0E4B3D088725C730DCFBA20D02
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25302.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25354.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50854.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frozen Synapse 2 (2018) [En] (108) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50942.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51209.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51456.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52137.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLigh
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52745.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53475.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53755.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54206.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54315.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54737.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55582.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.8/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55685.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56178.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57054.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57253.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57551.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58077.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58104.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59245.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59981.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60428.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60722.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61152.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61238.jpg" />
 </div>
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1736701   (106626) от 13.07.2024
+
+Фрэнсис Бёрнетт | Таинственный сад (2012) [MP3, Галина Чигинская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшее - детям.
+Фрэнсис Элиза Бёрнетт (1849–1924), англо-американская писательница.
+Тяжело остаться без родителей, особенно когда тебе всего десять лет, окружающие тебя не любят и ты тоже ненавидишь чуть ли не весь белый свет. Кажется, ничего хорошего в этой жизни уже не будет. Но будто сама судьба протягивает героине книги спасительную руку и выводит (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 06:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FA23099326816C871072B74B0E9800846AB12E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736669   (106627) от 13.07.2024
+
+Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris des Maléfices (5:09)
+02. Et Que Vive le Diable ! (5:35)
+03. La Destruction des Reliques (5:51)
+04. Dans le Coeur un Poignard (5:43)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736655   (106628) от 13.07.2024
+
+Алекс Коваль | Счастье с доставкой на дом (2022) [MP3, Ева Ларина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь бизнесмена Романа Бурменцева – сплошная череда встреч, совещаний и командировок. Ни семьи, ни детей, ни праздников в его системе координат не существует. А уж тем более чуда! Но одна волшебная ночь за неделю до Нового года в корне перевернёт его жизнь. Когда нелепое желание, загаданное в супермаркете, неожиданным образом исполнится в самые кратчайшие сроки. (   Читать дальше...   )Жанр: Современные любовные романыИздательство: ИДДКПродолжительность: 15:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA84517484FC8D06729233514748C03049D69898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736737   (106629) от 13.07.2024
 
 VA - Black Hole Trance Music 07-24 (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +83,7 @@ VA - Black Hole Trance Music 07-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106629.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:A29F4A74D82CCB8E2AA01FD410EC6983877F2157
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106630.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:7A7532A832BAC8C436CC5B18FE6D8BF541EE6485
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106631.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106632.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ GeoGebra 6.0.848.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106633.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ magnet:?xt=urn:btih:AFF36A04C335F00CDCD52376447EDC425409E065
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106634.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ magnet:?xt=urn:btih:99D79A58A680D7A93AA84CF1F69E5B9145F0F20C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106635.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ magnet:?xt=urn:btih:E21CB01117745A216ACB23DD11E4F25B9088082E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106636.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ Photo Supreme 2024.2.1.6576 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106637.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:1FBDDB352AC696D1DEA1E88EAB6E78B4D0FA0B0E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106638.jpg" />
 </div>
 
 
@@ -259,7 +336,7 @@ Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106639.jpg" />
 </div>
 
 
@@ -286,7 +363,7 @@ magnet:?xt=urn:btih:E272AE80F67FD4868887BB16F013361A232AF964
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106640.jpg" />
 </div>
 
 
@@ -310,7 +387,7 @@ magnet:?xt=urn:btih:D7521EE5E3145A09043CD94CF6E2DFB434B7B290
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106641.jpg" />
 </div>
 
 
@@ -336,7 +413,7 @@ magnet:?xt=urn:btih:0A180BB426BD1F3A2053A30DEA7668B662D2FD94
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106642.jpg" />
 </div>
 
 
@@ -360,7 +437,7 @@ Jade Warrior - Borne On The Solar Wind: The Vertigo Albums (2022) Remastered, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106643.jpg" />
 </div>
 
 
@@ -387,7 +464,7 @@ Ren X - Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106644.jpg" />
 </div>
 
 
@@ -414,7 +491,7 @@ Vexxum - Lost In Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106645.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106646.jpg" />
 </div>
 
 
@@ -468,7 +545,7 @@ magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106647.jpg" />
 </div>
 
 
@@ -492,7 +569,7 @@ magnet:?xt=urn:btih:32D692C83561C1327F7020EC5EF7D29177CDA073
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106648.jpg" />
 </div>
 
 
@@ -516,7 +593,7 @@ VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106649.jpg" />
 </div>
 
 
@@ -543,7 +620,7 @@ PilotEdit Lite & Pro 18.9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106650.jpg" />
 </div>
 
 
@@ -568,7 +645,7 @@ John Lennon - Mind Games (1973) The Ultimate Collection, 2024, UMC [FLAC 24/192|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106651.jpg" />
 </div>
 
 
@@ -582,82 +659,6 @@ John Lennon - Mind Games (1973) The Ultimate Collection, 2024, UMC [FLAC 24/192|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEF4F68A07AD7864BC72DB6A3CCDFC753327CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736690   (106652) от 13.07.2024
-
-О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
-В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736644   (106653) от 13.07.2024
-
-Александр Городницкий  - 2 Альбома (1997-1998) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег
-02. А женам надоели расставанья...
-03. Бухта Тикси / Две весны
-04. Песня полярных летчиков(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736678   (106654) от 13.07.2024
-
-Лира Алая | Хозяйка приюта магических существ (Книга 1) (2021) [MP3, Людмила Шапочкина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я хотела жить беззаботной жизнью в другом мире. Но вот у меня на руках несчастный детёныш дракона, одинокий двухвостый котёнок и брошенный стаей магический волчонок. И с этими милыми, но весьма опасными детьми я обустроилась прямо в Лесу Монстров. Посёлок рядом, дом есть, а что монстры бегают – так эти дети поопаснее будут. Лишь бы поладить с хозяином этого леса (   Читать дальше...   )Жанр: любовное фэнтези, юмористическое фэнтезиИздательство: ИДДКПродолжительность: 16:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8DA0884FD3E9813136C7606B07D6289093B379
 ```
 
 

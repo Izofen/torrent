@@ -6,7 +6,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71500.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:104C2DC514F50F9A191BCBB19E2EA4C65CA4888A
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71537.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6D885DD5EBFBA01B8005D53FD173045D18DBFB37
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71586.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E972AD91E4283035EDD76AA90A94277F8AB0D8CD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71626.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:ABF2B83C52D1FF3FE6CB66A334CF392929DB25DC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71632.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:245517C6E633255ABC3DC171213F6A9BFCB5771D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71676.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:62445794230D624FBAB3AF10D15B90551ABD1F71
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71688.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:13D155D264FEA465035E8722FDAE589F9F894B6B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5C6C96AB9224C8C64D413CE35B3317F9A1F090EA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71958.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3C7BE2C74FAE6FD65CE06ABF38410815A8F8698C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71967.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4F378BB125127FE90783E678D8BF63E73960F955
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71969.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A4769EC0E05A095B00B96228A68770B2B648D808
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76802.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77758.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78541.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79261.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:C5386A055E1BB78C5DEAB275BB1F3A49B7205E46
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80055.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C5386A055E1BB78C5DEAB275BB1F3A49B7205E46
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80990.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81273.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:4DF8B7F208F718C171ACF21AF13386FC1B769349
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81377.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:C04D73694BA47DE925375806C158FDEBB25F75DA
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85521.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C04D73694BA47DE925375806C158FDEBB25F75DA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85701.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85744.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89115.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89236.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89261.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89606.jpg" />
 </div>
 
 

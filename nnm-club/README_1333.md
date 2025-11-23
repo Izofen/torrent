@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35011.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DFD8B6CBF76A2747C56AADF4BC0104B1EB4E9A48
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35012.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:02766EE312130899E403CABFBE180A6876A5C6C7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35013.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RustDesk 1.3.5 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35014.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:57928E095E7E3A35FF09E2B44D0C9DD06FC06AC5
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35015.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:018B46ADF5B2B57BDD014522A59356B321ED3FB5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35016.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DA71656DB3367BCC8DD49F304ED91A75156313C2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35017.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:42713979AE16E27641C836669C610DE759C9D01C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35018.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A2E9C03427CFA5102AF34C50EBBF374B843EF805
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35019.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35021.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EF055FF9E03E605248DC09319645508021A7B9ED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35022.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:78F8D598225BD9E014D9CEB4671F6C7F97A09DB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35023.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:49814965E939F1356C36E7AC7BFA2ECDD299318B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35024.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FF61D44BCD14524494E8EBC647D2EF05D0F59A4E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35026.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:44D012F94C0EFCE944E31A46024A0CAC4F3C9D64
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35028.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35029.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35030.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D2B3E5C50144D193486148811767E90EF80DF7B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35031.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0B5C234F102DA88D6FE662993DA4300D011AC568
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35032.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FCFD891C18EF4F16E6EAF73A0C91B1265C41B962
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35034.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2DC29076ABEB5F44052A14AD6E736AD5C6F9BE6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35035.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:2DC29076ABEB5F44052A14AD6E736AD5C6F9BE6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35036.jpg" />
 </div>
 
 

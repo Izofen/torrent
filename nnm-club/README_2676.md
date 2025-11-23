@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70324.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Gothic Valentines (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70325.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2D3FF66898C404BB453D7122BDDA29B3A108BF4A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70326.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70327.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Ori Uplift - Uplifting Only Episode 628 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70328.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70329.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:FB8F8F1B44BC56958C27034FAC94F2D301F37C91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70330.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:7E9F168205DB5D05AFFC8D6068AF77EAFABF3598
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70331.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:4EB67A3C09069EA5793BFF2164A4023C2504226E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70332.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Leprous - Aphelion (2021) 2xCD, Reissue, 2023, Inside Out Music, Limited Edition
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70333.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bleeding Through - NINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70334.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Enbound - Set It Free (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70335.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:1E9AAAD865940D98C4ED19CDC15226F58600B1D0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70336.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cymande - Renascence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70337.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1835BE87DCBD46B307406E8EAD8A114F0196935B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70338.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70339.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E5D88F3F3E52DA0822861F8270E1656415EE051B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70340.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:C57955A2F6986AE6D28D9311E439B5FF68BE9E03
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70341.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70342.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70343.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70344.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Rob McConnell, Ed Bickert, Neil Swainson - Trio Sketches (1994) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70345.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Ken Peplowski - Double Exposure (1988) Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70346.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ The Ken Peplowski Quintet - Mr. Gentle And Mr. Cool (1990) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70347.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Nick Brignola - Like Old Times (1994) Reservoir [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70348.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Ralph Peterson - V (1988) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70349.jpg" />
 </div>
 
 

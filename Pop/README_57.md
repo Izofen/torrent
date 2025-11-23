@@ -6,7 +6,7 @@ Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139104.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139816.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139830.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139906.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139924.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139931.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139941.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:5B84EAD612D2F1FD7AC567816C607CD7704F0154
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139996.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MONATIK - Мріяти не шкідливо (2019) EP [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140023.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:73CB93B9F962B601CB571DCCC6751EA74FC7936F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140157.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140247.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - I Love Retro Dance 90's (2010) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140269.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:4750DC11965A6569494172FF8A6F5C1B41A903D1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140568.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140728.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Avalanche - Westbound (1992) [MP3|320 Kbps] <Pop, Electronic Pop Rock, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140745.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pentatonix - Christmas Is Here! (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141098.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141119.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141230.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Ciao Italia (1997) 3CD Box Set [FLAC|Lossless|tracks + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141386.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141438.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141539.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:1A4D80BB7480B6979006CB7D5D008B6190ED13BE
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141611.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F081406BD69683EC414BFD473B7A0A535C079563
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141660.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ C.C. Catch - Greatest Hits (2018) Ear Music [FLAC|Lossless|tracks + .cue] <Euro-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141733.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141771.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossles
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141797.jpg" />
 </div>
 
 

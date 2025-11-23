@@ -1,3 +1,75 @@
+###  Публикация: 1736038   (106782) от 10.07.2024
+
+4K Video Downloader 4.31.2.0102 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106782.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A9E3DB3684B7955D8CC522E7AA6D8179D9A15D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735854   (106783) от 10.07.2024
+
+Photo Supreme 2024.2.0.6544 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EBA586EC38437A18ACFA6BEC0F21B4D5B77711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735933   (106784) от 10.07.2024
+
+Протоиерей Петр Смирнов | Изложение Христианской Православной веры (2005) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106784.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сравнительно небольшом объеме книги простым и ясным языком рассказывается о том, что составляет суть и содержание Православной Христианской веры.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06C7AB29EE0F0B58FCFF748B99855F07DD83C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735944   (106785) от 10.07.2024
 
 Сатисъ | Акафисты, чтомые в семейных нуждах (2007) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +78,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106785.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ The Supersoul Brothers - By The Way (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106786.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106787.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:10C03E0E32B36EC4EFA163D984A59BE51E7A11D5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106788.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Mr. Big - Mr. Big (1989) Remastered, 2023, evoXS [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106789.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106790.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Q-Dir 11.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106791.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106792.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ Vov Sticky Notes 9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106793.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:485E38299D5461902995BB236033A71D78F6A735
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106794.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Mullvad Browser 13.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106795.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ DesktopOK 11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106796.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ VA - Trance In Motion Vol.378 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106797.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:2896BBEBF09F7C7510D0BF31D587BBF350B9A7C7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106798.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:DE84215F3BC8481CF9269EC4B8D88716697337D0
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106799.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106800.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ eM Client Pro 10.0.3123.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106801.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106802.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ PDF Shaper Ultimate 14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106803.jpg" />
 </div>
 
 
@@ -479,7 +551,7 @@ reaConverter Pro 7.818 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106804.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:B8D01441040B1A98169C54EA7E36FB58EACE7F5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106805.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106806.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ VA - Summer Chillout & Lounge Music (Best Session) (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106807.jpg" />
 </div>
 
 
@@ -569,81 +641,6 @@ VA - Summer Chillout & Lounge Music (Best Session) (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B5F603CBCAC838CD914754F8232C38696F54AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735904   (106808) от 10.07.2024
-
-The Moody Blues - In Search Of The Lost Chord (1968) Box Set, Deluxe Edition, 3xCD, Remastered, 2018, Universal Music, 50th Anniversary Edition [FLAC|Lossless|image + .cue] <Psychedelic Rock, Pr ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Departure
-02. Ride My See-Saw
-03. Dr. Livingstone, I Presume(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Symphonic RockПродолжительность: 02:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246C7051975FBAE649EAF64D911A1A8937902704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736009   (106809) от 10.07.2024
-
-Loomer - Aspect 2.0.3 Standalone, VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aspect - это 32-нотный полифонический программный инструмент, сочетающий в себе великолепно звучащий мощный синтезатор с гибкой полумодульной архитектурой и непревзойденной простотой использования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0940C796935B98F2C1F13391063453148CF0EDCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736032   (106810) от 10.07.2024
-
-AIMP 5.30 Build 2560 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106810.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Белорусский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D824B69002DE2CD8328B8A40E1F4A31635F79B0C
 ```
 
 

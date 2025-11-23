@@ -6,7 +6,7 @@ JetBrains DataGrip 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20757.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20757.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v24 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20777.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fan Control V220 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20786.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Firefox Browser 137.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20790.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Desktop Calendar 3.22.230.7088 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20791.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Balabolka 2.15.0.893 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20793.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Firefox Browser 137.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20797.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Fort Firewall 3.17.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20813.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9E9C619980AF4859178F84D46531666ACF691887
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20819.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ LazyMedia Deluxe v3.381 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20827.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ GPS Эмулятор v3.00 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20838.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20838.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Vanced Tube v5.3.81.153 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20840.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ K-Lite Codec Pack 18.9.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20848.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Beyond Compare Pro 5.0.7.30840 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20888.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ IPTV Pro v9.0.14 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20891.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Soft Organizer Pro 10.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20899.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIMP 5.40 Build 2674 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20901.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Reg Organizer 9.70 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20905.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ BitComet 2.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20909.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MediaHuman YouTube Downloader 3.9.10 (1804) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20910.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.2 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20911.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Steinberg - HALion 7 7.1.10 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20917.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ dBpoweramp Music Converter 2025.04.17 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20925.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.4.55968 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20927.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Reg Organizer 9. 70 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20931.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 15.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20932.jpg" />
 </div>
 
 

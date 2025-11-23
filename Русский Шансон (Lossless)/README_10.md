@@ -1,3 +1,57 @@
+###  Публикация: 1627359   (239521) от 18.04.2023
+
+Михаил Шуфутинский - Чёрным по белому (2023) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Раскрой окно
+2. Чёрным по белому
+3. Шарфик
+4. Прощай(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BAAE9B0BE40DC5FDAD75CB82016BA4ADCBB8B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378230   (241475) от 25.04.2020
+
+Мафик - Пацанский стиль (2013) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пацанский стиль (3:55)
+02. На квадрате (3:26)
+03. Поговори со мной (4:10)
+04. Много курю (3:45)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6207518C8751C27113C9542DA7D3D4B30DAD3179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378098   (241525) от 25.04.2020
 
 Владимир Базыкин - Когда освобожусь (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
@@ -6,7 +60,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241525.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241525.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241840.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241840.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242278.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242278.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242346.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242346.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242855.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242855.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ magnet:?xt=urn:btih:CDB3BD4812982EF0C483F74215139778186008C4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242873.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242873.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244517.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244517.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ magnet:?xt=urn:btih:44DFD77AC5D669A43820DFC4576CFB7B4DA32123
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245571.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245571.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ magnet:?xt=urn:btih:22E0F16D3C01D9A8EE1E032564FF34FAA6FCFA77
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246753.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246753.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ magnet:?xt=urn:btih:9C9E4181999BC759C409F55E1FE10E869B2C6ABA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247459.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247459.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ magnet:?xt=urn:btih:730467117C14B0FB0B5C329349DED6424A54470C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248073.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ magnet:?xt=urn:btih:730467117C14B0FB0B5C329349DED6424A54470C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253778.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ magnet:?xt=urn:btih:730467117C14B0FB0B5C329349DED6424A54470C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253790.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253790.jpg" />
 </div>
 
 
@@ -365,7 +419,7 @@ magnet:?xt=urn:btih:730467117C14B0FB0B5C329349DED6424A54470C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255505.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255505.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ magnet:?xt=urn:btih:6635B73D179E0409CD90F38EAB18FE1320EDCF12
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256551.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256551.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172935.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:597262A3F5855B9F8B43FE270C02527F8C282E89
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173129.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4723CA9F45AFD11C4147FC39C224B7F65331DBC1
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173314.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8FDD93D2D2C504944C55B7CAA5C56A90C7833103
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173469.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:55EAFFA93DFBCF975ED6AE7102F1FFD0745FA16F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173581.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B0C80D4C993118E887CCCCE53FA00415D1D20215
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173589.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EF36553666B2C08B28CB5B82DCCFFDA79E7739E4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173594.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0BED294133D6E8DF862C9070FFDC17F0B4AB298A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173598.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FFA46F36B7E15AC9BE640E90DAE067E09E842C50
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173600.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:13E1619BE4767742ECA4FEF9F3D88600C6418BAF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173602.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173602.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B2EB8081C7E00AC1A5F603E172194A9B8692FA34
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173660.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173660.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4920A8C8963DA0E028A537F967D7D7E11FFA7263
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173678.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173678.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E20EC4570C5FD288A3C21BFF4213BB418D10B9BA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173695.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173695.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6EF01123AB11BCED83370E997E34B289A2FBB7E7
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173755.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173755.jpg" />
 </div>
 
 
@@ -337,6 +337,31 @@ magnet:?xt=urn:btih:06BBACA20E2356A4CE329BFD4C73D41C345F9524
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269458   (173760) от 21.12.2016
+
+А. В. Пыльцын | Главная книга о штрафбатах [2009] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_173760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный военно-исторический бестселлер, выдержавший несколько изданий и разошедшийся рекордными тиражами!
+"В прорыв идут штрафные батальоны..." Будучи при советской власти фактически под полным запретом, после падения СССР эта тема стала одним из главных козырей антисоветской пропаганды, любимым поводом для обличений "проклятого тоталитарного прошлого" (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827098   (173804) от 20.10.2025
 
 Д.В. Карпов | Теория графов (2022) [DJVU]
@@ -345,7 +370,7 @@ magnet:?xt=urn:btih:06BBACA20E2356A4CE329BFD4C73D41C345F9524
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173804.jpg" />
 </div>
 
 
@@ -369,7 +394,7 @@ magnet:?xt=urn:btih:DF8B375DF1700107FE30FE93ED6A424A4E582E9A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173805.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173805.jpg" />
 </div>
 
 
@@ -393,7 +418,7 @@ magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173835.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173835.jpg" />
 </div>
 
 
@@ -417,7 +442,7 @@ magnet:?xt=urn:btih:1C258575453015007FDCFF0A687C37AD0F67D061
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173895.jpg" />
 </div>
 
 
@@ -441,7 +466,7 @@ magnet:?xt=urn:btih:98215475FE446E6B7B48191383B8695E0F26928A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173944.jpg" />
 </div>
 
 
@@ -466,7 +491,7 @@ magnet:?xt=urn:btih:EBEFF9ED9B5877669ACE27788CB6BE45445DA174
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173956.jpg" />
 </div>
 
 
@@ -490,7 +515,7 @@ magnet:?xt=urn:btih:BDED8ACB6C692A5D404B9C9E4F4F889879B9DC5E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173959.jpg" />
 </div>
 
 
@@ -514,7 +539,7 @@ magnet:?xt=urn:btih:A92485F03C66DFEE66CD7C664F09DF0C36DDF062
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173966.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173966.jpg" />
 </div>
 
 
@@ -538,7 +563,7 @@ magnet:?xt=urn:btih:79BDD4D82C352176DE847C53EAF4F0C48E128BA1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173974.jpg" />
 </div>
 
 
@@ -562,7 +587,7 @@ magnet:?xt=urn:btih:02415CC3997F087852D273F29BD9E98787A7FA1C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174185.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174185.jpg" />
 </div>
 
 
@@ -587,7 +612,7 @@ magnet:?xt=urn:btih:4644D814A3921D6EDEEE19D541A260282FB77411
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174229.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174229.jpg" />
 </div>
 
 
@@ -598,31 +623,6 @@ magnet:?xt=urn:btih:4644D814A3921D6EDEEE19D541A260282FB77411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FF9122A2FD4C0E66E56D924ADADB9ABD2C7CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430341   (174264) от 09.12.2020
-
-Венди Тейт | Цветочные акварели Венди Тейт. Как создавать воздушные и эффектные работы (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварелистка Венди Тейт, посвятившая всю жизнь изобразительному искусству, делится секретами работы с цветом, тоном и светом, а также дает подробную информацию о том, как делать тональные наброски, создавать картины по фотографиям и гармонично подбирать цвета.
-В отличие от большинства ботанических иллюстраторов, Тейт сразу приступает к картине и пишет ее кистью. (   Читать дальше...   )Жанр: Изобразительное искусство, СамоучителиПеревод: Анна АвдееваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9CAEF53CEC932F5C745357A5AA2120598C96C3
 ```
 
 

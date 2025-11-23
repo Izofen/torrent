@@ -6,7 +6,7 @@ MassTube Ultra 17.1.0.513 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127848.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127859.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ableton - Live 12 12.0b22 (x64) Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127874.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Glary Utilities Pro 6.3.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127875.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Malwarebytes Windows Firewall Control 6.9.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127877.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MEmu 9.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127878.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127879.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7111 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127882.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DD503985189941BB49DDAF18E2930C88B5192305
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127891.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Capture One 23 Enterprise 16.3.3.1813 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127893.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Far Manager 3.0.6226 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127897.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127905.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CCleaner 6.19.10858 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127907.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ HWiNFO 7.67 Build 5290 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127940.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127964.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6D6589279626B36DFB581F84126017F952344223
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127978.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Skype 8.110.0.218 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127984.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ AllDup 4.5.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127987.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Microsoft PowerToys 0.76.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127988.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.3 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127989.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ultra GPS Logger 3.195u Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127990.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:50618C97434B2BE721851C075DF5F84F326E6257
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127999.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VueScan Pro 9.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128001.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ OCCT 12.1.14 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128002.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Psiphon 3 build 181 (14.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128004.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Chromium-Gost 120.0.6099.109 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128008.jpg" />
 </div>
 
 

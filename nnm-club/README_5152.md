@@ -1,3 +1,186 @@
+###  Публикация: 1676045   (159364) от 11.11.2023
+
+Сдаётся коттедж / Cottage to Let (1941) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война. Изобретатель Джон Баррингтон работает в собственном загородном доме в высокогорье Шотландии над прицелом для бомбардировщиков по заказу правительства. Его эксцентричная жена соглашается разместить эвакуированных из Лондона детей в соседнем коттедже, которым они владеют. Неожиданно туда же приезжает, успевший снять его на время в агентстве недвижимости, (   Читать дальше...   )Производство: Великобритания, British Gaumont, Gainsborough PicturesЖанр: комедия, детектив, военный, триллерРежиссер: Энтони ЭсквитАктеры: Лесли Бэнкс, Джинн Де Ксалис, Карла Леманн, Аластер Сим, Джон Миллс, Джордж Коул, Майкл Уайлдинг, Фрэнк Селльер, Мюриэль Акед, Уолли ПатчПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Kata_1819), английскиеПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428D5435A36D4F19EE4B847A1BD8E2DE461F4036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599917   (159365) от 25.12.2022
+
+VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Lewis - How Do I Say Goodbye (2:43)
+02. Olivia Rodrigo - drivers license (4:02)
+03. Taylor Swift - Anti-Hero (3:20)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675932   (159366) от 11.11.2023
+
+Wrath Of God - Blood Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Eye 06:29
+02.Shoot'em!! 04:21
+03.Guantanamo 04:44
+04.Rex 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DF9AA30F9F2ECCB02EC8478B08BA0B323DB30A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600049   (159367) от 25.12.2022
+
+Сердце зулуса / The Zulu's Heart (1908) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159367.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начальной сцене этого рассказа у зулусского вождя племени Аматабеле его единственная дочь умирает от лихорадки.  Затем мы видим как это племя дикарей нападает на кибитку буров-переселенцев. Мужчина погибает в схватке, а несчастная женщина пленена. А их малолетняя дочь прячется в расщелине скалы. Но потом она выходит из убежища к Аматабеле.  В своей детской наивности (   Читать дальше...   )Производство: США, American Mutoscope & BiographЖанр: короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Инсли, Джордж Гебхардт, Гарри Солтер, Флоренс Лоуренс, Глэдис Иган, Джон Р. Кампсон, Артур В. Джонсон, В. Кристи Миллер, Альфред Пегит, Мак СеннетПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818AF8897AB04FB58B19FE3AABBE9257DAAA426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599989   (159368) от 25.12.2022
+
+Katy Rose - Let's Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Let's Become
+3. Overdrive (2021 Version)
+4. Run In A Dream(   Читать дальше...   )Жанр: Pop Rock, Singer-SongwriterПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FF82054D44259CD2E43C6F60FE5385DBDB7921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599778   (159369) от 25.12.2022
+
+Steve Augeri (ex-Journey) - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic [00:05:07]
+02. Never Far From Home [00:05:24]
+03. Bated Breath [00:03:20]
+04. Drive [00:03:44](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2A69F0E00A5EADDA0290ACEF9E051DAA077914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599845   (159370) от 25.12.2022
+
+Сибирская Благозвонница (изд.) | Слово об обожении (2004) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159370.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Начало обожения возможно уже здесь на Земле, и через это человек становится достойным жителем будущих веков...».
+
+«...в человеке есть возможность стать по причастию тем, чем Бог является по природе, ибо он есть образ Его, который должен возвратиться к своему Образу, к своему Первообразу».
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B078FE5B30E19673492D2EF7DD8EC865D350B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600064   (159371) от 25.12.2022
 
 Glass Hammer - Skallagrim (Into The Breach) (2021) 2022 [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
@@ -6,7 +189,7 @@ Glass Hammer - Skallagrim (Into The Breach) (2021) 2022 [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159371.jpg" />
 </div>
 
 
@@ -33,7 +216,7 @@ Battery Indicator for Mac 2.14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159372.jpg" />
 </div>
 
 
@@ -57,7 +240,7 @@ Michel Sardaby - In New York (1972) 1997, Sound Hills Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159373.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Tipard Blu-ray Player for Mac 6.2.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159374.jpg" />
 </div>
 
 
@@ -108,7 +291,7 @@ magnet:?xt=urn:btih:69E4E00FA9FE8D05E3F32E64FA25ADDCBDDAF2CB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159375.jpg" />
 </div>
 
 
@@ -132,7 +315,7 @@ magnet:?xt=urn:btih:9DFB05D8B9B5B0701C10198A55439E725F9B65CA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159376.jpg" />
 </div>
 
 
@@ -156,7 +339,7 @@ PreviewMarkdown 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159377.jpg" />
 </div>
 
 
@@ -181,7 +364,7 @@ magnet:?xt=urn:btih:A69B47BA589CAB82B73E0CF34C153901322F02B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159378.jpg" />
 </div>
 
 
@@ -205,7 +388,7 @@ Benumb - Soul of the Martyr (1998) [FLAC|Lossless|image + .cue] <Grindcore, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159379.jpg" />
 </div>
 
 
@@ -232,7 +415,7 @@ Von Boldt - Hallowed Be My Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159380.jpg" />
 </div>
 
 
@@ -259,7 +442,7 @@ Autophagia - Postmortem Human Offal (2003) [FLAC|Lossless|image + .cue] <Goregri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159381.jpg" />
 </div>
 
 
@@ -286,7 +469,7 @@ BetterTouchTool 3.986 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159382.jpg" />
 </div>
 
 
@@ -310,7 +493,7 @@ Magenta Aura (Darryl Way) - The Rock Artist's Progress (2022) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159383.jpg" />
 </div>
 
 
@@ -337,7 +520,7 @@ Benumb - Withering Strands of Hope (2000) [FLAC|Lossless|image + .cue] <Grindcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159384.jpg" />
 </div>
 
 
@@ -364,7 +547,7 @@ magnet:?xt=urn:btih:C1C05D1D01EDA1F3028DC3A2C114BD0C81778E86
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159385.jpg" />
 </div>
 
 
@@ -391,7 +574,7 @@ Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Stu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159386.jpg" />
 </div>
 
 
@@ -418,7 +601,7 @@ Viwizard Audio Converter for Mac 3.8.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159387.jpg" />
 </div>
 
 
@@ -442,7 +625,7 @@ magnet:?xt=urn:btih:8895AF289C003F554F334ED1B3E246EB6612384E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159388.jpg" />
 </div>
 
 
@@ -468,7 +651,7 @@ magnet:?xt=urn:btih:80E5F6D9A0C8239197BF6E59E37F75BE0B575178
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159389.jpg" />
 </div>
 
 
@@ -479,183 +662,6 @@ magnet:?xt=urn:btih:80E5F6D9A0C8239197BF6E59E37F75BE0B575178
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:484D5ED3DDE45FF4009C65637CDD8088DFB4BAB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600079   (159390) от 25.12.2022
-
-In And Out - In And Out (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting On You
-02. Turn To You
-03. Sally
-04. Silence Leaves(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62041EEF864B9222FF53801C1796CDE46B8657EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675609   (159391) от 10.11.2023
-
-Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5603.1000 (2023.11) RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6863D6586F29117FCD7DFB2D7EF1149B1F543072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599833   (159392) от 25.12.2022
-
-Wyrmwoods - Spirit & Teeth (2019) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Sun Will Radiate Its Light Through the Scenes of Horror (02:00)
-02 - War Sublimating the Lycanthropic Death-Wave (04:00)
-03 - I Am All the Vermin in History (16:00)
-04 - Spirit & Teeth (32:00)Жанр: Atmospheric Avant-Garde Black MetalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB976FDF34B6CDD957E3BF0738E5B5738DB65B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377611   (159393) от 10.11.2023
-
-Бесогон TV - Никита Михалков (2011-2023) WEBRip (выпуски 1-201 из ??) (Обновляемая)
-
->>След.
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская программа известного кинорежиссера и актера Никиты Михалкова «Бесогон TV» выходит с 2011 года по настоящее время.
-Программа получила свое название в честь небесного покровителя Никиты Михалкова.
-Автор определил цель программы в реализации возможности оперативного, откровенного и правдивого реагирования от первого лица на злободневные события современности, (   Читать дальше...   )Производство: Россия 24Жанр: Телепередача, Политика, НовостиСубтитры: ОтсутствуютПродолжительность: выпуски по ~00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DADEFC6DC1928DBFBCBFF9AB6A413C50145001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599960   (159394) от 25.12.2022
-
-Professional Recorder & Editor 6.3.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Точность, простота и эффективность — вот три правила, реализованные в нашем профессиональном рекордере. Это приложение предлагает вам только самые необходимые функции, которых вполне достаточно для качественного редактирования. Элегантный интерфейс и мощные эффекты помогут вам открыть новые горизонты звука.
-Просто загрузите аудиофайл, и вы увидите его в виде волны. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2022Разработчик: © 2022 © Music TopiaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26AA8198B005FF716C7438CBDDD1C33747A8FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599992   (159396) от 25.12.2022
-
-Caato Time Tracker Pro 1.1.18 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2022Разработчик: © 2022 CS Software Consultancy LtdПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1D8DE5C39BF31C90DF38583F1598BA3C2DBD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674616   (159397) от 10.11.2023
-
-Пейзаж с невидимой рукой / Landscape with Invisible Hand (2023) WEBRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159397.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются в мире, захваченном сверхразумными инопланетянами. Они принесли на Землю удивительные технологии, но позволить их себе могут только очень богатые люди. Остальное большинство жителей планеты вынуждено работать на пришельцев. Подросток Адам и его девушка Хлоя занимаются тем, что транслируют свои отношения для инопланетянина Вувва, который (   Читать дальше...   )Производство: США / Annapurna Pictures, Metro-Goldwyn-Mayer (MGM), Plan B Entertainment, Studio ConciergeЖанр: фантастика, драма, комедияРежиссер: Кори ФинлиАктеры: Асанте Блэк, Тиффани Хэддиш, Кайли Роджерс, Бруклин Маккинзи, Джош Хэмилтон, Майкл Гандольфини, Джон Ньюберг, Dev H Patel, Geanna Funes, Кристиан АдамПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3F1489D109E05E5BFB9592150E4AF12B7B006D
 ```
 
 

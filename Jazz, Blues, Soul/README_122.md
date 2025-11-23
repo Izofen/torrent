@@ -6,7 +6,7 @@ Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135358.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135358.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135374.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135401.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135401.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135415.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135415.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135427.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135427.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135428.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135428.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135437.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135438.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Darrell Nulisch - Just For You (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135445.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135445.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Rosemary Clooney - Forever Girl Singer (2002) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135666.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135666.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135678.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135678.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135683.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135690.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135708.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135708.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135901.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135901.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135941.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135941.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135978.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135978.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Various Artists - Texas Bluesmen (1993) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136271.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Gary Moore - All The Best (2012) [MP3|320 кб/с]<Blues-Rock, Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136397.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136704.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136838.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136839.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ LeBron Johnson - Strong Men Still Human (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136842.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ Macon Music Revue - Macon Music Revue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136843.jpg" />
 </div>
 
 
@@ -781,7 +781,7 @@ Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136847.jpg" />
 </div>
 
 

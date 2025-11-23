@@ -6,7 +6,7 @@ Glary Utilities Pro 6.19.0.23 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WizTree Enterprise 4.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35324.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35325.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35326.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:80CCAFDD1487D7C6FE58924C7622497AB5487EB2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35327.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35328.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35329.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Listen Audiobook Player v5.2.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35330.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:DC8C4599BE308CBD90D79DD63754B6F6187D3E1D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35331.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Relax Rain: sleeping sounds v7.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35332.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ PictureThis - Plant Identification v5.0.15 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35333.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Kirnu - Cream 1.2.6 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35334.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:AB6B4A9DE5649ACF9321F1DD4FB329B31747FADC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35335.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:471FE28D879138F25CCED884665381A8C82B7C18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35336.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:811973197EB2BA1F45CED02423FBD0E3E07F45FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35337.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ GeoGebra 6.0.869.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35338.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:164ABEC89E611CD2894A596F23CCA09ADBC53B0B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35339.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F2817EB4743C6F2280A2377247AE8C7E2E532D2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35340.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:0CA121E112D18489382642BC8F4C58B55E60E75B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35341.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Run-Command 6.23 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35342.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Repack FitGirl [Frontline-59 Editi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35343.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A6AB90D43147CF7C98F2E48BA4CB7E41101ABCE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35344.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Deep Purple - The Boys From Brazil (2020) Remaster, 2024, Leftfield Media [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35345.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35346.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:41FED8EFC22E8AEE20235B45521FD464735540E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35347.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:FF5839CEE57B74FD562BA3C2CB93EEFCB3713AF5
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35348.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 489309   (101903) от 28.04.2012
+
+Ubuntu Studio 12.04 LTS [i386, amd64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ubuntu Studio — дистрибутив Linux, основанный на Ubuntu. Начиная с версии 11.10 Ubuntu Studio использует в качестве графической среды XFCE. Цель проекта — быстрое развёртывание готовой к использованию фото-, видео-, аудио- студии с минимальными затратами средств и максимальным комфортом.
+
+Некоторые программы, входящие в состав Ubuntu Studio: Ardour — мощный редактор аудиозаписи и сведения; Hydrogen — драм машина; AMin — инструмент мастеринга; OpenShot Video Editor — свободный нелинейный видеоредактор; Subtitle Editor - редактор субтитров; Blender — пакет для создания трёхмерной компьютерной графики, включающий в себя средства моделирования, анимации, рендеринга, постобработки видео, а также создания интерактивных игр. The GIMP — растровый графический редактор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489216   (101906) от 28.04.2012
+
+Любовь Тильман | Сны Над Облаками (эксклюзивно для NNM-Club) (2012) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский вариант нового сборника поэзии и прозы уже знакомой нам поэтессы и писательницы.Жанр: Поэзия, современная прозаИздательство: NNM-CLUBФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180CA63F739FE2F61DB8A737F37BE8EB4E9C0F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489401   (101908) от 28.04.2012
+
+Мы купили зоопарк / We Bought a Zoo (2011) [H.264] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: LBI Entertainment / Twentieth Century Fox Film Corporation / Vinyl Films, СШАЖанр: Драма, Комедия, СемейныйРежиссер: Кэмерон КроуАктеры: Мэтт Дэймон, Скарлетт Йоханссон, Томас Хэйден Черч, Колин Форд, Ангус Макфэдьен, Элль Фэннинг, Патрик Фьюджит, Джон Майкл Хиггинс, Майкл Пэйнс, Ким Уитли, Питер Ригерт, Машонд Ли, Шанна БарреттПеревод: Профессиональный (полное дублирование)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62D0F9CD83FB5BE837011DF3F9BE6F1A499C544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489051   (101909) от 28.04.2012
 
 Kaspersky World 1.3.5.90 [Multi - RUS / UA]
@@ -6,7 +80,7 @@ Kaspersky World 1.3.5.90 [Multi - RUS / UA]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101909.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101910.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Risen 2: Dark Waters / Risen 2: Темные воды {1.0.1168} (RePack) [Ru] 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101912.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:405B387039A1312DB84AAAF0570501F7A136DA13
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101913.jpg" />
 </div>
 
 
@@ -110,7 +184,7 @@ magnet:?xt=urn:btih:23DDE95BB1EE8F3396AADC81CA004DCA8F77CD20
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101915.jpg" />
 </div>
 
 
@@ -136,7 +210,7 @@ TeachVideo | Всё о Windows® 8. Обучающий видеокурс [2012]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101916.jpg" />
 </div>
 
 
@@ -160,7 +234,7 @@ magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101919.jpg" />
 </div>
 
 
@@ -184,7 +258,7 @@ magnet:?xt=urn:btih:BC551490ACFE521BF9D1CFF1B15DBA3930DFF097
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101922.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101922.jpg" />
 </div>
 
 
@@ -209,7 +283,7 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101925.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101926.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101926.jpg" />
 </div>
 
 
@@ -257,7 +331,7 @@ magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101927.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101927.jpg" />
 </div>
 
 
@@ -281,7 +355,7 @@ Windows 7 Professional x64 SP1 OEM HP (сборка 7601) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101929.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101929.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ ISO - ЗАГРУЗОЧНЫЙ.Название программы: Windows 7 Prof
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101930.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ Adobe Audition CS6 5.0 build 708 [Multilanguage]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101931.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101931.jpg" />
 </div>
 
 
@@ -361,7 +435,7 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101932.jpg" />
 </div>
 
 
@@ -386,7 +460,7 @@ Siemens UGS NX 8.0 x86/x64 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101935.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101935.jpg" />
 </div>
 
 
@@ -410,7 +484,7 @@ Kaydara / Кэйдара (2011) [H.264/720p-LQ] HDRip
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101937.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101937.jpg" />
 </div>
 
 
@@ -434,7 +508,7 @@ Kaydara / Кэйдара (2011) [H.264/720p-LQ] HDRip
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101941.jpg" />
 </div>
 
 
@@ -459,7 +533,7 @@ magnet:?xt=urn:btih:E95BD546980E86CE95AA4963932373EA042B1705
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101943.jpg" />
 </div>
 
 
@@ -483,7 +557,7 @@ magnet:?xt=urn:btih:E95BD546980E86CE95AA4963932373EA042B1705
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101951.jpg" />
 </div>
 
 
@@ -507,7 +581,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101959.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -531,7 +605,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101961.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -555,7 +629,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101962.jpg" />
 </div>
 
 
@@ -569,96 +643,6 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF739B90F9FC7E4E7B1B9EBCED742C3E8E26A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489626   (101963) от 29.04.2012
-
-Дин Кунц | Улица Теней 77 (2012) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикие индейцы Америки не знали таких мудреных слов, как «пространственно-временная червоточина». Им просто нравилось жить на этом холме, из глубин которого время от времени вырывалось синее свечение. Но однажды вместе с синим свечением оттуда пришли призраки и перебили почти все племя. Миновали столетия, и на этом холме выстроили огромный роскошный дом. Каждые 38 (   Читать дальше...   )Жанр: УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA91BC8827CCC3960D572345A9E9B472453D9A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488144   (101964) от 29.04.2012
-
-Blackmill - Reach for Glory (28/02/2011) [MP3|320 кб/с]<dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Beauty (03:48)
-02. City Lights (04:58)
-03. A Reach for Glory (04:13)
-04. Relentless (03:13)
-05. In the Night of Wilderness (05:27)
-06. Journey's End (04:55)
-07. Oh Miah (05:32)
-08. Flesh and Bones (04:36)
-09. Sacred River (06:06)
-10. Rain (05:58)(   Читать дальше...   )28/02/2011Жанр: dubstepПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBACAA9EAA818B59C45EBB03673B30B5C2364CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488972   (101966) от 29.04.2012
-
-Tiger Milk - Supernatural (2012) [MP3|~245 кб/с (V0)]<Electronic, House, Synthpop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Another World
-03. All The Drugs
-04. Define Love
-05. Story Of My Life
-06. The Game
-07. When Your Heart Dies
-08. Ruins Of The Lost Realm
-09. International Band
-10. Cut The Cord (Tiger Milk Remix)2012Жанр: Electronic, House, SynthpopПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03586EF4550C494B36D7EC0D5CBC79E22D292CEF
 ```
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58397.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:351806F2AA6EC6A93A6647C47A0FA159B0A13FE0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58398.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58399.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Accept - 55 albums, 2 Box-sets, 97 CD (1979-2024) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58400.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1880CA1CB18610EB828C3509249FE178CEB3169E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58401.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4C1AE895D1328DD6E942732E1AEE414AF863B0E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58402.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3B78533B3BBE8D20C79814247D373318A2627CF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58403.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8D0AE45B4DD4285402B0707871224AFC50DFF5BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58404.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A41127FFA395413E32FC82B2BED6E5452141F4FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58405.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1E773B0005D548C3530A791434ECC237408E6BA8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58406.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BE241266EF43B66DDC281B78B65A451B5812BA3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58407.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:AB49CBDA0E1C87B09932DC2EA9C2EEAD8BB4E609
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58408.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58409.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A6EC2CFA6A0760CEF7FB8C43909662FC16F8E075
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58410.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:25315A3DF1B85ED0DFE019595994B1681A615FB0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58411.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6EB3BAE258C39967E5C35AE320E2FB25D8204322
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58412.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58413.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ World of Tanks (2010) [Ru] (1.25.0.0.1799) License [HD + SD] (обновляем
 >>20
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58414.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.767.2/dlc) Repack =nemos= [20 Year C
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58415.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ GTA / Grand Theft Auto: MTA - NEXT RP (2018) [Ru] (25.04.24) License (обнов
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58416.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1EB47DA37D6FB66FE0D77CB0FC139FA3861CC360
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58417.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Windows 11 Pro 23H2 22631.3447 x64 by SanLex [Gaming Edition] [Ru/En] (2024.04.2
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58418.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F8FDC66E656A03B01309C77C0334597BC4CD91A5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58419.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:E873F475EA0EEC0A8104A3DF3A0D7EF4E0DA0B4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58420.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:6F66AB0AB3D5AB3B48ED4E49667D8F41AD20C602
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58421.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Photoshop 2024 25.7.0.504 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58422.jpg" />
 </div>
 
 

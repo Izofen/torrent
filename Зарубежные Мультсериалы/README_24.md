@@ -1,3 +1,27 @@
+###  Публикация: 1543510   (241527) от 15.04.2022
+
+Чип и Дейл спешат на помощь / Chip and Dale Rescue Rangers (1989) BDRip [H.264/1080p] (Сезон 1-3, серии 65 из 65)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добрый диснеевский мультсериал о похождениях команды бескорыстных, весёлых спасателей, всегда готовых выручить из беды каждого, кто в этом нуждается, получил название «Чип и Дейл спешат на помощь». Главные герои мультсериала, два весёлых бурундука, ещё в самой первой серии неожиданно находят друзей и единомышленников, пополнивших их собственную команду спасателей. (   Читать дальше...   )Производство: США, Disney Television AnimationЖанр: Рисованная анимация, Детский, Приключения, КомедияПеревод: Дублированный (часть "ОРТ", часть "Невафильм")Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~ серия по 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FA6EE289621FD6B00F4A6D808015E6522EEF9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624014   (242419) от 04.04.2023
 
 Гэри и его демоны / Gary and His Demons (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) 2x2, NewStation, Т.О Друзей
@@ -6,7 +30,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242419.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:2031D5158321760CD2E9DF85672D1F07756EEFA3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242483.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:6E3FC60661FBD3FDD2378449D5AC016274B0C462
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242512.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:E052884EC245F4B630706AE2F8BD04BA6DDA9618
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242681.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242681.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:D0B3BD0F23DA714CFBD9C26D115FD0BDE4570DAD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243120.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243120.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:2222F26AB4F12435AFD1C23D8405612AFDA86038
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243461.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243461.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:D18B0212D6FBDB722DDC32B1A611076CFCA4ABA7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243492.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243492.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ magnet:?xt=urn:btih:F7A4AE2AE5E323583447BD692F1CF0CADC6D8475
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243787.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243787.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ magnet:?xt=urn:btih:BD101B6132FFD0F2EE0B7CED4BAB79B7F8AFF88F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244208.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ magnet:?xt=urn:btih:2F088AD4A28847C5935F0F1FBF44C512544BA179
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244770.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244770.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ magnet:?xt=urn:btih:CE2CF88D09E3958935157416D317F5E77914D70F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245361.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245361.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:DC1077E386B508728DE3789926A30E384D3F9D13
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245581.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245581.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:5C611CF847473539EE3A1D92BFA7F06A069660EB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246077.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246077.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:9730EE85104B99A4A7E0D737E84DAF523C5CE08E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246102.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ magnet:?xt=urn:btih:8B2A11875EE7F91135438ACCBFBC9F68011635D8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246266.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246266.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:60C1C5883D19B25C23CF8D244C27F0B3F2DE8D72
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246271.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246271.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:0E6546A16C153F1070139C3F00AC336CFC529510
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246923.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246923.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:B0DB065C06C812C0E2D8ABBE3B429FDA27240FB2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247176.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247176.jpg" />
 </div>
 
 
@@ -440,7 +464,7 @@ magnet:?xt=urn:btih:F7716F78589975836780D2A6B1824879C594293A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247211.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247211.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:8B1C2E174C408EFCDBD1FBC88BF8C3CADE88F0D3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247673.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247673.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:6505B3250D7C7A7E53BACA9B6475C02893977072
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247676.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247676.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEB-
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247716.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247716.jpg" />
 </div>
 
 
@@ -537,7 +561,7 @@ magnet:?xt=urn:btih:5A161A6114DB48AD48BEF78F54D1B7BA7FCF7502
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247830.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247830.jpg" />
 </div>
 
 
@@ -561,7 +585,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEBR
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248586.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248586.jpg" />
 </div>
 
 
@@ -585,7 +609,7 @@ magnet:?xt=urn:btih:5048B237AD491036ACAFEAE18EDAB1A212812789
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249425.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249425.jpg" />
 </div>
 
 
@@ -596,30 +620,6 @@ magnet:?xt=urn:btih:5048B237AD491036ACAFEAE18EDAB1A212812789
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA65A1646F65CBE0C67C1ED84EB8149D0D619D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565321   (249429) от 23.07.2022
-
-Бэймакс! / Baymax! (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Red Head Sound
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой истории речь пойдет о действительно очень интересной и необычной жизненной ситуации в которую попадает крайне симпатичный робот-медик по имени Бэймакс. Этот робот на самом деле очень полезен каждому человеку, ведь он в свое время сумел пройти через огромное количество самых различных испытаний и стал настоящим героем этого города.Производство: США / Disney Television Animation, Walt Disney Animation StudiosЖанр: мультфильм, короткометражка, фантастика, боевик, комедия, приключения, семейныйРежиссер: Дин Уэллинс, Дэн Абрахам, Марк КеннедиПеревод: Дублированный (Red Head Sound)Субтитры: отсутствуютПродолжительность: 6x ~00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19BA9DFDA3FC94DCE5B486E7B0CF4B6C263ADE8
 ```
 
 

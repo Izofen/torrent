@@ -1,3 +1,57 @@
+###  Публикация: 1076391   (243766) от 26.11.2016
+
+VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243766.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Passenger - Fool's Gold 4:16
+002.Тамерлан & Алена - Потоки Ветра 3:05
+003.Ludacris Feat. Miguel - Good Lovin 3:44
+004.Dj Fenix Feat. Mila Kulikova - Я И Ты 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542022   (243850) от 05.04.2022
+
+VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaymes Young - Infinity (3:57)
+02. GAYLE - abcdefu (2:56)
+03. ARTIK pres.ASTI - Гармония (2:54)
+04. Alesso feat. Katy Perry - When I Am Gone (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074305   (243936) от 19.11.2016
 
 VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
@@ -6,7 +60,7 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243936.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243936.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243958.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243958.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243977.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243977.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244097.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244117.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244182.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244410.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244528.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244528.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246031.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246031.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246165.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246335.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246335.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246513.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246513.jpg" />
 </div>
 
 
@@ -342,7 +396,7 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247961.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247961.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248267.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248267.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248566.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248566.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248842.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248842.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ VA - Про белые розы (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249788.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249788.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ Marie Laforêt - Compilation (2022) [MP3|320 Kbps] <Pop, Chanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250138.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250138.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250992.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251117.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251135.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251145.jpg" />
 </div>
 
 
@@ -660,7 +714,7 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251170.jpg" />
 </div>
 
 
@@ -693,7 +747,7 @@ VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252624.jpg" />
 </div>
 
 
@@ -713,63 +767,6 @@ VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009F25857CDA485F7E72437118ABCF215D092BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495767   (252676) от 13.05.2012
-
-VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 DJ Ruslan Nigmatullin - Kiss the sun
-002 Руслана - ЕЙ-форі-Я!
-003 Bryce feat. Carlprit - Dance with me
-004 NikitA - Авокадо
-005 Far East Movement feat. Justin Bieber - Live my life
-006 Dj Fenix & Kathy Soul - Скажи Мне Да
-007 Alexander Popov - Elegia (Original mix edit)
-008 Миshа feat. Чук и Гек - Во Всех Новостях Весна
-009 Chuckie feat. Gregor Salto - What happens in Vegas
-010 Алисия & Влад Корса - Здесь и сейчас2012Жанр: Pop,DanceПродолжительность: 05:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496438   (252874) от 14.05.2012
-
-VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Rok, R&BПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
 ```
 
 

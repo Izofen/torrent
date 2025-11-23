@@ -1,3 +1,75 @@
+###  Публикация: 1636981   (197677) от 01.06.2023
+
+ORPALIS PaperScan Professional 4.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197677.jpg" />
+</div>
+
+
+###  Подробнее
+
+ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE1E6076C389CC0BAC038439AE4150D53B27132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636030   (197737) от 29.05.2023
+
+Kleptomania 5.0 Commercial [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kleptomania — уникальная в своем роде программа . Она умеет захватывать текст, но, в отличие от других программ, она его может снимать откуда угодно - даже из тех приложений, которые “не признают” буфер обмена. Она умеет, к примеру, захватывать список файлов в любой папке, путь к файлу, текст из диалоговых окошек и вообще - с любого места экрана. Kleptomania позволяет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90912DDCCEBB65A6CE9D2B6D7630121E26DC308C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636681   (197758) от 31.05.2023
+
+BlueLife Hosts Editor v1.5 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197758.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueLife Hosts editor - бесплатная утилита выступающая менеджером для быстрого редактирования файла HOSTS. Удобный графический интерфейс позволит вносить быстрые правки для перенаправления IP, а также производить блокировку заданных адресов. Файл HOSTS - системный файл Windows, который регулирует параметры перенаправления IP-адресов и DNS. Данный файл можно отредактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8863EE4CFA24AA0FCB550478E5B65920A04578E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516785   (197811) от 27.05.2023
 
 SequoiaView 1.3 [Ru/En]
@@ -6,7 +78,7 @@ SequoiaView 1.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197811.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197811.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ NikFileTree 1.8 + Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197833.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197833.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ ShowKeyPlus 1.1.18.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197982.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197982.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Nmap 7.94 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198070.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198070.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ OnlyStopWatch 6.16 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198151.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ FileOptimizer 16.30.2781 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198376.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ WebBrowserPassView 2.12 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198529.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ FileXile 3.00 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198564.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ jv16 PowerTools 8.1.0.1564 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198577.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ MemTest86 10.4 Build 1000 Pro by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198586.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198586.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ ThisIsWin11 1.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198614.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198618.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198618.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198645.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198645.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ PDF Annotator 9.0.0.914 (x64) [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198683.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198683.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ priPrinter Professional 6.9.0.2541 RePack by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198929.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198929.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ OEM Info Updater 9.8 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199142.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199142.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ NVIDIA Inspector 1.9.8.7 Beta [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199199.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199199.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Webcam Surveyor 3.9.2 Build 1212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199318.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199389.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ ClipGrab 3.9.7 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199473.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199473.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ EMCO Network Software Scanner 2.0.9 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199540.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199540.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199794.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ Reg Organizer 9.89 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199797.jpg" />
 </div>
 
 
@@ -554,78 +626,6 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B111959418133A80049D65549761A2963A581CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829191   (199815) от 25.10.2025
-
-PowerISO 9.2 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199815.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerISO - программа, позволяющая создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E561F1A38D4DF9BE01F680BE8834F14DC65BEAE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625720   (199953) от 11.04.2023
-
-Advanced Uninstaller PRO 13.25.0.68 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Uninstaller - идеальный инструмент для деинсталляции программ, ускорения работы компьютера и защиты вашей конфиденциальности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828840   (199968) от 24.10.2025
-
-PowerISO 9.2 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199968.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B00016A3B6E798A90C224594F047B7BDBBBA8CE
 ```
 
 

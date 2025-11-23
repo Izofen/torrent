@@ -1,3 +1,75 @@
+###  Публикация: 479573   (87036) от 07.04.2012
+
+Сафо / Sappho (2008) BDRip
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на остров Лесбос попадают в одно и то же время и место русская красавица и пара американских молодоженов, в которой он - художник, а она - миллионерша, то любовный треугольник неизбежен и предсказуем. Красота острова, прекрасные старинные статуи, стихи древнегреческой поэтессы Сафо, воспевшей любовь женщины к женщине, способны вскружить голову кому угодно - (   Читать дальше...   )Производство: УкраинаЖанр: Драма, Мелодрама, ЭротикаРежиссер: Роберт КромбиАктеры: Авалон Барри, Богдан Ступка, Людмила Ширяева, Тодд Соли, Элиссаиос Влахос, Вассилис Психоуепоулос, Оксана Осипова, Сергей Козенко, Александр Леонтаритис, Анатолий СеменовПеревод: ДублированныйСубтитры: русские, украинские, английскиеПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479023   (87037) от 07.04.2012
+
+Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйЯзык субтитров: Русский (forced), Русский (full), Английский (forced), Английский (full), Английский (SDH)Продолжительность: 02:12:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479388   (87038) от 07.04.2012
+
+Брайан Трейси, Рон Арден | Сила обаяния. Как завоевывать сердца и добиваться успеха [2008] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успех и в бизнесе, и в личной жизни напрямую зависит от умения общаться с окружающими. Секрет успеха заключается в использовании надежных методов взаимодействия с людьми. Из этой книги вы узнаете, как исключительно обаятельные люди добиваются успеха в общении с покупателями и клиентами, а также достигают глубокого взаимопонимания в отношениях с друзьями и близкими. Кроме того, авторы рассказывают, как нужно вести себя, чтобы неизменно пользоваться успехом у противоположного пола. Обаяние и умение быть приятным собеседником откроют перед вами поистине безграничные возможности.2008Жанр: Психология
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C1E5CC517831E60D8DC16650D55FAFA8DD20B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479249   (87040) от 07.04.2012
 
 Наполеон Хилл | Думай и богатей 2. Успех через позитивное мышление [1997] [PDF]
@@ -6,7 +78,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87040.jpg" />
 </div>
 
 
@@ -34,7 +106,7 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87041.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87043.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87046.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87047.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87049.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87050.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87051.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87053.jpg" />
 </div>
 
 
@@ -243,7 +315,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87054.jpg" />
 </div>
 
 
@@ -267,7 +339,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87055.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87056.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87057.jpg" />
 </div>
 
 
@@ -339,7 +411,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87058.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87059.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87060.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87061.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ magnet:?xt=urn:btih:7A5C9A77C5EC754D3838DF869EDB03DDBDB9FB53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87062.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ magnet:?xt=urn:btih:5395C4F3457C24CBEA3BF479F6737317EF600A82
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87063.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ Steinberg - Virtual Bassist Repack by AIR [VSTi][ISO][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87065.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87066.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87068.jpg" />
 </div>
 
 
@@ -557,86 +629,13 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87069.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Фильм расскажет об ужасных событиях, развернувшихся на фоне недавнего экономического коллапса.Жанр: Детектив, Драма, КриминалРежиссер: Крис ФишерАктеры: Сэмюэл Л. Джексон, Люк Уилсон, Лесли Бибб, Пейтон Лист, Трейси ТомсПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479247   (87072) от 07.04.2012
-
-Carbon Boot by Core-2 v.7.4.12 [Русский и английский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Boot by Core-2 v.7.4.12 - Модифицированный загрузчик Windows 7 х86 (AIO).Основное отличие от оригинального - наличие дополнительных возможностей и утилит.Исправлена ошибка загрузки из под Windows , удалено лишнее , прикручено нужное . Вобщем пробуем , тестим , отправляем предъявы и пожелания .Название программы: Carbon Boot by Core-2Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479107   (87074) от 07.04.2012
-
-Контрабанда / Contraband (2012) DVDRip  [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир контрабандистов — это большие ставки и огромный риск. Cтоит оступиться лишь раз, и тебя ждет смерть. В этом мире Крис был лучшим, его называли Гудини, но он вышел из игры, женился и начал новую жизнь.Жанр: Боевик, Триллер, КриминалРежиссер: Бальтасар КормакурАктеры: Кейт Бекинсейл, Марк Уолберг, Бен Фостер, Джованни Рибизи, Лукас Хаас, Дж.К. Симмонс Диего, Луна Жаклин, Флеминг Роберт, Уолберг Калеб, Лэндри ДжонсПеревод: ДублированныйПродолжительность: 01:49:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479614   (87075) от 07.04.2012
-
-Autodesk AutoCAD 2013 (x86, x64) (Русский)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87075.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD наиболее распространенная программа для автоматизации проектных работ, применяемая для 3D моделирования, архитектурного проектирования и подготовки рабочей документации. Благодаря использованию программы миллионами специалистов всего мира, формат DWG, родной для AutoCAD, стал стандартом для обмена документацией. Обмен документацией в данном формате производится между специалистами различных отраслей, независимо от используемых ими систем автоматизированного проектирования.
-Компания Autodesk впервые выпустила систему AutoCAD в конце 1982 года, таким образом опыт применения, развития и совершенствования продукта начался более 28 лет назад. Первые версии программы были призваны заменить распространенные тогда кульманы и состояли из базовых, простейших команд и примитивов, таких как отрезок, окружность, полилиния, текст. Современные версии AutoCAD помогают проектировщикам не только на этапе оформления чертежной документации, но и выступают как инструмент анализа, как платформа экспериментирования и поиска (   Читать дальше...   )Название программы: Autodesk AutoCAD 2013 (x86, x64)Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash

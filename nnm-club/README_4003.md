@@ -1,3 +1,75 @@
+###  Публикация: 1690812   (123760) от 09.01.2024
+
+Наполеон / Napoleon (2023) WEBRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123760.jpg" />
+</div>
+
+
+###  Подробнее
+
+История тяжёлого пути Бонапарта к власти через призму его изменчивых отношений с единственной настоящей любовью, Жозефиной.Производство: США / Apple Studios, Scott Free ProductionsЖанр: биография, военный, драма, историяРежиссер: Ридли СкоттАктеры: Хоакин Феникс, Ванесса Кирби, Тахар Рахим, Руперт Эверетт, Марк Боннар, Пол Рис, Бен Майлз, Риана Дьюс, Людивин Санье, Эдуар ФилиппоннаПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full, SDH), английские (forced, full, SDH) и др.Продолжительность: 02:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A0033B51B4021E72897C75C0F418915D9AB77A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690830   (123761) от 09.01.2024
+
+Маэстро / Maestro (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биографический фильм о жизни и творчестве знаменитого американского композитора, дирижера и пианиста Леонарда Бернстайна. В 25 лет его приняли в Нью-Йоркский филармонический оркестр, после чего он написал музыку к таким выдающимся произведениям как «Вестсайдская история», «В порту» и многим другим. На протяжении всей жизни Бернстайна поддерживала любовь и забота (   Читать дальше...   )Производство: США / Sikelia Productions, Amblin Entertainment, NetflixЖанр: Биография, музыка, драма, мелодрамаРежиссер: Брэдли КуперАктеры: Брэдли Купер, Кэри Маллиган, Мэтт Бомер, Винченцо Амато, Грег Хилдрет, Майкл Юри, Брайан Клагман, Ник Блеймаер, Мэллори Портной, Александра СантиниПеревод: Профессиональный многоголосый (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE75B3071062E7DA0EA7B379EC15EF610D7C8880
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292329   (123762) от 09.01.2024
+
+The Long Dark v.2.26 (2017) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123762.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark – это глубоко проработанный симулятор исследования и выживания в условиях дикой природы. Никаких зомби, никаких бандитов – только вы, Мать-природа и суровые вызовы, которые она будет бросать вам в лицо. Здесь никто не будет держать вас за руку: игра дает подсказки, но не ответы, побуждая вас исследовать окружающий мир и приспосабливаться к нему. Место (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2017Разработчик: Hinterland Studio Inc.Поддерживаемая ОС: 10.9+Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EEEC32C7033CCA44C99B5134BEFA076DD62BD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689303   (123763) от 09.01.2024
 
 Предпоследняя инстанция (2024) WEBRip [H.264/1080p] (сезон 3, серии 1-10 из 10)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123763.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0287B0E67CE3C26211A12150426E8BA3620CEC25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123764.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:628FBB498267F750C5324BE6B5C96197C26D7EEC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123765.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123766.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ WinRAR 6.24 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123767.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:BDFFAB779916ACE9DD90EA4E3E4D0CC085B07892
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123768.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:256F280199103B45B5892ADBFC54350BD2E7C886
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123769.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:97E2D9A32B8EFECBEA7285E715C058CA743103E3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123770.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:A2421EFE3C63B67FE2AD2FDCBB91FD213E49DD87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123771.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ VA - Лучшие песни Радио DFM за 2023 год (2024) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123772.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:70FA2CFE3B6DF22C28FDBBD8DF7E5BAD42FBA2FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123773.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:96FCACC25D390C96762A3BC3706D51A631C5EC36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123774.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:F99CB181B5385C6958C88D520D6B1280D1EF51AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123775.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123776.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:687F6519CF42112E8F34CF008C4D9C2A76E548B8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123777.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Monkey's Audio 10.42 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123778.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:B20F1BA2757E39A9C4B4250F8E999E3F2125D276
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123779.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:29FA7105FC5193A0AC66A61D5289B0DFB96AC5D4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123780.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123781.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ Lumiere Trouble - Sisterie (2023) [MP3|320 Kbps] <Rock Opera, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123782.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123783.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123784.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ magnet:?xt=urn:btih:196C0F02C6C78DEE8775067FFA3BA67A96E12095
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123785.jpg" />
 </div>
 
 
@@ -568,80 +640,6 @@ magnet:?xt=urn:btih:196C0F02C6C78DEE8775067FFA3BA67A96E12095
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7517B230DB24B1D63F74706558B6974F94E2C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690706   (123786) от 08.01.2024
-
-Вячеслав Шишков | Странники (2007) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классический реализм.
-Вячеслав Яковлевич Шишков (1873–1945) – русский советский писатель, журналист, инженер-исследователь, продолжатель классических традиций русской литературы. Шишков известен как автор романов «Угрюм-река», «Емельян Пугачев», «Ватага», «Странники», а так же повестями и рассказами, в которых ярко описаны самобытные нравы дореволюционной (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМир (аудио)Продолжительность: 17:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C1D34852ACB526C35ADB11210D6DE58A61733C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690672   (123787) от 08.01.2024
-
-Чингиз Абдуллаев | Дронго (Книга 30). Фактор страха (2022) [MP3, Юрий Леханов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три миллиона долларов – не иголка, без следа исчезнуть не могут. Он и есть этот след – убитые, обманутые люди. А после того, как погиб полковник Кочневский, следствие окончательно зашло в тупик. Политики и бандиты, бизнесмены и авантюристы, чекисты и киллеры сбились с ног, разыскивая злополучные миллионы. Но эксперт аналитик Дронго умеет мыслить парадоксами. Он знает: (   Читать дальше...   )Жанр: Шпионский детективИздательство: Аудиокнига своими рукамиПродолжительность: 10:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53556D9AE8C112794B16042506FA37A42C177D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690641   (123788) от 08.01.2024
-
-Александра Невтонова | В порту (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123788.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рассказе речь пойдёт о коротком промежутке времени из жизни бездомных мальчишек. О том, с какими трудностями приходится им сталкиваться на своём бродяжном веку.
-Для детей среднего школьного возраста. Иллюстрации Д. Мощевитина.Жанр: РассказИздательство: Издание Г.Ф.МиримановаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A5F026B70D9C4F57885FB51A211407AC9DAD86
 ```
 
 

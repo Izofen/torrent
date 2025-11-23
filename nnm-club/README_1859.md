@@ -6,7 +6,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48689.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crash Time - Undercover (2012) [Multi] (1.0) Scene Skidrow
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48690.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D225FDDE4AB36FA17734DD91D0E3BB610C822E06
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48691.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48692.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0D4769E085F20B16DB02D266787D1EA512DACBCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48693.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48694.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:98F4A568D8C54CAF769995C9C83D8CDD3C94FAC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48695.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C1FF1D69B0EED74DC872DB750D1FA1C8311CE36C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48696.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BC67BD26EECC01D3D663F6E15CF5CC29B0298E34
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48697.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:140ED6E58D42582A53AAD816657D6E24BCF5C247
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48698.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4E7F170D3B5A0E09819AB04904ED426C7FF8FA9E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48699.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.2 Mod by baalajimaestro  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48700.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6915C2A4ABA0E7270F5617FC07329AAC54109343
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48701.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Spirits of The Silicium Forest (2024) [Ru/En] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48702.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BikeComputer Pro v9.1.0 GP Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48703.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:6CF05822100D6381FE364E4EBC515DC9FC1A11C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48704.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ BananaDefenderBlocker 1.0.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48705.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48706.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Boeing признает вину в мошенничестве и сговоре
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48707.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Boeing признает вину в мошенничестве и сговоре
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48708.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:467D18588D07E7ECEDC3F1315419D93717DB5260
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48709.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dungeons of Hinterberg (2024) [Multi] (1.0.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48710.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:266FCC9B7787BD31662762B9AB5560118C776085
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48711.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48712.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48713.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48714.jpg" />
 </div>
 
 

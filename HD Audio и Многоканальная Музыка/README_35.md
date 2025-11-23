@@ -6,7 +6,7 @@ Skillet - Studio Albums (13 releases) (1996-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38494.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Cure - Songs of a Lost World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38614.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dead Icarus - Zealot (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38699.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nipper Swing Band - Vintage Radio (Swing Golden Age) (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38789.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38791.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Vision Bleak - Studio Albums (7 releases) (2004-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38797.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38799.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38800.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38806.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38960.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Otto Kintet - Wildernis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38969.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38970.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Orrin Evans - Walk a Mile in My Shoe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38972.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Omer Leshem - Play Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38974.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pornotek - Murmures à l'Oreille (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38982.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Rossera Brothers Band - Out Of The Blue (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38987.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Piet Verbist - Flamenco Jazz Summit: El Mar Empieza Aquí (2024) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38990.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Peter Gall - Love Avatar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38994.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Green Day - American Idiot (2004) 20th Anniversary Deluxe Edition, Remaster, 202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39055.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ King Crimson - Red (1974) Elemental Mixes, 2024, Discipline Global Mobile [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39065.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Blink-182 (& +44; Box Car Racer) - Studio Albums (14 releases) (1995-2024) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39160.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Dead Can Dance - Studio Albums & Tributes (13 releases) (1984-2018) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39164.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Greg Satterthwaite - Crossing Lines (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39265.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Grant Jackson - Devotion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39274.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Claire Martin - Almost In Your Arms (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39279.jpg" />
 </div>
 
 

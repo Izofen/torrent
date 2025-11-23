@@ -1,3 +1,75 @@
+###  Публикация: 591351   (136326) от 19.12.2012
+
+Хоббит: Нежданное путешествие / The Hobbit: An Unexpected Journey (2012) CamRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о путешествии Бильбо Бэггинса, который пускается в грандиозный поход, целью которого является отвоевание утраченного королевства гномов Эребор у зловещего дракона Смога. Совершенно неожиданно с хоббитом налаживает контакт волшебник Гэндальф Серый. Так Бильбо находит себя, присоединяясь к компании тринадцати гномов, возглавляемых легендарным воином, Торином Дубощитом. Их путешествие проляжет через Дикий Край, через предательские земли, населенные гоблинами и орками, смертоносными варгами и гигантскими пауками, народом, меняющим шкуры, и волшебниками. И хотя их цель находится на Востоке среди пустошей Одинокой Горы, сначала им придется выбраться из туннелей гоблинов, где Бильбо встретит существо, которое изменит его жизнь навсегда… Голлума.Жанр: Фэнтези, ПриключенияРежиссер: Питер ДжексонПродюсер: Кэролинн Каннингэм, Питер Джексон, Фрэнсис УолшАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитэдж, Джеймс Несбитт, Кен Стотт, Кейт Бланшетт, Элайджа Вуд, Хьюго Уивинг, Кристофер Ли, Энди СеркисПеревод: ДублированныйПродолжительность: 02:37:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591346   (136327) от 19.12.2012
+
+Хоббит: Нежданное путешествие / The Hobbit: An Unexpected Journey (2012) CamRip [UKR]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о путешествии Бильбо Бэггинса, который пускается в грандиозный поход, целью которого является отвоевание утраченного королевства гномов Эребор у зловещего дракона Смога. Совершенно неожиданно с хоббитом налаживает контакт волшебник Гэндальф Серый. Так Бильбо находит себя, присоединяясь к компании тринадцати гномов, возглавляемых легендарным воином, Торином Дубощитом. Их путешествие проляжет через Дикий Край, через предательские земли, населенные гоблинами и орками, смертоносными варгами и гигантскими пауками, народом, меняющим шкуры, и волшебниками. И хотя их цель находится на Востоке среди пустошей Одинокой Горы, сначала им придется выбраться из туннелей гоблинов, где Бильбо встретит существо, которое изменит его жизнь навсегда… Голлума...Жанр: Фэнтези, ПриключенияРежиссер: Питер ДжексонПродюсер: Кэролинн Каннингэм, Питер Джексон, Фрэнсис УолшАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитэдж, Джеймс Несбитт, Кен Стотт, Кейт Бланшетт, Элайджа Вуд, Хьюго Уивинг, Кристофер Ли, Энди СеркисПеревод: ДублированныйПродолжительность: 02:39:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591289   (136329) от 19.12.2012
+
+10 лет спустя / 10 Years (2011) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136329.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 лет спустя бывшие одноклассники собираются, чтобы оторваться по полной и поставить на уши весь город. Море выпивки, веселья и воспоминаний, но теперь все по-взрослому! Красавчик Джейк прибыл на вечеринку вместе с ослепительной девушкой, они — идеальная пара, и они счастливы в любви. Но этой ночью на глаза Джейку попадается его первая любовь, прошлое притягивает его и стучится в память с новой силой. Сможет ли он сделать правильный выбор? И правда ли, что у любви нет срока давности?Жанр: Драма, Мелодрама, КомедияРежиссер: Джеми ЛинденПродюсер: Марти Бауэн, Рейд Каролин, Вик ГодфриАктеры: Ченнинг Татум, Дженна Деван, Джастин Лонг, Макс Мингелла, Оскар Айзек, Крис Прэтт, Эри Грейнор, Дэниэл Скотт Лампкин мл., Лили Лампкин, Скотт ПортерПеревод: Любительский (одноголосый)Продолжительность: 01:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D78B0953C07EE82B20F9BC7C322C43061D40AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590762   (136331) от 19.12.2012
 
 Район №9 / District 9 (2009) BDRip [1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136331.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136331.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136332.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136332.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136333.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136334.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ ACDSee Pro 6.1 Build 197 Final (x86/x64) RePack by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136337.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ WindowBlinds 7.4.0 build 320 (Public) [Eng] + 127 best visual styles (Обнов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136338.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ WindowBlinds 7 – программа, предоставляющая польз
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136340.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ VirtualBox 4.2.6.82870 Final + Extension Pack + PortableAppZ [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136344.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136344.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ Digital Juice - Animated Canvases Collection 12: Great Expectations (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136346.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136346.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ Animated Canvases 12: Great Expectations - Выберите правильный
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136347.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ magnet:?xt=urn:btih:4C54B3DD49ED9C2F8E821D8651D12BC5804266B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136348.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ magnet:?xt=urn:btih:4C54B3DD49ED9C2F8E821D8651D12BC5804266B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136349.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136349.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ magnet:?xt=urn:btih:4C54B3DD49ED9C2F8E821D8651D12BC5804266B6
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136351.jpg" />
 </div>
 
 
@@ -340,7 +412,7 @@ magnet:?xt=urn:btih:0FA0C1A6F58BC72481354E9F0C22A0E23A833E2C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136353.jpg" />
 </div>
 
 
@@ -364,7 +436,7 @@ Berlitz | Чешский язык. Базовый курс (3CD) [MP3+PDF] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136354.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ magnet:?xt=urn:btih:31CA46686F41EF8392C3212558CD5DEC5BAFAC3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136355.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ Advanced SystemCare Pro 6.0.8.182 Final [Rus|Eng] RePack от D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136356.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ Advanced SystemCare – программный пакет, содержащий 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136359.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136359.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Advanced SystemCare – программный пакет, содержащий 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136360.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ magnet:?xt=urn:btih:3F92A0119BEC08FD462F7FD2A5CA7C010B0EC38C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136363.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:3F92A0119BEC08FD462F7FD2A5CA7C010B0EC38C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136364.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:EE861D3338D7A76A73C39C6FF59A78A139CCF473
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136372.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:7F763333F765B4CCB08E868E1F8D8FC2C80FD2E9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136374.jpg" />
 </div>
 
 
@@ -572,97 +644,6 @@ magnet:?xt=urn:btih:7F763333F765B4CCB08E868E1F8D8FC2C80FD2E9
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591078   (136376) от 19.12.2012
-
-Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourites (1997) [FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Di Quella Pira (From 'Il Trovatore')	1:55
-	02 - De Miei Bollenti Spiriti (From 'La Traviata')	1:57
-	03 - Recitar!.. Vesti La Giubba (From 'I Pagliacci')	3:52
-	04 - Dammi I Colori...Recondita Armonia (From 'Tosca')	2:51
-	05 - Intanto Amici...A Voi Tutti Salute (From 'Cavalleria Rusticana')	2:50
-	06 - Hai Ben Ragione (From 'Il Tabarro')	2:34
-	07 - Ingemisco (From 'Messa Da Requiem')	3:29
-	08 - E Lucevan Le Stelle (From 'Tosca')	2:51
-	09 - O Lola! (Siciliana) (From 'Cavalleria Rusticana')	2;03
-	10 - Che Gelida Manina (From 'La Boheme')	4:28(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36280E34846F9F2F584E763CB0779936BC4DEDE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591243   (136380) от 19.12.2012
-
-Александр Бушков | Нелетная погода [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136380.jpg" />
-</div>
-
-
-###  Подробнее
-
-При попытке входа в гиперпространство, космический корабль "Лебедь" потерпел крушение. Связь с ЦУПом и кораблями сопровождения оборвалась, запасы энергии иссякли, приборы сигнализировали о реальных, но неизвестных испытателям опасностях.
-За всю историю кораблей Дальнего прыжка ничего подобного не случалось. Назад, в обычное пространство экипаж выйти не смог. Командир корабля Панарин не знал, где они, но "Лебедь" должен вернуться домой...Жанр: фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DF6983E70FB0113836771576ECAB8EE41A717F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591190   (136383) от 19.12.2012
-
-Белый орел - The Best (2010) [MP3|256 кб/с]<Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Я по тебе скучаю [04:32]
-02.Говори мне, говори [04:49]
-03.Крик на морском берегу [03:55]
-04.Я бы умер молодым [04:10]
-05.Я не хочу тебя ни с кем делить [03:35]
-06.Другая [03:38]
-07.Моя любовь-воздушный шар [05:47]
-08.Три гвоздики [04:19]
-09.Я объявляю вам любовь [05:05]
-10.Рулетка [04:52](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147BFF291953EBC0A304ECE4C1A91DC8FBCAD3B3
 ```
 
 

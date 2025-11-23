@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105580.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FDBAE4C09DC9DD30A199FB1DBA7AF72182C43DF3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105595.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:0328DA5069E08A71C33A3349FB043D979CBE9459
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105738.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:C5EABB1EF689ABD98D4D71CB46F276B531E2B6E9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105771.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:05DA8ED42FE9C8CCC892E8F6588C37D2A1176B85
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105784.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:1FF082BADAEDD2B1651E29400638BAE9FAC96F59
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105798.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:BAA40B616F3B4EE51879D59CC5FA3587AD8ACFC7
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105951.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:FEFCB138A9BDAA25E5DFEC8B379EB881CE3A419B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105984.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:355D07690F7D70AE22CC63ED9ED46B709887CAA9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106076.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:853A72CDEA939E96E74FEA9C19E90E15F49BC88E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106097.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:91A2D16E05D0229009BC65A1638EFC3B8B5C8FE2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106377.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:4CDEF844269801FEFDBAE09789E34AF0B59D8011
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106440.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E0ADB7AFD23A3A4B2883A864277AB5E157F9FAD3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106476.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:18509CD79C1DF700C9B8F3453CC02398B073A194
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106585.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:E58F20050ADC17F3D5649B695DD15A955869FD46
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106612.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:126A878C9635BB71C1254AE61E0DD4185FBE3267
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106632.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DC02A972042C238D37725F005C5688F15EF2ABE3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106664.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:85E9DD28DB275F90192CEC231A9E7D93C5D3C6D4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106910.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:8B52D6732F2A7106C1A2EBA2A2AE8DD7EB60DDEB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106954.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F80B1DF703966F63F719B650EFD1E8067564BF3D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107008.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:7A870D63D3CE6BF3C25F0C1E12A5E99EAE9381C0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107029.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107040.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:9028E68E0107E3E647D41316F81C8C251393E2AF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107151.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:05960E654A352474CF2A21B1E8C18354E2FB4595
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107189.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:1D967C38079622A1CCEC602107FC5B0576D40582
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107194.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:BB567D9BC86ED339F4C7189A1EFA06B8DA229708
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107197.jpg" />
 </div>
 
 

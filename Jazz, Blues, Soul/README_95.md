@@ -6,7 +6,7 @@ Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113648.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113651.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113653.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113659.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113667.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113690.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113705.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113707.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ El Jadida Milano - Symphony Flavours Lounge (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113711.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Airport Passengers - Hangar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113713.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Daes - D1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113719.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113745.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113746.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113747.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113748.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113749.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jack Jezzro & Star City Symphony - Guitar at the Symphony (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113758.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113766.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113771.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113773.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113774.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113777.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113837.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113840.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113846.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113852.jpg" />
 </div>
 
 

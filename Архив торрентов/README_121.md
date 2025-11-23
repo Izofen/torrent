@@ -6,7 +6,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.39.6 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Smart Defrag Pro 10.3.0.435 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30588.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30588.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (1501) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30589.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30589.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StartAllBack 3.9.1 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30591.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30591.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 7 SP1 7601.27520 x64 3in1 by OneSmiLe [18.01.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30611.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FreeFileSync 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30620.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ExamDiff Pro 15.0.1.23 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30629.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Music Collection 3.8.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30632.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30632.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Joplin 3.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30633.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30633.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NoMachine 8.15.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30655.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Capture One 23 Enterprise 16.5.4.2682 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30672.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30672.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ SoftPerfect RAM Disk 4.4.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30673.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AnyDesk 9.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30681.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ uTorrent Pro 3.6.0 Build 47178 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30683.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:85AA1280DEBD91180D0AFC098D5AD141ACE50479
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30684.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dr.Web CureIt! (17.01.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30686.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.5371 (Updated January 2025) by FaTaL 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30715.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Magic Eraser / Магический ластик v2.17.0 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30731.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Resize Me! Pro v2.3.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30737.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ KiCad 8.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30744.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jigsawscapes® - Пазлы v3.7.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30752.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30752.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Light Image Resizer 7.1.3.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30756.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30756.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ocenaudio 3.14.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30761.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Umagic AI / ИИ Рисует v1.7.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30769.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30769.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ EZ CD Audio Converter 12.0.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30770.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AIMP 5.40.2655 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30771.jpg" />
 </div>
 
 

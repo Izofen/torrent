@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173744.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173744.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52E69675BEEE623D9D2F0820266E5FB711DEC0BC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174391.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B1BAF95C95BACBF884B1D3A9FE69FF523292A108
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175016.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:940AC2A1B2DD8AEA724ADEDF3F2A1421F7889E06
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175545.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175545.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FD1AFC1287189897357175E52629353B7FD4AB0E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176185.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176185.jpg" />
 </div>
 
 
@@ -118,6 +118,54 @@ magnet:?xt=urn:btih:250ECB82DAF9E00A32AC6306D2DE8B738F52D45D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429135   (177630) от 05.12.2020
+
+Живая еда с Сергеем Малозёмовым (05.12.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоит ли есть по утрам сухие завтраки? Помогает ли грейпфрут похудеть? В каких количествах сало может быть полезным? Нужно ли промывать макароны после варки? Полезен ли гематоген? Помогает ли облепиховое масло при язве? Насколько опасны энергетики?Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFBEEA8BF0333FDEA51BA6B2994DC05F4E3EF0E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429330   (177672) от 05.12.2020
+
+По следу монстра (05.12.2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177672.jpg" />
+</div>
+
+
+###  Подробнее
+
+«По следу монстра» — художественно-документальный цикл, в основу которого легли реальные истории, потрясшие всю страну. Новый проект телеканала НТВ — это сочетание игрового кино и настоящей документалистики, а каждая серия — история поиска преступника, пытающегося уйти от наказания. Реальные дела, реальные участники, родственники, свидетели и ответы на животрепещущие (   Читать дальше...   )Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD05C8087BE34CDC8B82DFCB1BC1F1DC3D91307A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593658   (179727) от 28.11.2022
 
 Как убили Джона Кеннеди / JFK Revisited Through the Looking Glass (2021) DVB [H.264]
@@ -126,7 +174,7 @@ magnet:?xt=urn:btih:250ECB82DAF9E00A32AC6306D2DE8B738F52D45D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179727.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179727.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ magnet:?xt=urn:btih:546A15C4600861F4C9F5010FC0642A61C65A0A95
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180486.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180486.jpg" />
 </div>
 
 
@@ -176,7 +224,7 @@ magnet:?xt=urn:btih:8F94BF5D238351F446B27E14D598941EED5D4150
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181185.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181185.jpg" />
 </div>
 
 
@@ -200,7 +248,7 @@ magnet:?xt=urn:btih:7455014B471C3413844E3789D3ED1F9B0FDF53FA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181354.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181354.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ magnet:?xt=urn:btih:739038651B81613EB6409D062B0FC68BCBE4962F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181487.jpg" />
 </div>
 
 
@@ -251,7 +299,7 @@ magnet:?xt=urn:btih:32C850D76119DB6831CB8FF0C7E37EE89CA44962
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_182316.jpg" />
 </div>
 
 
@@ -275,7 +323,7 @@ magnet:?xt=urn:btih:C8F1EC9D97C10209DB55C2D291AD6D1455B7FB1C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182349.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_182349.jpg" />
 </div>
 
 
@@ -299,7 +347,7 @@ magnet:?xt=urn:btih:7024336A056F0E7EEE00A25A8021E59B1D247B18
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182392.jpg" />
 </div>
 
 
@@ -324,7 +372,7 @@ magnet:?xt=urn:btih:5CE861BCCA88B888E82DADDC73B05A46985B2473
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182924.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_182924.jpg" />
 </div>
 
 
@@ -348,7 +396,7 @@ magnet:?xt=urn:btih:B0BC4DF0D0544DEB8A4B4559CF86D02395E30C94
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183422.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183422.jpg" />
 </div>
 
 
@@ -372,7 +420,7 @@ magnet:?xt=urn:btih:25932870C5790D1015AC6C40DA7BE1672BBFE771
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183434.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183434.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ magnet:?xt=urn:btih:68D5C2516A753839B98DA0150445930BBC0F5640
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183440.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183440.jpg" />
 </div>
 
 
@@ -420,7 +468,7 @@ magnet:?xt=urn:btih:F423247B2980858E41551D839B0FEC4A4292DC89
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184064.jpg" />
 </div>
 
 
@@ -444,7 +492,7 @@ magnet:?xt=urn:btih:ED9006C0BD3B6196484FAECBB0F893C9F68DF317
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184905.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184905.jpg" />
 </div>
 
 
@@ -468,7 +516,7 @@ magnet:?xt=urn:btih:B7D270B5943460C405B8F2E15090B1D6E155735E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185509.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185509.jpg" />
 </div>
 
 
@@ -493,7 +541,7 @@ magnet:?xt=urn:btih:0CB337054C6EE86132C3EC3613FDDB526E0404FE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186194.jpg" />
 </div>
 
 
@@ -517,7 +565,7 @@ magnet:?xt=urn:btih:007E84368151B39DFAC4FD7F702599767348824E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186208.jpg" />
 </div>
 
 
@@ -542,7 +590,7 @@ magnet:?xt=urn:btih:8561B66E11A9D9239C052AAE407D6D34C67DF3C4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186257.jpg" />
 </div>
 
 
@@ -567,7 +615,7 @@ magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186449.jpg" />
 </div>
 
 
@@ -581,56 +629,6 @@ magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC72474383B0567822181EFD8B48AC641459EE36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663572   (186567) от 22.09.2023
-
-Следствие вели... (03.09-17.09.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти уголовные дела гремели на весь Советский Союз. По ним были написаны романы и сняты художественные фильмы. Их фигуранты - миллионеры эпохи социализма, хитроумные воры, профессиональные грабители и валютчики. Они бросили вызов советскому обществу. Вызов приняли лучшие сыщики страны. В их распоряжении не было компьютеров, сотовой связи и бойцов ОМОНа. Но это не (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:44:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776F92C70522A55C1DA37E3DB53C626F5924C978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591723   (186912) от 19.11.2022
-
-Живая еда с Сергеем Малозёмовым (19.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный завтрак – как приготовить его по науке? И что необычное едят по утрам в разных странах? Как регулярный отказ от завтрака влияет на вес и самочувствие? Что полезнее по утрам – яйца или каши? Стоит ли есть перед тренировкой? И как, не жертвуя сном, быстро приготовить что-то вкусное?
-
-Соевый соус – неприглядная правда о его производстве. На что в составе надо (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A1F8F6CEE9A79222D6DFF5D63B74FD92DA721B
 ```
 
 

@@ -6,7 +6,7 @@ ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98537.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98538.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98539.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98548.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98552.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98554.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98560.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:A8F7BDFE2C4F5736D8A7BDF3461493236755534E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98562.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:4DE679129D4BDAFFF7FE74C7E10E19B0A1355AAE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98569.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Black Messiah - The Final Journey (2012) [FLAC|Lossless]<Symphonic Black, Folk, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98570.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ DJ Boyko - NO SLEEP! Episode 191 (30 марта 2012) [MP3|320 кб/с]<Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98571.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:9069B6B820DCFFFF9A8B56E9400752680C2D8986
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98572.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98572.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9069B6B820DCFFFF9A8B56E9400752680C2D8986
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98574.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:D12999EE7DD002237A03DB8B4F9196447CC71CDA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98592.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98592.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:D12999EE7DD002237A03DB8B4F9196447CC71CDA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98594.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FK - Музыка сильных (Mixtape) (2012) [MP3|320 кб/с]<Rap, Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98602.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C7F4466947AA1AF2216606F2117ED77FDB44EFD6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98604.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:6411DCBA68916AD46FB23516410DE46A6CF73AA1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98606.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:3D3EBA47A1612E962BDB33648CF95209E4D44277
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98607.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:9A55CB3D188C9369472100FBC71BD0A0F15C45C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98609.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:E0596D6B99F01021D9C87C53FF0B1B3CEE4013C4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98612.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Paul Van Dyk - Evolution (2012) [MP3|192 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98616.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:863CB93236779E63A3FB6C40D083921BD3663561
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98622.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:6BC8B59928483340258BE13B43B83BE255EB007F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98623.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:BBEEF150A9C5A3A98661B7ABA9A10A639E4BD5BF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98625.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ magnet:?xt=urn:btih:AFB793A0AC39AFEA0A462D305A7AD6D720A42E06
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98628.jpg" />
 </div>
 
 

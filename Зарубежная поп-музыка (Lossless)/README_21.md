@@ -1,3 +1,84 @@
+###  Публикация: 1613739   (202554) от 20.02.2023
+
+Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатый студийный альбом. В музыке Милен Фармер всегда было много печали, но на «L’Emprise» она зашкаливает. Это ее личный, откровенный альбом.01. Invisibles
+02. À Tout Jamais
+03. Que L’aube Est Belle
+04. L’emprise(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613860   (202560) от 20.02.2023
+
+VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Ain't Nobody (4:05)
+02. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
+03. Tina Turner - The Best (5:29)
+04. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656815   (202877) от 01.09.2023
+
+VA - Best Summer Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Travolta - Summer Nights (From “Grease”) (3:34)
+02. Klangkarussell - Sonnentanz (6:02)
+03. Paenda - Second Summer (2:46)
+04. Michel Teló - Ai Se Eu Te Pego (Ao Vivo) (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9259980BBD8BA86B57DAA754DFA1D1C66993B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655297   (204485) от 25.08.2023
 
 Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
@@ -6,7 +87,7 @@ Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204485.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204485.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204655.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204655.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204969.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204969.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Toto Cutugno - Лучшие песни (2011) Серия Новая коллек
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205060.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205060.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ VA - 80s Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206084.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206084.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206094.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206441.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ P!nk (Pink) - TRUSTFALL (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207098.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207098.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207519.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207519.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207628.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207628.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207846.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207848.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207848.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208021.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208021.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208531.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ Stars On 45 - 40 Years Anthology (2022) 2CD, Remastered [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208709.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Rita Ora - You & I (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208811.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208811.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208861.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208861.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208878.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208878.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208898.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208898.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209409.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209409.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Madonna - The Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210771.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210771.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Texas - The Very Best Of 1989 – 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211221.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211221.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Joe Dassin - 23 Succes (1989) [APE|Lossless|image + .cue] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211420.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211420.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ Joe Dassin - 23 Succes (1989) [APE|Lossless|image + .cue] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C7D2D65E9895E1AC1E0740FD8968425D8BC7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638140   (212056) от 07.06.2023
-
-VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - Angel Baby
-02. Shawn Mendes - Treat You Better
-03. Maroon 5 - Animals
-04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281546   (212277) от 22.07.2022
-
-Riccardo Fogli - I Grandi Successi (2008) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storie Di Tutti I Giorni
-02. Che Ne Sai
-03. Se L'amore Sei Tu
-04. Tu Cosa Fai Stasera(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19961003A615EF5597453B61AC85D549C562DB21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960836   (213562) от 18.08.2023
-
-Скрябiн та Проекти Кузьми (Скрябин) - 18 Albums + 6 Single + 2 Live's + Compilation & Remixes (1995-2019) [APE, FLAC|Lossless|image + .cue, tracks + .cue, tracks] <Alternative Pop, Rock, Syn ...
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213562.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Скрябін» - український музичний гурт, що за час своєї творчої активності пройшов шлях від дарквейву, синті-попу, постпанку і техно до нової романтики та поп-року. Склад гурту також неодноразово змінювався. Єдиним постійним учасником колективу з часу його заснування і до своєї смерті був Андрій «Кузьма» Кузьменко. Як правило, музику гурту поділяють на «старий» (приблизно (   Читать дальше...   )1995 - Птахи
-1997 - Казки
-1997 - Мова Риб
-1999 - Технофайт(   Читать дальше...   )Жанр: Alternative Pop, Rock, Synth Pop |Продолжительность: 33:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0B57345681070F32141AB8BF006898DB911565
 ```
 
 

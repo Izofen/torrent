@@ -6,7 +6,7 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100013.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100213.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100216.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Adamantine - Chaos Genesis (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100404.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100538.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100552.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100561.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100563.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100603.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100605.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:BA2224F5476FF801E248A6EC77A980745D8D2F3C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100646.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D1E081DBC004BFE62A4DC15458CBF9FF15AD0C12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100702.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100703.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100705.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:107E51BB1C5DDDC0FB608B45D81CB37E1F76E45E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100771.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100847.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100850.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100859.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100861.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <So
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100883.jpg" />
 </div>
 
 

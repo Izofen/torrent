@@ -6,7 +6,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160719.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162247.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163645.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167519.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168855.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168955.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169783.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171802.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172903.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173093.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173124.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173725.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173725.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186148.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186148.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186156.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186156.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193857.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193857.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194539.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194539.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194927.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194929.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195567.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195567.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Radio Commander (2019) [Ru/Multi] (1.155g/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195824.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195824.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195891.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Civitatem (2022) [En] (1.09) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196282.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196282.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197594.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197594.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ My Train Arrives (2019) [Ru/Multi] (1.0/dlc) Scene TinyIso [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198166.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198166.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Moviehouse (2023) [Ru/Multi] (1.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199567.jpg" />
 </div>
 
 

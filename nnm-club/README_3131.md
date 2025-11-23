@@ -1,3 +1,75 @@
+###  Публикация: 488481   (100497) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5440x4080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488677   (100499) от 26.04.2012
+
+Улетное видео по-русски. Новый сезон  (2012.04.25) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488078   (100500) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 2881х2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488075   (100501) от 26.04.2012
 
 [Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
@@ -6,7 +78,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100501.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100502.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100503.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100504.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100505.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100506.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100507.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100510.jpg" />
 </div>
 
 
@@ -216,7 +288,7 @@ magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100511.jpg" />
 </div>
 
 
@@ -244,7 +316,7 @@ VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100513.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100515.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100517.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100521.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100522.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100524.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100527.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100529.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100530.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100531.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100532.jpg" />
 </div>
 
 
@@ -567,7 +639,7 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100533.jpg" />
 </div>
 
 
@@ -594,7 +666,7 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100534.jpg" />
 </div>
 
 
@@ -608,87 +680,6 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770287   (100535) от 31.12.2024
-
-VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Kuiper Belt (4:06)
-02.  Venus Ship - Tupac Amaru (4:32)
-03.  Vito Lalinga (Vi Mode Inc. Project) - FBI Investigations (4:01)
-04.  Soulstance - Fast River (4:37)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539DEFCF25B74F1B63164586667554C90F6B655B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770362   (100536) от 31.12.2024
-
-River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Damn It, Fred (4:13)
-02. In the Neighborhood (4:01)
-03. Queen of Hearts (4:56)
-04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770365   (100537) от 31.12.2024
-
-Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Feeling You (4:37)
-02. Lonnie Brooks' Blessing (0:14)
-03. Blues In My DNA (4:48)
-04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
 ```
 
 

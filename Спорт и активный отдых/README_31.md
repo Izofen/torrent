@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106378.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:970A8E38423524F2339F8D7BF9302D1BFEFDB6C2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106491.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:64A9C0985A2506EEF6883776948292ACB3D80764
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106799.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Гонка (07.07
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106953.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Спринт (06.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106958.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D386BAE8A563BD09D838312957DBF18E067B4A03
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106981.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106992.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:6113D3F5D50011F0F9A24B0EDB427EB90C756C4E
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107014.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:08F2D220AEEE370887E9755290C9BD590A5CF03B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107019.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:5AC7CC4D4085A894965B40C7B1F8648BBEA69D9B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107106.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107141.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107185.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107188.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107200.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107208.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:209E023129391DBD800C39B4A9B7CE050E821E3F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107235.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107265.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:15BFE0FFF513BFC5C04D1AE1FA23F0894A7DBDD8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107266.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:EE104BAA642CB76BEE45A509F2B6C92E32D2009C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107338.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:2CD1C2C5E08BFB25E0C2114A6482545CB097846F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107402.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:4418880ED29F1D8369211C70F8CB7583E72B8D4F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107421.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:28BCAC7B9A60487A26283CE5F8D661545436D087
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107447.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107448.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107554.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:7600C08ECAE8328AB29904AACE9CEB028F6494F8
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107564.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:05D72CC4922904D041750904B22DAFF1F810D82B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107571.jpg" />
 </div>
 
 

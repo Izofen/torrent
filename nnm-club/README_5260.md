@@ -1,3 +1,181 @@
+###  Публикация: 1517701   (162200) от 16.12.2021
+
+Rhinoceros 7 v7.13 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA862DC7F519725436C156A42CA4CA9FA3E3FF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432838   (162201) от 19.12.2020
+
+Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Bound Train (06:19)
+ 02. Whiskey Barrel Blues (03:23)
+ 03. All I Can Do Is Cry (06:07)
+ 04. Avalanche (04:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812EC81B93EF9AB2CE082C691C10C1CD579C9D41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826319   (162202) от 18.10.2025
+
+Одиночки с прицепом (2025) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162202.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном маленьком-маленьком городе одна богатая-богатая женщина, Юлия Ахромеева, решила прикупить себе целый этаж в самом лучшем доме. На этом этаже живут четыре семьи. Ну как - семьи? Четыре одинокие женщины с детьми. Каждой сделано щедрое предложение: в обмен на их квартиры Юлия предлагает варианты с большим метражом в хороших районах. Ахромеева, с ее опытом, не (   Читать дальше...   )Производство: Россия | Спутник ФильмЖанр: МелодрамаРежиссер: Александр СухаревАктеры: Виктория Полторак, Сергей Шишков, Евдокия Лаврухина, Александр Коркунов, Анна Дьяченко, Дмитрий Гудочкин, Полина Беленькая, Ольга Хохлова и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7119E7342AF470EBB19C322B0EADF5F2E7F18C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674191   (162203) от 04.11.2023
+
+VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andia - Solstitiu (04:09)
+ 002. 5УТРА - Как Дела (02:50)
+ 003. Ado - Прости (02:10)
+ 004. AGAYAN - Тактильность (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432955   (162204) от 19.12.2020
+
+Фристайл. Кубок мира 2020-2021. Идре Фьялл (Швеция). Парный могул. Финалы (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап Кубка мира по фристайлу 2020-2021. Идре Фьялл (Швеция).
+13 декабря 2020 года
+Парный могул.
+Мужчины и Женщины. ФиналыТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517713   (162205) от 16.12.2021
+
+Андрей Сиротенко | Сон, ставший жизнью (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как часто нам снятся кошмарные сны? Сны, сюжеты которых не предполагают счастливого конца, оставляющие ощущение липкого страха, или же те, что слегка пугают нас, как детские страшилки? Максим видел разные сны. И в одном из них странный рыжебородый дед напророчил ему близкую кончину. Во сне и наяву. Однако есть шанс спастись. Для этого ему придется прожить в реальности (   Читать дальше...   )Жанр: Детективы, Триллер, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AA6308CB6D617E0363173B5437057DFD800330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598691   (162206) от 20.12.2022
+
+iShot Pro-ScreenShot Recording 2.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение iShot — отличное ПО для  скриншота области, окна, многооконный скриншота, скриншота оболочки, скриншот с интервальной съемкой, быстрая аннотация, текстура, выбор цвета, запись экрана, аудиозапись, оптическое распознавание символов, инструмент перевода скриншота на Мак.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2022Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC235AD18655F905A9A441646E4EEA8CCA1AE55B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826475   (162207) от 19.10.2025
 
 VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
@@ -6,7 +184,7 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162207.jpg" />
 </div>
 
 
@@ -33,7 +211,7 @@ Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162208.jpg" />
 </div>
 
 
@@ -60,7 +238,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162209.jpg" />
 </div>
 
 
@@ -84,7 +262,7 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162210.jpg" />
 </div>
 
 
@@ -111,7 +289,7 @@ magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162211.jpg" />
 </div>
 
 
@@ -135,7 +313,7 @@ magnet:?xt=urn:btih:2CF527021D30854AC4CA3C36620525D84941AA98
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162212.jpg" />
 </div>
 
 
@@ -159,7 +337,7 @@ magnet:?xt=urn:btih:F0ABC16170BC81ECD3C1B7547305E6B749B43D85
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162213.jpg" />
 </div>
 
 
@@ -183,7 +361,7 @@ magnet:?xt=urn:btih:163321A6DD84DC0DF46409EDAD7734BB8D3F4C9B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162214.jpg" />
 </div>
 
 
@@ -207,7 +385,7 @@ magnet:?xt=urn:btih:93905E618ABB5ABEA94F22065376258048CC176A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162215.jpg" />
 </div>
 
 
@@ -231,7 +409,7 @@ VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, In
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162216.jpg" />
 </div>
 
 
@@ -258,7 +436,7 @@ magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162217.jpg" />
 </div>
 
 
@@ -282,7 +460,7 @@ magnet:?xt=urn:btih:225ED8F2C22F9798FB90CA1E2038547D8132B338
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162218.jpg" />
 </div>
 
 
@@ -306,7 +484,7 @@ magnet:?xt=urn:btih:49EBA8D97305F41D59D6E498DE18AB975FCB4218
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162219.jpg" />
 </div>
 
 
@@ -330,7 +508,7 @@ Firefox Browser ESR 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162220.jpg" />
 </div>
 
 
@@ -354,7 +532,7 @@ magnet:?xt=urn:btih:9E4B6432624F2D71B2FC4375E955B899A3E9E8D1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162221.jpg" />
 </div>
 
 
@@ -381,7 +559,7 @@ magnet:?xt=urn:btih:712F3B3AF0CAB377E1A018205225764B891BAFDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162222.jpg" />
 </div>
 
 
@@ -405,7 +583,7 @@ magnet:?xt=urn:btih:6467A2411A5482069D64F1702698186E9EDF3BB5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162223.jpg" />
 </div>
 
 
@@ -429,7 +607,7 @@ magnet:?xt=urn:btih:0D99B36297AF443542CEEDC25480D4953330743F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162224.jpg" />
 </div>
 
 
@@ -453,7 +631,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162225.jpg" />
 </div>
 
 
@@ -464,179 +642,6 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426136   (162226) от 19.12.2022
-
-English LinDuo HD v5.29.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего 10-15 минут в день Уделив нашему приложению 10-15 минут каждый день вы с легкостью запомните все важные слова. В изучении иностранного языка важна не длительность урока, а регулярность. 10 минут урока в день в течении недели продуктивней, чем занятия в течении часа один раз в неделю.Тип издания: ModРелиз состоялся: 18.12.2022Разработчик: LinDuoПоддерживаемая ОС: Android 4.1+Жанр: ОбучающиеЯзык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674129   (162227) от 04.11.2023
-
-Nevercenter CameraBag Pro 2024.0.1 x64 Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162227.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag Pro позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag Pro к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97767D3D5638C12BF0B71D6A6CEAA77F9C13BDA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598623   (162228) от 19.12.2022
-
-Skillbox, Андрей Котельников, Никита Акулич | Покер и логическое мышление (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь применять математику в игре, прокачаете логику, аналитические навыки, будете здраво оценивать риски и управлять эмоциями.
-Новые знания пригодятся не только за игровым столом, но и в жизни.
-Чему вы научитесь:Готовиться к игре. Узнаете, как выбрать комнату с подходящими соперниками, правильно настроиться на игру и подойти к столу с преимуществом перед (   Читать дальше...   )Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:16:39Реклама: Присутствуют сторонние наложения и вставки в видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C011B5F98213C2F4726CFF2829086DDD6C944C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529593   (162229) от 18.10.2025
-
-A Short Hike (2019) [Multi] (1.9_v3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись на живописном острове "Соколиный Пик" - важное место для всех пернатых. Вам предстоит забраться на самую высокую гору, но вот не задача: Вы играете за птицу по имени Клэр, которая толком не умеет летать. Вам предстоит собирать особые перья, которые помогут взлететь Вам чуть выше. Но этим дело не ограничится. На острове обитают разнообразные зверушки, (   Читать дальше...   )Тип издания: LicenseРазработчик: adamgryuЖанр: Приключение, ExplorationЯзык субтитров: Английский, Французский, Испанский, ЯпонскийЯзык интерфейса: Английский, Французский, Испанский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432704   (162230) от 19.12.2020
-
-VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Taylor - You've Got a Friend (04:28)
-02. Tones and I - Dance Monkey (Stripped Back) (02:51)
-03. Dua Lipa - Be the One (Acoustic) (03:12)
-04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399296   (162231) от 18.10.2025
-
-SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162231.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUPERHOT - это шутер от первого лица, где время движется только вместе с тобой. Здесь не будет восполняемой полоски здоровья. Не будет стратегически разбросанных боеприпасов. Только ты - один против всех, с голыми руками. Выхватывай оружие у падающих врагов, стреляй, руби и уворачивайся от пуль, как Нео.Тип издания: LicenseРазработчик: SUPERHOT TeamЖанр: Action (Shooter), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674108   (162232) от 04.11.2023
-
-Формула 1. Сезон 2023. Этап 21. Гран-при Бразилии. Квалификация (03.11.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162232.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 ноября 2023, пятница. 21:15 МСК. Этап 21, Сан-Паулу. Гран-при Бразилии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
 ```
 
 

@@ -1,3 +1,182 @@
+###  Публикация: 1599867   (159286) от 25.12.2022
+
+И.П. Гурский | Элементарная физика (1973) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является пособием по физике для поступающих в вузы, ее можно также использовать как введение в вузовский курс физики. В ней последовательно и кратко рассмотрен весь элемен­тарный курс физики, при этом основное внимание обращено на решение типовых задач и примеров.
+Рассчитана на учащихся старших классов средней школы, слушателей подготовительных отделений вузов (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CFD18E6F60DDEB860694D0B90571B572753256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590484   (159287) от 25.12.2022
+
+Саблезубый Тигр - 11 Albums (2011-2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2011 - Ваши ёжики видны
+2011 - Девушка с кокосами
+2016 - Нам не хватает на портвейн(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11 CD, 05:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6751378AD1F2009B33A29E93D9DF4FC0D1C633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600101   (159288) от 25.12.2022
+
+Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pentatonix (PTX) - американская a cappella группа из Arlington, Texas, которая сформировалась в 2011 году. Их канал на YouTube в настоящее время имеет 19,8 миллиона подписчиков и 5,7 миллиарда просмотров. Pentatonix выиграли три премии Grammy в 2015, 2016 и в 2017 годах. 21 сентября 2022 года члены группы анонсировали свой шестой рождественский альбом Holidays Around (   Читать дальше...   )01. feat. Meghan Trainor - Kid on Christmas (3:22)
+02. It’s the Most Wonderful Time of the Year (2:50)
+03. feat. Grace Lokwa - Love Came on Christmas (Joy to the World × Kumama Papa) (4:08)
+04. Star on Top (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599877   (159289) от 25.12.2022
+
+Микки: Однажды под Рождество / Mickey's Once Upon a Christmas (1999) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки, Минни и их знаменитые друзья Гуфи, Дональд, Дейзи и Плуто собираются вместе, чтобы рассказать в трех удивительных историях о волшебстве Рождества.
+Мини и Микки расскажут о том, как однажды решили подарить друг другу незабываемое Рождество. Гуфи и Макс поделятся впечатлениями о своих рождественских приключениях, а еще о том, как к ним в гости пришел настоящий (   Читать дальше...   )Производство: США / Disney Television Animation, Disneytoon Studios, Walt Disney Feature AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Джан Фалкенштейн, Алекс Манн, Брэдли РэймондПеревод: дублированныйСубтитры: русские (forced, full), английскиеПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F085D82AEE891657285F1EB305A6F6FFC4DCB1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600029   (159290) от 25.12.2022
+
+Croteam | Артбук по игре Serious Sam 3: BFE / Serious Sam 3: BFE - Artbook (2011) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Serious Sam 3: BFE".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B91B3D36CCDE6B70CCED976EC07C2936582AB0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600024   (159291) от 25.12.2022
+
+Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159291.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B0AFD423C81C392AE9A490A06D94FBC2A6C6D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599888   (159292) от 25.12.2022
+
+Квартирник у Маргулиса. Группа 7Б (24.12.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт рок-группы «7Б» на «Квартирнике». Официальным днем рождения коллектива считается 8 марта 2001 года. Дебютный альбом «Молодые ветра» мгновенно покорил множество музыкальных хит-парадов, практически все песни стали хитами, а композиция с одноименным названием стала своеобразной визитной карточкой группы. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:06  Я пришел, чтобы петь
+00:05:00  Осень
+00:12:08  Эльдорадо
+00:20:19  Владивосход(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676024   (159293) от 11.11.2023
 
 Шёпоты и крики / Viskningar och rop (1972) BDRip [H.264/720p] [MVO] [BFI Collection]
@@ -6,7 +185,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159293.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ magnet:?xt=urn:btih:74804B3062F71CF34EA5972679F678059BF505F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159294.jpg" />
 </div>
 
 
@@ -54,7 +233,7 @@ Photo Studio PRO v2.7.1.2139 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159295.jpg" />
 </div>
 
 
@@ -78,7 +257,7 @@ Photo Lab PRO v3.12.75 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159296.jpg" />
 </div>
 
 
@@ -102,7 +281,7 @@ magnet:?xt=urn:btih:59C29BD9127D0B3AA482A45257E47FA68AF059F1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159297.jpg" />
 </div>
 
 
@@ -126,7 +305,7 @@ magnet:?xt=urn:btih:03E8FC61E7F895765ECD0776791403393635E979
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159298.jpg" />
 </div>
 
 
@@ -150,7 +329,7 @@ iPulse 3.1.41 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159299.jpg" />
 </div>
 
 
@@ -175,7 +354,7 @@ PowerDirector – Video Editor v12.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159300.jpg" />
 </div>
 
 
@@ -199,7 +378,7 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159301.jpg" />
 </div>
 
 
@@ -224,7 +403,7 @@ magnet:?xt=urn:btih:C4F3A9E4A69183DE22D5EBC9234E11B3E9F2783A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159302.jpg" />
 </div>
 
 
@@ -248,7 +427,7 @@ Mimimi Games | Артбук по игре Desperados 3 / The Art of Desperados I
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159303.jpg" />
 </div>
 
 
@@ -272,7 +451,7 @@ Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159304.jpg" />
 </div>
 
 
@@ -299,7 +478,7 @@ magnet:?xt=urn:btih:B233752D78E792FEC09F01CCB7FE8C8A524BB29E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159305.jpg" />
 </div>
 
 
@@ -323,7 +502,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159306.jpg" />
 </div>
 
 
@@ -347,7 +526,7 @@ magnet:?xt=urn:btih:EC7821A7E13379632CBCF3E2A879305E3792BB34
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159307.jpg" />
 </div>
 
 
@@ -372,7 +551,7 @@ magnet:?xt=urn:btih:DBF70F81EF52E0159E23D73556A03217AF089456
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159308.jpg" />
 </div>
 
 
@@ -396,7 +575,7 @@ VA - Female vocal assorted (2022) [MP3|320 Kbps] <Pop, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159309.jpg" />
 </div>
 
 
@@ -423,7 +602,7 @@ magnet:?xt=urn:btih:B2E82DC0BE8671A20723C6D2688026A77753D73E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159310.jpg" />
 </div>
 
 
@@ -449,7 +628,7 @@ YouCut - Video Editor v1.600.1178 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159311.jpg" />
 </div>
 
 
@@ -460,180 +639,6 @@ YouCut - один из самых удобных и оптимальных по 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167481CC6D09D953717DE1ACE525C6762F71547C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600015   (159312) от 25.12.2022
-
-Дет­ство, призвание и первые опыты Джакомо Казановы, венецианца / Infanzia, vocazione e prime esperienze di Giacomo Casanova, veneziano / Casanova: His Youthful Years (1969) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация мемуаров Джакомо Казановы.Производство: Италия / Mega Film, Panta CinematograficaЖанр: комедия, биография, история, экранизацияРежиссер: Луиджи КоменчиниАктеры: Леонард Уайтинг, Мария Грация Буччелла, Лайонел Стэндер, Рауль Грассилли, Уилфрид Брэмбелл, Тина Омон, Марио Скачча, Клаудио Де Кунерт, Сильвия Дионисио, Сара ФранкеттиПеревод: Одноголосый любительскийЯзык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED220BB5A9E857BC050B0FE42C643D5DCFB539F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599511   (159313) от 25.12.2022
-
-П.Ю. Германович | Математические викторины (1967) [PDF] [Ukr]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге помещены в определенной системе вопросы и упражнения, устные и полуписьменные, для математических викторин. Однако учитель сможет использовать этот материал при проведении других видов внеклассной работы.
-Книга рассчитана на учителей математики IV-X классов.
-Перевод с российского издания издательства «Просвещение». Издание второе.Жанр: МатематикаЯзык: УкраинскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C17E43315B0DC97A2810B79F211A313E22E0E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676081   (159314) от 11.11.2023
-
-illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Psytrance, Progressive House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfall (Trivecta Remix) [3:47]
-02. Starfall (Lost Prince Remix) [3:28]
-03. Starfall (Gem & Tauri Remix) [4:26]
-04. Starfall (3THOS x Draeden Remix) [4:02](   Читать дальше...   )Жанр: Electronic, Psytrance, Progressive HouseПродолжительность: 02:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599924   (159315) от 25.12.2022
-
-Битва экстрасенсов (2022) WEBRip [H.264/1080p] (сезон 23, выпуск 16)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159315.jpg" />
-</div>
-
-
-###  Подробнее
-
-23-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB2607AA26C59A2BBB643F1E21908D49857391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675950   (159316) от 11.11.2023
-
-Сокровища Парижа времен Прекрасной эпохи / Les tresors du Paris de la Belle Epoque (2020) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159316.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 1880 по 1914 год в Париж приезжало новое поколение художников со всего мира, чтобы выразить свое творчество во всех областях: от архитектуры до декоративного искусства, включая ювелирные изделия и рекламные плакаты. Париж Прекрасной эпохи сформирует мифический образ парижанки, шикарной и утонченной.Производство: Франция, Martange Production, TV5MONDE EuropeЖанр: документальный, история, искусствоРежиссер: Флоранс ТрокероУчастники: Лоран Котта, Фредерик Декутюрель, Софи ДжовиллардПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, испанскиеПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73162ECBF60B018318DDA311653475D30DF5FEB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599934   (159317) от 25.12.2022
-
-MacClean 3.6.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики PhoneClean – популярного инструмента для очистки iOS-устройств – представили обновленное решение для компьютеров Mac. Приложение MacClean 3 позиционируется как эффективное средство с набором специальных модулей, с помощью которых можно избавить OS X от ненужных файлов.
-MacClean 3 содержит целый ряд новых функций для очистки Mac от неиспользуемых файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2021 iMobie Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0B483F89C6600F3E29B3CA2ACE38EEB033C28C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676028   (159318) от 11.11.2023
-
-Журнал | Делаем сами №19 (544) (октябрь 2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159318.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB4C1F3734C2E00A12C50F102801643C949A47D
 ```
 
 

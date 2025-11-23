@@ -1,3 +1,111 @@
+###  Публикация: 1590239   (239802) от 17.04.2023
+
+Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
+1992 - Laughing On Judgement Day
+1994 - Behind Closed Doors
+1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635324   (239834) от 25.05.2023
+
+И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+Увертюра. I действие
+Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
+Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635254   (239913) от 25.05.2023
+
+Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
+1988 - Breaking Point
+2012 - A Time Of Crisis
+2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635275   (239937) от 25.05.2023
+
+VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239937.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 П. Нечепоренко - Час Да По Часу
+A2 П. Нечепоренко - Олынка
+A3 П. Нечепоренко - Цвели, Цвели Цветики
+A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626980   (239947) от 16.04.2023
 
 Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
@@ -6,7 +114,7 @@ Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239947.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239947.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239963.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240023.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240202.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240263.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240263.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240885.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240885.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240900.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241081.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241081.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241108.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241108.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241112.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241112.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241130.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241130.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241158.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241158.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241189.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241189.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241666.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241666.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241674.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241674.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electron
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241702.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241702.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241806.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241806.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241807.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241807.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241857.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241857.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241973.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241973.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242025.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242025.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242193.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242193.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624613   (242217) от 07.04.2023
-
-Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Telegraph Road	14:20
-A2		Private Investigations 7:00
-
-B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634629   (242453) от 21.05.2023
-
-Давид Ойстрах и симфонический оркестр ВР, дир. А. Хачатурян - А. Хачатурян - Концерт для скрипки с оркестром ре-минор (1966) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Modern>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242453.jpg" />
-</div>
-
-
-###  Подробнее
-
-А. Хачатурян
-A  I. Allegro Con Fermezza
-B1 II. Andante Sostenuto
-B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624080   (242461) от 04.04.2023
-
-The Twins - A Wild Romance (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242461.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Love System 4:20
-A2 Ballet Dancer 3:25
-A3 A Wild Romance 4:42
-A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634351   (242599) от 20.05.2023
-
-Rebellion - Studio Albums (9 releases) (2002-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rebellion — немецкая heavy metal группа. Была создана в 2001, бывшими участниками Grave Digger - гитаристом Уве Лулисом и басистом Томи Гёттлихом.2002 - Shakespeare's Macbeth - A Tragedy in Steel
-2003 - Born A Rebel
-2005 - Sagas Of Iceland - The History Of The Vikings-Volume I
-2007 - Miklagard - The History Of The Vikings-Volume IIЖанр: Heavy/Power MetalПродолжительность: 09:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
 ```
 
 

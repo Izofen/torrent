@@ -6,7 +6,7 @@ Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112180.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113895.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114690.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114879.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116056.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116060.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116066.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116952.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119485.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lovebites: Clockwork Immortality (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120292.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120671.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120675.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120718.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120733.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123209.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5D7E467994F7EF10BE9AE19838ADFD18BE943C2D
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124844.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125096.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125492.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125845.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125968.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:521B7A3DD3FEE025D7CB2E47554C6210A27F81BC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125972.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:53A9580479AC40E88689AB5011CCB94E8EB48609
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125978.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126163.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Till Lindemann - 2023 Tour Live (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126298.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:86996D37596F7A6A614B3A9A27DE186FE265315F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126662.jpg" />
 </div>
 
 

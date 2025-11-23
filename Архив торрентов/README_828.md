@@ -1,3 +1,78 @@
+###  Публикация: 1345489   (166611) от 15.12.2019
+
+MerrOw - Odysseus (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost in the Triangle 10:41
+2. Lunar Tides 08:28
+3. Odysseus 07:53
+4. Trippy Jellyfish 17:12(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1FBF7A8054E0E568AEAA26842A21414F63278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597324   (166612) от 14.12.2022
+
+AOMEI Backupper Technician Plus 7.1.1 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166612.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01303192B7F28912E5F825F6B5E2A5A674D340BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516300   (166614) от 10.12.2021
+
+Visual Studio Code 1.63.0 + Автономная версия (standalone) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F37EBD45282639009CF65F587A2EB68AF1F265E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345338   (166616) от 15.12.2019
 
 File Multi Tool 6 v6.20 [En]
@@ -6,7 +81,7 @@ File Multi Tool 6 v6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166616.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Pixelmator Pro 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166621.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ magnet:?xt=urn:btih:69D229163E23725FB41B0979FA0F7CC9D2D7C574
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166626.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ Opera 93.0.4585.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166638.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ Tixati 2.87 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166643.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Logic Pro X 10.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166648.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ XnViewMP 0.98.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166653.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ PhotoScape X Pro 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166658.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ The Bat! Professional 9.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166661.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ ASoft .NET Version Detector 21 R1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166664.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ iRingg 1.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166667.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ NIUBI Partition Editor 7.6.7 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166668.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ Belonoga - Through The Eyes Of The Sun (2013) [FLAC|Lossless|image + .cue] <Folk
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166673.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ Grids for Instagram 5.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166677.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ SIV (System Information Viewer) 5.54 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166684.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ Skynet 2019.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166686.jpg" />
 </div>
 
 
@@ -404,7 +479,7 @@ WhatsApp 2.2049.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166690.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166692.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ SnippetsLab 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166707.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ Amadeus Pro 2.6.2 (build 2235) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166711.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ iDatabase 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166715.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ GFI Kerio Control 9.4.3 build 8282 [x64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166720.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ PDF Checkpoint 1.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166721.jpg" />
 </div>
 
 
@@ -561,80 +636,6 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1793C8C3E2F101F86E43BEB8954B4FA9581065C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345553   (166725) от 15.12.2019
-
-Mitti 1.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
-
-Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.05.2019Разработчик: ImimotПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198E2F9515622C8F5D938C95E51EEF2FDE661011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345474   (166727) от 15.12.2019
-
-Storyist 4.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Storyist для Mac OS - является мощной средой для работы писателей и сценаристов, которую по достоинству оценят как профессиональные писатели, так и те, для кого написание историй - просто хобби. Storyist включает в себя текстовый редактор, заметки, планировщик, конвертер в epub и Kindle и пр. Программа поможет организовать и упорядочить все части вашей истории. Ведь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Storyist Software LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038D7B105294AD66B1299E1F2640423EEC6AC56B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345624   (166731) от 15.12.2019
-
-Cascadea 1.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Cascadea, первый менеджер пользовательских стилей, разработанный как расширение приложения Safari и собственное приложение macOS. Cascadea позволяет легко устанавливать пользовательские стили, которые изменяют внешний вид любого веб-сайта, который вы хотите. Независимо от того, хотите ли вы, чтобы ваш канал в социальных сетях был насыщенным цветом, или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2019Разработчик: Mike FreudenПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF2FE8B20A48C3EC9398A10AEDD45157A8023EA
 ```
 
 

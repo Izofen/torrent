@@ -6,7 +6,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34621.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A86B456B577ABB921056DCF05A49196C694BF20C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34622.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A86B456B577ABB921056DCF05A49196C694BF20C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34623.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BurnAware Professional 18.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34624.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DVDFab 13.0.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34625.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F106644B067261B94F54A9827ADEA1D77CDF7664
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34626.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D40DA2847F1FBD5EBBC60925B9549ACB52CD2AB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34627.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Music News For Forum vol.051 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34628.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kylie Minogue - Tension II (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34629.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34630.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A305E451587923FE5925564329698EC3AE8A1719
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34631.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34632.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AFE8671F653CC74B674A59F0DFF515FCD90CB929
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34633.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F6598D7E0ECC17E4E916BBE933FD3224C1DE7A8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34634.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F6598D7E0ECC17E4E916BBE933FD3224C1DE7A8F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34635.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:10DF86B8735808BBA8BFE47F102194F30CF9F7B9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34636.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Movavi Slideshow Maker 25.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34637.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ v2rayN 7.3.1 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34638.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack FitGirl [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34639.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B7EFB1A1726BD38F71AEE50DBDA7B5DAF12280A7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34640.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Aiseesoft Video Converter Ultimate 10.8.90 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34641.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ DVDFab UniFab 2.0.3.8 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34642.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Blender 4.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34643.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A2F16D4C1227D2427619189EBB8F3031866EBAA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34644.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Blasphemous 1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34645.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:BA9ACDE0ED30A0DBA2BDDCA2F3EAFFE61C319450
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34646.jpg" />
 </div>
 
 

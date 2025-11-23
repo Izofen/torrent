@@ -1,3 +1,81 @@
+###  Публикация: 1711588   (112476) от 30.03.2024
+
+Rotting Christ - The Apocryphal Spells (2023) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112476.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Astral Embodiment (5:29)
+02. Fire And Flame (3:05)
+03. I Am The Moonchild (2:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AB78EAAD4F247D82C4F521BA06990ADAA13D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711382   (112477) от 30.03.2024
+
+Piezo 1.9.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADF67587360B0CB17495B78358BF31F8D6C1268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711416   (112478) от 30.03.2024
+
+SiteSucker 5.3.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112478.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EEE7B13D2E6A45F13C7DA27B4DC2264193FFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711564   (112479) от 30.03.2024
 
 VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -6,7 +84,7 @@ VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112479.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:C5985867FFE56DB9D33580BFB0AF5D1EAB8A588B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112480.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ VA - Miami Sessions 2024 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112481.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:1C5ECE052407C41EA30E0C624D85DF08BBA69747
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112482.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ magnet:?xt=urn:btih:DBB11349E259BCDD656127E61E33544780166167
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112483.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112484.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112485.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112486.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ ANA - The Art of Letting Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112487.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ magnet:?xt=urn:btih:622FBA03DA6D9273A549E9C2B95E9EC01E3A7849
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112488.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ VA - Dynamic (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112489.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112490.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ magnet:?xt=urn:btih:9EB4537305C39E6A28F2936419DCF4CF1DCD9AD1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112491.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112492.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112493.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112494.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Spoq - Solace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, DubStep,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112495.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112496.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112497.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112498.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Q-Dir 11.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112499.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112500.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112501.jpg" />
 </div>
 
 
@@ -592,82 +670,6 @@ Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB8371AC974FFA0DA2DC20662A1164402A64BAE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711503   (112502) от 30.03.2024
-
-AudFree Audio Capture for Mac 3.1.0 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для записи звука без потерь для Mac, позволяющее записывать любой звук, воспроизводимый на компьютерах MacOS, например песни, аудиокниги, подкасты, игры, фильмы, потоковое аудио и другие источники звука, с сохранением 100% качества звука без потерь.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: ©2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A9F7FDD5C0BE2CA22A5EB290B880EA11B9938B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711520   (112503) от 30.03.2024
-
-The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112503.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Jem album from long time NJ rocker's The Cynz featuring the dynamic lead singler Cyndi Dawson and guitarits Henry Seiz. Famous for their live performances, Grip Weed's Kurt Reil captured the exciting lead singer's voice and Henry's unique guitar lines. With Smitereen's guitarist Jim Babjack on a cover of their "Room With A View." Add in their cover (   Читать дальше...   )01. Crow-Haired Boys
-02. You Would Not Miss Me
-03. Little Miss Lost
-04. When We Were In Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BF37D1C094CD5F625BCED932CF413F97F72A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711534   (112504) от 30.03.2024
-
-Emurasoft EmEditor Professional 24.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112504.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33298EC7A2E94DBFB3EB70CFA5E92CEB6FF98184
 ```
 
 

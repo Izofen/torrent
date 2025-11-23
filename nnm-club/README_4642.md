@@ -1,3 +1,158 @@
+###  Публикация: 1194851   (143880) от 28.12.2017
+
+Елена Темникова - 2 альбома, 1 макси-сингл, 10 синглов (2014-2017) [MP3|320 Kbps] <Pop, Club>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143880.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Temnikova I
+2017 - Temnikova II
+2014 - Зависимость
+2015 - Наверно (& Natan)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B5016225C87247182DCE203934CC0F1A86C48A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348407   (143881) от 27.12.2019
+
+Need for Speed: Heat (2019) [Ru] (1.0) Origin-Rip InsaneRamZes [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Heat – очередная часть гоночной серии NFS, в которой вас ждут как дневные официальные гоночные соревнования Speedhunters Showdown, так и нелегальные уличные заезды.Тип издания: Origin-RipРазработчик: Ghost GamesЖанр: Racing, ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2368C7EAF66E0136A7195B9F2D179CFCAA1473A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272266   (143882) от 27.12.2018
+
+Владимир Поселягин | Шатун (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Странствующий маг».
+
+Будущее не предопределено. Новый-старый мир, всё знакомо, и всё так изменилось! Да, похоже, амулет, используемый святошами, сработал так, что отправил его в будущее, очень и очень далёкое. Будущее не предопределено, но своё решение попутешествовать Борис не изменил. Какая разница, где это делать, в прошлом или будущем? Тем (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13215EA26953165730D0EDBC2015E5C7C5728A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520044   (143883) от 27.12.2021
+
+Кэтрин Купер | Шале (2021) [MP3, Игорь Богданов, Юлия  Санникова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французские Альпы, 1998 год. Два молодых человека поехали кататься на горных лыжах в буран.
+Назад вернулся только один. 20 лет спустя.
+Четверо людей, так или иначе связанных с пропавшим, оказались в одном роскошном шале на том же самом курорте. Каждый из них хранит свой секрет. У двоих руки обагрены кровью. Один из них готовит убийство. А кое-кто точно знает, что (   Читать дальше...   )Жанр: Зарубежные детективы, триллерыПродолжительность: 07:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9CC4040313A851DD46C7EE41F3CCDECBD9346C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435238   (143884) от 28.12.2020
+
+Новогодний голубой огонек (1983) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1983 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB7E980016DC1D6B28244CAE15B0469DD232889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589694   (143885) от 16.12.2012
+
+FreeBSD 9.1 RELEASE [i386] (1xDVD+1xCD+USB IMG+BootOnlyCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143885.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeBSD — свободная Unix-подобная операционная система, потомок AT&T Unix по линии BSD, созданной в университете Беркли. FreeBSD работает на PC-совместимых системах семейства x86, включая Microsoft Xbox, а также на DEC Alpha, Sun UltraSPARC, IA-64, AMD64, PowerPC, NEC PC-98, ARM. Готовится поддержка архитектуры MIPS.
+
+FreeBSD разрабатывается как целостная операционная система. Исходный код ядра, драйверов устройств и базовых пользовательских программ (т. н. userland), таких как командные оболочки и т. п., содержится в одном дереве системы управления версиями (до 31 мая 2008 — CVS, сейчас — SVN). Это отличает FreeBSD от Linux — другой свободной UNIX-подобной операционной системы — в которой ядро разрабатывается одной группой разработчиков, а набор пользовательских программ — другими (например, проект GNU), а многочисленные группы собирают это всё в единое целое и выпускают в виде различных дистрибутивов Linux.
+
+Помимо своей стабильности, FreeBSD популярна и благодаря своей лицензии, которая существенно отличается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195114   (143886) от 28.12.2017
 
 Минфин России предлагает ограничить объем одного ICO 1 млрд рублей
@@ -6,7 +161,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143886.jpg" />
 </div>
 
 
@@ -30,7 +185,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143887.jpg" />
 </div>
 
 
@@ -54,7 +209,7 @@ BELOFF 2019.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143888.jpg" />
 </div>
 
 
@@ -78,7 +233,7 @@ magnet:?xt=urn:btih:455F925A9882618B016743A3B15BD58CDFDA9AAD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143889.jpg" />
 </div>
 
 
@@ -104,7 +259,7 @@ magnet:?xt=urn:btih:E41980AC3CAA59F74CF867E805B9BAD333490BB7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143890.jpg" />
 </div>
 
 
@@ -128,7 +283,7 @@ magnet:?xt=urn:btih:279728AD962DD420BD120B8D724085596DC76AF3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143891.jpg" />
 </div>
 
 
@@ -152,7 +307,7 @@ Wes Montgomery - Wes's Best (1960-e) 2019, Resonance Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143892.jpg" />
 </div>
 
 
@@ -179,7 +334,7 @@ magnet:?xt=urn:btih:AF6174D5019B2934EA3B3855094706D39BDA78CF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143893.jpg" />
 </div>
 
 
@@ -203,7 +358,7 @@ magnet:?xt=urn:btih:CDC7EF9F00054C96D674019BA80F5692C412C990
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143894.jpg" />
 </div>
 
 
@@ -227,7 +382,7 @@ magnet:?xt=urn:btih:7F708CF06B1FC95CC26DD6259D7B899432A5A891
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143895.jpg" />
 </div>
 
 
@@ -254,7 +409,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143896.jpg" />
 </div>
 
 
@@ -278,7 +433,7 @@ magnet:?xt=urn:btih:7AF41160A39D3E1B6597952E7AE9CA9A1FD55A02
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143897.jpg" />
 </div>
 
 
@@ -302,7 +457,7 @@ magnet:?xt=urn:btih:DF92F940247B87CC8E67B84E572BC8899C0C9400
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143898.jpg" />
 </div>
 
 
@@ -326,7 +481,7 @@ magnet:?xt=urn:btih:EAE11C338029A5DFE1DCD0F7D665AE0B7A57D4D8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143899.jpg" />
 </div>
 
 
@@ -351,7 +506,7 @@ magnet:?xt=urn:btih:484CD1FACF138D3BEE6B56A793DD120F47B5E050
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143900.jpg" />
 </div>
 
 
@@ -375,7 +530,7 @@ magnet:?xt=urn:btih:DBA6E37A9799048EFA81B4F41E82F259D0508BE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143901.jpg" />
 </div>
 
 
@@ -402,7 +557,7 @@ magnet:?xt=urn:btih:166621B7FD1CB8DC0FACE46B9C05B056741F5C2F
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143902.jpg" />
 </div>
 
 
@@ -426,7 +581,7 @@ eMail Address Extractor 3.5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143903.jpg" />
 </div>
 
 
@@ -451,7 +606,7 @@ Coolmuster PDF Converter Pro 2.1.22 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143904.jpg" />
 </div>
 
 
@@ -475,7 +630,7 @@ magnet:?xt=urn:btih:491B160AA515D1CA830579DB57077311B21DAA59
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143905.jpg" />
 </div>
 
 
@@ -488,158 +643,6 @@ magnet:?xt=urn:btih:491B160AA515D1CA830579DB57077311B21DAA59
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD708643005F8E6607409A5054D2424337413EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678772   (143906) от 22.11.2023
-
-XnView MP for Mac 1.6.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143906.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnViewMP (или XnView) — неплохой кроссплатформенный, бесплатный просмотрщик с легкими редакторскими зачатками. Как программа просмотра фотографий и графики он вполне хорош: поддерживает все мыслимые форматы (включая RAW), умеет сортировать по огромному количеству параметров, отображает EXIF, метаданные и гистограмму снимка.
-При просмотре можно задать пользовательские (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2023Разработчик: © 2013-2023 XnSoftПоддерживаемая ОС: macOS 10.12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939E586ED0F5755E94D775B1DCB09A6D61F1D51C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590341   (143907) от 16.12.2012
-
-TuneUp Utilities 2013 13.0.3000.138 RePack by elchupacabra [Русский / Английский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143907.jpg" />
-</div>
-
-
-###  Подробнее
-
-TuneUp Utilities 2013 - новая версия большого набора всевозможных инструментов для настройки и оптимизации системы. При помощи этой программы вы сможете очищать диски от мусора, удалять неверные записи из системного реестра и дефрагментировать его, оптимизировать оперативную память, управлять автозагрузкой, навсегда удалять файлы с диска при помощи специальной утилиты ”TuneUp Shredder” (дальнейшее восстановление становится невозможно даже при помощи специальных программ), восстанавливать удаленные файлы, изменять внешний вид Windows, и многое другое. Все утилиты этого пакета объединены в единую графическую оболочку. Для запуска той или иной утилиты нужно выбрать ее название в списке и кликнуть по ней мышкой. После этого открывается диалоговое окно, в котором и производятся все соответствующие действия. Пакет объединяет в себе важные функции для оптимизации системы, конфигурации, очистки и обслуживания в современном графическом пользовательском интерфейсе.
-
-(   Читать дальше...   )Название программы: TuneUp Utilities 2013Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195187   (143908) от 28.12.2017
-
-VA - Dance Music Delirious (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Liberg – Summerparty 44K-16B 3:55
-02. Ddave – Flail 6:48
-03. Indus Rush – Annapurna 4:22
-04. Aaron Barr – A Midnight Run 5:23(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F65C9CB530CBB9EF55D507BF83084A42AA3C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520234   (143909) от 27.12.2021
-
-USBclean 3.6.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAD2E07E32A82CA90610E5FC211AAC96D5059DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265359   (143910) от 27.12.2019
-
-HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествуйте по миру и выслеживайте свои цели в экзотических местах. От залитых солнцем улиц до темных и опасных тропических лесов, нигде нельзя спрятаться от Агента 47. Вам необходимо устранить неуловимого теневого клиента и раскрыть данные его группировки. Но когда 47й выяснил настоящую личность своей цели и правду о своем прошлом, то все изменилось. HITMAN™ 2 (   Читать дальше...   )Тип издания: RepackРазработчик: IO Interactive A/SЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9448CD5E1B8E8055388524561ED0D16C2C2DF5B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272293   (143911) от 27.12.2018
-
-Векторный клипарт - Shutterstock - Merry Christmas and Happy New Year vector design #16 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новогодний и Рождественский
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2202D4934C0946E916542F6387A92AAF2270E63
 ```
 
 

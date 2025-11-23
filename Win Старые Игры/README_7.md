@@ -6,7 +6,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86398.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86616.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86630.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86971.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86985.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87054.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87094.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87244.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87472.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87617.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88507.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88902.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88904.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89272.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90305.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90518.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90531.jpg" />
 </div>
 
 

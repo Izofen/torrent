@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208742.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8D0E1E69821A3719AC9D1F2C30DC98F83FC6E71D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208772.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208772.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5995B8F97E70E3695E7D407ABCC7D1AF0E9F2801
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211982.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_211982.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:9A0BD1761259457418ACFA0EC43498DDE5989932
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212079.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212079.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:3B0F7E7886598C9A8294555C606A69943DB9D46A
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215246.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215246.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:42E8E2B55342D258D6509E66BDEABAAA4FC13862
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221771.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221771.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E37D36E6EA2144C245979748596DEAF66A28E37C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225175.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:5C2BF12678EFD988AD6284DFC6A1A60F6F588C5F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225344.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225344.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D9FEE6769FFF37118635FD3348055B0797A33809
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226317.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:4429A46D3B4113E2D9CF03E5C9B8B9BDC5822D0E
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226334.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226334.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A6E301E3C503E69D6C4A85C7CC1768CBB4AC4292
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226430.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:350CBC0205263C656C5099E0792F9CF3CAFD0944
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241647.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241647.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:CE8520256AFCF8EFF02020E5FBD9D858E68FA2FB
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242079.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242079.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:3E04242216CD577638858F726DE9A5006AB3C36E
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242237.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242237.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:2F54D042D4FD7D41F4D4E3BD3B5CFF943F97423D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246630.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246630.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A705C28135CE22F1589A8F713D32CDCE33F872E0
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249384.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249384.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F52BECBE74C3D9271B91107AF0A30E9584D4CE28
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249489.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249489.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:183C19C0FA6E15095ABCF4D0F7D12797A80973D4
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249621.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249621.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:1A7FB505D6671A357906CD6A42F137E9AB5F0085
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251210.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251210.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:1C0FC10AC0EEBECF87903B1BC6BFE6513A9051D7
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251235.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:0D30A0F28FD14A5ADD56EDDDDE6F5675978625D2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252165.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252165.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FB6BCB8651C19C7685A3A844E4C2D963E86899DA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255025.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255025.jpg" />
 </div>
 
 
@@ -535,6 +535,54 @@ magnet:?xt=urn:btih:FB6BCB8651C19C7685A3A844E4C2D963E86899DA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836B35A996754B0EDBDC17A75C6E862F10E41887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503153   (259411) от 29.05.2012
+
+Джером К. Джером | Вторая книжка праздных мыслей праздного человека (2012) [MP3, Петр Сиговатов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень немного по-настоящему смешных книг. Еще меньше по-настоящему смешных авторов. Вы держите в руках весьма редкий экземпляр именно такой литературы. Джером Клапка Джером... Продолжать? Хорошо. Один из величайших английских писателей-юмористов, немалая часть книг которого пользовалась спросом на континенте даже большим, чем в самой Англии. Или лучше дадим слово (   Читать дальше...   )Жанр: Юмористическая проза, классикаИздательство: МедиаКнига
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332AAB0158E73BF80812E90643C3CA4C4F57BE54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503154   (259431) от 29.05.2012
+
+Джером К. Джером | Первая книжка праздных мыслей праздного человека (2012) [MP3, Петр Сиговатов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень немного по-настоящему смешных книг. Еще меньше по-настоящему смешных авторов. Вы держите в руках весьма редкий экземпляр именно такой литературы. Джером Клапка Джером... Продолжать? Хорошо. Один из величайших английских писателей-юмористов, немалая часть книг которого пользовалась спросом на континенте даже большим, чем в самой Англии. Или лучше дадим слово (   Читать дальше...   )Жанр: Юмористическая проза, классикаИздательство: МедиаКнига
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E0C896DCC2A3DCD013685C2BEBFA9114069328
 ```
 
 

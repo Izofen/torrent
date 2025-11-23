@@ -6,7 +6,7 @@ Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113229.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reza Khan - Mystical (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113231.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Carlos Camilo - Love Affair (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113232.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DB10EA6039E62EE31845AFD261432F867A24DB50
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113234.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sacha Perry, Ben Street & Kresten Osgood - Low Tide (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113235.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113237.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113239.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113247.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113252.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113272.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113313.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113315.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113322.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113324.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113334.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Yardbirds/Jeff Beck - Beck's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113343.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113347.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113370.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113375.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113376.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Shirley Horn Trio - A Lazy Afternoon (1978) 1990, SteepleChase [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113377.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dave McKenna - A Celebration Of Hoagy Carmichael (1983) 1994, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113378.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Morning Jazz : Swing & More (Breakfast Restaurant Music) (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113385.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Fred Chapellier - Live In Paris (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113400.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Shirley Horn & Dizzy Gillespie - Where Are You Going & The Real Thing (1996) Col
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113459.jpg" />
 </div>
 
 

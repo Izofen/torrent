@@ -6,7 +6,7 @@ Cypecore - The Alliance (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108801.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Andralls - Universal Collapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108802.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108803.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sequoia Grove - Tales from Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Pagan, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108805.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:F65CC44B6E3A227785D9FB5820B673D1862263D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108811.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bad News - Every Mistake Imaginable: The Complete Frilly Pink Years 1987-1988 (1
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108813.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:4F2F091AE93DC828F132BFDD16379B88DCC545CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108815.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Darkthrone - It Beckons Us All (2024) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108821.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marty Friedman - Drama (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Guitar Instru
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108837.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108838.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108843.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Desolus - System Shock (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108845.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hextar - Doomsayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108851.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108853.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Reegonetti Band - Songs From The Ravens Nest (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108866.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:7250D0CCB94D4F7DED89B5C4223E42D085920019
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108872.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108882.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108892.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Skeletal Throne - Barbaric Torment (2023) [FLAC|Lossless|tracks + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108899.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108904.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Remedy - Pleasure Beats The Pain (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108907.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108916.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Thola - Unseen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108920.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108935.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Beach Boys - The Beach Boys: Music From The Documentary (2024) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108948.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Sun of Sensei - S.O.S. (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108957.jpg" />
 </div>
 
 

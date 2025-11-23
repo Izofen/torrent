@@ -1,3 +1,75 @@
+###  Публикация: 968718   (138471) от 31.12.2015
+
+Василий Ефимов | В плену фиолетовых зеркал (2015) [PDF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умерев на поле боя, Винсент попадает в клетку из фиолетовых зеркал. Прожитая жизнь была лишь этапом в обработке сознания, и неизвестно, сколько ещё ждет впереди. Он постоянно сопротивляется, даже когда у него забирают память и когда силы его на исходе. Винсент готов шагнуть в бездну и вытерпеть любую боль ради свободы, которой его лишили. Лишили с помощью фиолетовых (   Читать дальше...   )Жанр: Ужасы и Мистика, Киберпанк, Научная фантастика, Боевики: Прочее, ТриллерыФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFEB4993E4498C3711A74D08F2B06A0F45710CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272910   (138472) от 30.12.2018
+
+The Elder Scrolls IV: Oblivion - Game of the Year Edition Deluxe (2006) [Ru] [macOS Cider]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138472.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls IV: Oblivion - Game of the Year Edition Deluxe является одной из лучших RPG в истории. Шагните в самый яркий и проработанный игровой мир. Вы можете пойти только по основной сюжетной линии или погрузиться в этот мир с головой и найти для себя множество интересных и разнообразных заданий. Также Game of the Year Edition включает дополнения Knights (   Читать дальше...   )Тип издания: macOS CiderРелиз состоялся: 2006Разработчик: Bethesda Game StudiosПоддерживаемая ОС: 10.5.8 +Жанр: RPG, Adventure, FantasyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8C5152722796A994E95BFA8D1007F80CC0276F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854688   (138473) от 31.12.2014
+
+Ягуар (1986) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138473.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ягуар" - фильм чилийского кинорежиссёра Себастьяна Аларкона, снятый в жанре социально-политической драмы на базе киностудии Мосфильм (СССР) в 1986 году. Картина создана по сюжету романа Марио Варгаса Льосы "Город и псы" (но содержит ряд принципиальных отличий от литературной основы). Действие происходит в вымышленном государстве, у власти которого (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Себастьян-Рамон Аларкон-РамиресАктеры: Сергей Векслер, Бахром Акрамов, Адель Аль-Хадад, Игорь Верник, Сергей Газаров, Ислам Казиев, Артем Каминский, Владимир Татосов, Нина Тер-Осипян, Янина Хачатурова, Всеволод Шиловский, Сергей ШкаликовПродолжительность: 01:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A148D0641B9D23D1187F65C23C0B20DE3E8DC3F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510220   (138475) от 30.12.2021
 
 Мой сэмпай раздражает! | Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying [2021, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +78,7 @@
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138475.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:A04E47E3D5C902880C575FEECD64E4E2496B30F1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138476.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Emil Sigfridsson - Back To Yesterday (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138478.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138479.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ VA - Хорошо сидим ! Песни русского застолья (199
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138480.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138481.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ Ummy Video Downloader 1.5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138483.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138484.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:8C1859351B94E92405E78C1AD8B58666AC78AB92
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138485.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:1EAE99950C9303E016EDF7B2DE35262F35EA51BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138486.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:AD19984AD0ABACC73DA8A62DACBA60F62C430852
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138487.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Ummy Video Downloader 1.8.3.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138488.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:A8BE51E53A95BE8341EF3BAC5AA27EF58579DED9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138489.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:2AE0309DF428E1E9B0D729670908F8E30600BFBD
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138491.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:4CAFB0482FEDA6FD03BA9B97A814744EE23B00ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138492.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:F1818CE39D02061568782DE76359B18E870F2EAB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138494.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:5E7C8A2FE3E757E7DD819306D438EF7F2B2C67EA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138495.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:46233DE3499B315E3D380CAF608D794FAA5C4B74
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138496.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:32C424806E0AFFD040449F76C9B1C8461079FF2B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138499.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ CheckBook Pro 2.7.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138500.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:7B38108518A7C950BB2C15A7A8838832A332B208
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138501.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ Aiseesoft DVD Creator 5.2.38 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138502.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:EE4D8CE9107D370947E001C912391BCB285B46F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138503.jpg" />
 </div>
 
 
@@ -557,79 +629,6 @@ magnet:?xt=urn:btih:EE4D8CE9107D370947E001C912391BCB285B46F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53717467AD6EBB664D0C0A00D7E9EB5E7B2869F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679390   (138506) от 25.11.2023
-
-Multitouch 1.27.22 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A91E23CDFC893D840EED330F297E816B1000EFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315926   (138507) от 30.12.2019
-
-Enen no Shouboutai | Пламенный отряд [2019, TV] [24 из 24] WEB-DL 1080p raw+rus
-
->>След.
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токио объят пламенем. Всё дело в феномене самовозгорания, которым страдают жители. Справиться со взбунтовавшимся огнём по силам лишь членам Пламенных отрядов, в чьи ряды так спешит вступить Синра. В униформе Восьмого отряда, ловко манипулируя своими дьявольскими ступнями, наш герой не позволит городу обратиться в пепел! Вот только призраки прошлого и тайна, сокрытая (   Читать дальше...   )Производство: Япония, David ProductionЖанр: Боевик, Тёмное фэнтези, Научная фантастика, ПриключенияРежиссер: Хатисэ ЮкиЯзык озвучки: Японская и русская
-1) дубляж от ТО "Студийная Банда"Субтитры: надписи, неотключаемыеПродолжительность: 24 эп. по ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF2B4381E1F5327827C7763F61FF6659884CBAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273131   (138508) от 30.12.2018
-
-The Bat! Professional 8.7.0 (Рождественская версия) [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138508.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6A071CAF5DE4AF6EFEC52F26826D543112C8B7
 ```
 
 

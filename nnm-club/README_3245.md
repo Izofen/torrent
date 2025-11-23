@@ -1,3 +1,84 @@
+###  Публикация: 1751628   (104051) от 26.09.2024
+
+Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coffee High (2:43)
+02. Mix of Passion (2:19)
+03. Don't Drink Coffee Too Much (2:29)
+04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751632   (104052) от 26.09.2024
+
+Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Dance (2:34)
+02. The Mojo (3:18)
+03. Mǎmǎhūhū (4:36)
+04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751517   (104053) от 26.09.2024
+
+Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Love [00:03:48]
+02. Take Me Back to the Party [00:03:58]
+03. Every Day is Halloween [00:04:28]
+04. The Beauty of it All [00:04:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89414A8339A6390475B311B8DEA754A3F514B5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751603   (104054) от 26.09.2024
 
 Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +87,7 @@ Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104054.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Sugaray Rayford - Human Decency (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104055.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104056.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104057.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104058.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104059.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ magnet:?xt=urn:btih:C6E9CCB33B969BF687ED2FFD579152D27DAB47D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104060.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ magnet:?xt=urn:btih:07575F2A16512331E9CAE6D5EBBEB35213C5BC54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104061.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:C22C179908124FBE4275F05382D3167DD0AA0D81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104062.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104063.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104064.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104065.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104066.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104067.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104068.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104069.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104070.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104071.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104072.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104073.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104074.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104075.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104076.jpg" />
 </div>
 
 
@@ -607,86 +688,6 @@ magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751442   (104077) от 25.09.2024
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024)
-СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
-СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 4872Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCA19CE24C0CE434654F3E71615B3D191956726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751054   (104078) от 23.09.2024
-
-Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Did You Go (5:30)
-02. Goodbye, My Love (3:21)
-03. Midnight Tears (5:51)
-04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751048   (104079) от 23.09.2024
-
-Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses Patrou - Cali Mambo (4:38)
-02. Tom Beckham - Star Eyes (6:33)
-03. Tom Beckham - Poinciana (5:46)
-04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
 ```
 
 

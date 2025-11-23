@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17351.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17363.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DLRip [H.264/720p]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17467.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1FFE0A98185DA6CB61C6637E1BEC62AEF064473D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17485.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:75F7DB0DF1D563CDAFC309521BE51993B39BEECF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17494.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8E179D8C8E965EE538403C7F6FF814D2EE48305C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17498.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:ABE48EFF5F33D25115EF4582D8DB5ED2EFB7A80D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17608.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2D9C01A611B1C042C75F2D39F2BB7721E2233687
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17730.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:95363B18EAE0566FA9345596A79E511F13F910B9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17734.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:711BF8F115E49638EA8F0921FB572933D48F787A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17736.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR 8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17743.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D2F77DE03B4C87172D25FB0299B3436D285AB473
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17833.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:95345B6D57BC3566660EE167DA5498907D22500F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17838.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D35DEBCB0A7D8FBE05C5AEE8BD888F772F3A2732
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17845.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D3F314D61379C8FBAE721E25789E91E73E860932
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17847.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.265/1080p] [10-bit]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17851.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17854.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17855.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17858.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17960.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:BE16240BC66B43ED72F7917AA0E60BA78FB71E76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18037.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18038.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18071.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18072.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18121.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/1080p] [MVO]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18159.jpg" />
 </div>
 
 

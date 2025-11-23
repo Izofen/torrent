@@ -1,3 +1,77 @@
+###  Публикация: 1667748   (126365) от 24.12.2023
+
+Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Тиамун [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окруженная полными ненависти взглядами своего народа, эгоистичная принцесса погибающей империи Тиамун Миа бросает последний взгляд на солнце, прежде чем лезвие гильотины упадёт... Только для того, чтобы снова проснуться двенадцатилетней девочкой! Она перенеслась в прошлое и получила второй шанс. Миа намеревается исправить многочисленные ошибки и спасти страну. Коррупция? (   Читать дальше...   )Жанр: комедия, фэнтези.Режиссер: Ибэ ЮсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517D640D2F54751CB07758E5E406BFCD371088E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667621   (126366) от 24.12.2023
+
+Паладин издалека [ТВ-2] | Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of Rust Mountain [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переродившись в другом мире, Уилл, памятуя о прошлых ошибках, стал другим человеком, выбрал нелёгкую стезю паладина и стал служить богине света. Два года миновало с тех пор, как он покинул Город Мёртвых. Ему исполнилось 17, и дел у нашего героя невпроворот, ведь теперь он не просто странствующий воин, но и лорд всего Лихолесья. А тут ещё и приходят дурные вести: (   Читать дальше...   )Производство: Япония / Студия OLM, Sunrise BeyondЖанр: приключения, фэнтези, экшенРежиссер: Иванага АкираЯзык озвучки: Русский многоголосый закадровый, Японский
+- Crowley, Hoopoe, Renie (AniLibria.TV)Субтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380979   (126367) от 24.12.2023
+
+Даниэль Дефо | Жизнь и приключения Робинзона Крузо, моряка из Йорка (2008) [MP3, Игорь Владимиров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль Дефо (1660–1731) – английский романист, журналист и памфлетист, автор около четырехсот сочинений, в том числе журнальных статей, трактатов, проектов, биографий, книги путевых заметок, создатель первого классического приключенческого романа «Робинзон Крузо».
+Перед вами, пожалуй, одна из самых знаменитых в мире историй. Кораблекрушение, необитаемый остров, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, романПеревод: Мария ШишмарёваПродолжительность: 05:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4BAE95AEFEE031A672AD7D27AC45DEFA14A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595440   (126368) от 24.12.2023
 
 CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Multi]
@@ -6,7 +80,7 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126368.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126369.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:5E8D9FA0EE062BB227957802BD8B9A7D68540EE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126370.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ AOMEI Partition Assistant Technician Edition 10.2.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126371.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:E7D3C998A5B52632C3CD59BCD553FF27DCC6FF90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126372.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:184B633CB9C1587A4439DD83C4959000AB190F59
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126373.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:DC57A90CF32122B81F36F8C62E87D04B4555C593
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126374.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ magnet:?xt=urn:btih:3B762143D8D5BFEEFD59FF8A600BC44D6DE06DB0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126375.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:348267DC6656FD25806866CE66ACDBB9FEC4443F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126376.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ magnet:?xt=urn:btih:FA3B2C2F48C043650035351F32BF342B02ED39CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126377.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126378.jpg" />
 </div>
 
 
@@ -270,7 +344,7 @@ magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126379.jpg" />
 </div>
 
 
@@ -294,7 +368,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126380.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126381.jpg" />
 </div>
 
 
@@ -342,7 +416,7 @@ magnet:?xt=urn:btih:8F5563235E2D1F973353179DB95641E32F9F2B77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126382.jpg" />
 </div>
 
 
@@ -366,7 +440,7 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126383.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126384.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126385.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126386.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126387.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126388.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126389.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:0D289F005A1620EDD46C88E2E56D024A51EB7595
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126390.jpg" />
 </div>
 
 
@@ -552,83 +626,6 @@ magnet:?xt=urn:btih:0D289F005A1620EDD46C88E2E56D024A51EB7595
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A12ADECE60B3D17ACE53E0A1234A3066927F44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686540   (126391) от 24.12.2023
-
-Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и др. | Электронная музыка с нуля до PRO (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Музыка (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126391.jpg" />
-</div>
-
-
-###  Подробнее
-
-32 тематических модуля, 195 видео
-Вы научитесь писать электронную музыку в разных жанрах, профессионально её обрабатывать и продвигать свои проекты. Запишете свой первый EP, сможете развить творческие способности и подняться на новый уровень в музыкальной индустрии.
-Вы научитесь писать электронную музыку в разных жанрах. Прокачаете навыки продакшна в Ableton Live, (   Читать дальше...   )Производство: SkillboxЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682596   (126392) от 24.12.2023
-
-Война и мир (1965-1967) BDRip [H.264/1080p] (серии 1-4 из 4) [Handmade correction AI]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьбы дворян переплетаются в эпоху наполеоновских войн. Шедевр Сергея Бондарчука, удостоенный премии «Оскар», киноэпопея в четырёх частях, одна из самых высокобюджетных картин в истории кинематографа. Фильм стал известен благодаря масштабным батальным сценам и применению новаторской панорамной съёмки полей сражений. Экранизация одноимённого романа Льва Толстого.Производство: СССР, МосфильмЖанр: драма, мелодрама, военный, историяРежиссер: Сергей БондарчукАктеры: Сергей Бондарчук, Людмила Савельева, Вячеслав Тихонов, Олег Табаков, Борис Захава, Анатолий Кторов, Анастасия Вертинская, Антонина Шуранова, Виктор Станицын, Ирина Скобцева и др.Перевод: не требуетсяЯзык озвучки: русскийСубтитры: русские (forced), английские (full pgs)Продолжительность: 02:27:08 + 01:38:03 + 01:21:42 + 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902EB37A3C9F7352C648A39B678A2D75FC696116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686501   (126393) от 23.12.2023
-
-Sylvania - Purgatorium (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Entre La Vida Y La Muerte (00:02:04)
-02 - Purgatorium (00:04:04)
-03 - El Rio De Los Lamentos (00:07:01)
-04 - Tu Calor Sera Mi Voz (00:04:05)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982E50824DA9CED317B07857D832082CD1946070
 ```
 
 

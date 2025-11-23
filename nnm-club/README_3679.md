@@ -1,3 +1,76 @@
+###  Публикация: 1703026   (115336) от 27.02.2024
+
+А.П. Баскаков (ред.) | Теплотехника (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы технической термодинамики и теории тепло- и массообмена. Приведены основные сведения по процессам горения, конструкциям топок и котельных агрегатов. Рассмотрены принципы работы тепловых двигателей, паровых и газовых турбин, двигателей внутреннего сгорания и компрессоров. Описаны компоновки и технологическое оборудование тепловых электрических станций, (   Читать дальше...   )Жанр: ТеплотехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8E0C1C98929A2587BB407C055499A862629604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702971   (115337) от 27.02.2024
+
+Н.Н. Мансуров, В.С. Попов | Теоретическая электротехника (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115337.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются физические процессы, происходящие в электрическом и магнитном полях, в электрических линейных и нелинейных цепях постоянного и переменного тока. Излагаются основные методы расчета, принятые в электротехнике. Даны описания лабораторных работ. Изложение поясняется большим количеством примеров с решениями.
+Книга предназначается для лиц, изучающих (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF94BC8727DDADC4160A091A3F4ADB730FE90DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703028   (115338) от 27.02.2024
+
+Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115338.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBF8F58827C047B5D0CF6C854DC635B46981150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703097   (115339) от 27.02.2024
 
 Ричард Нелл | Пепел и песок (Книга 1). Короли рая (2024) [MP3, Юрий Гуржий]
@@ -6,7 +79,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115339.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ VA - Electronic compilation part 58 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115340.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:16CBC14F9B34EEFBAD45B5C060604E67E0913BC9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115341.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:2BAEEEAD614BBB991D9EC2AA9EDE85BD46A6DDE2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115342.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:643AC086612C2B682540E5610973D3FB6CD50ACA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115343.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:8C40160932A382F4D34C5A66A6AA3B216F551BE3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115344.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ DesktopOK 11.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115345.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:1C94B77034F51CE3F75DA271109607117DE8AED0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115346.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Q-Dir 11.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115347.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ magnet:?xt=urn:btih:8B59D2FD5F107BCC3190DB5E1930DC437CE15F0B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115348.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ magnet:?xt=urn:btih:60CC1F4690015D68548565EA0145A5E9D94A713D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115349.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:0FC3716CA35FE1A4298C5D983C3337952CE41C05
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115350.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:C75A99D06203B55B833337D48B379DDB8712A0F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115351.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ magnet:?xt=urn:btih:AB494CFE423765770336E1FC739D140C2A128E76
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115352.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ Opera GX 107.0.5045.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115353.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ SQL Dynamite 2.5.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115354.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ Tyler Hay - Field: 18 Nocturnes (2024) 2 x CD [FLAC|Lossless|image + .cue] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115355.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ magnet:?xt=urn:btih:ED946ABCEC3FA7272E38A0AFBA63B30F05F17EC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115356.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ magnet:?xt=urn:btih:423EB0DB779EAFA411E52E7DA96AE959E54D4D97
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115357.jpg" />
 </div>
 
 
@@ -476,7 +549,7 @@ magnet:?xt=urn:btih:B5BE1B4AD4B6C68705490E80864FE3F22F36368D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115358.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ magnet:?xt=urn:btih:7794FF98B50B4EB61154EEEF21A16F3C718E02B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115359.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ magnet:?xt=urn:btih:BFAF2E2B8F862885DAEB04EF92AF8E3683BFB684
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115360.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ AMD Radeon Software Adrenalin Edition 24.2.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115361.jpg" />
 </div>
 
 
@@ -559,79 +632,6 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F11B31C07871AE77B962850DC638035125D6FE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703085   (115362) от 27.02.2024
-
-WinScan2PDF 8.71 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115362.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinScan2PDF - позволяет сканировать документы и сохранять их на своем компьютере в формате PDF с помощью любого установленного сканера, настольного приложения Windows для частного, офисного и коммерческого использования.
-Почему WinScan2PDF? Вы один из тех, кому только изредка приходится отправлять подписанный документ кому-либо по электронной почте? Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCCDB2F96E771F428B83827D2CFA52AA72B85B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703069   (115363) от 27.02.2024
-
-Районы / Rayony / Districts (2016) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алма-Ата, 1987 год. Главный герой фильма - 16-летний Арсен, который из пригорода переезжает в центр города и идет в новую школу. В новой школе он заводит дружбу с одноклассниками, активными участниками так называемых «Районовских движений». Вместе с этим, Арсен сталкивается с уличной, подростковой иерархией и насилием. И перед ним встает выбор, стать как все или (   Читать дальше...   )Производство: Казахстан / Astana Film Fund, SataifilmЖанр: драма, криминалРежиссер: Акан СатаевАктеры: Шарип Серик, Асель Сагатова, Жандос Айбасов, Данияр Алшинов, Эльтерес Нуржанов, Марьям Сатаева, Сануржан Сулейменов, Жан Оспанов, Владимир Логинов, Илья ЛошицкийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612DD7A77477660785AB953C746D59FA5DA4297A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703104   (115364) от 27.02.2024
-
-По законам искусства / Mea Culpa (2024) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда адвокат берется за дело обвиняемого в убийстве художника, она встает перед выбором: семья, долг или личные желания, влекущие за собой опасные последствия?Производство: США / Tyler Perry StudiosЖанр: триллер, драма, криминалРежиссер: Дэн ЛевиАктеры: Келли Роулэнд, Треванте Роудс, Керри О’Мэлли, РонРико Ли, Шон Сагар, Шеннон Торнтон, Ник Сагар, КейтЛинн Ньюберри, Арт Ньюкирк, Калли ДжонсонПеревод: Дублированный (укр. Так Треба Продакшн / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 02:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406CAD267A03D3F05A6A2B68D6A9BD2EC932D1DB
 ```
 
 

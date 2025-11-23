@@ -1,3 +1,27 @@
+###  Публикация: 1636253   (231878) от 29.05.2023
+
+Журнал | Linux Magazine №5 (270) (2023) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_231878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AC9C8779226E57D2DDFB92A4A42F761939E129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549487   (236779) от 07.05.2022
 
 Журнал | Linux Magazine №259 (2022) [PDF][En]
@@ -6,7 +30,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236779.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236779.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:6BF9AC7C708FA2F5AA130DAE276F7A9A59DE2CF5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236974.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236974.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:C5992E321D832E594768884D299AF631FEFCA6E5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237250.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237250.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:94F7E5C300B66D86B68BB4CA1ED25D452941B229
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242256.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242256.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:D050D8FC1EC8087BE3DEF7FBE79F8D9C53C20BFD
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245466.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245466.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:670E35F1A3FA1E3C18168773604D889FF856B9E7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246353.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246353.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:D69DA35B43359F1A95CE1EC5706C4F2BE28E1634
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247942.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247942.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:EA20BA426D62290FCD9C78222590354D38AF32DA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249427.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249427.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:648DBEB9E8972F2B3DFC63614994F383E445A852
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251115.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251115.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:0CB469554DC1A3C11B2A3702E6791F93142A1DBB
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254042.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254042.jpg" />
 </div>
 
 
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:7ED9EE86BD35A35928929421CEBD0FFA7D0E3F3C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254229.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ magnet:?xt=urn:btih:10DCFBB1AB3043ED330F63836C36CB01DD446F80
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256066.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256066.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ magnet:?xt=urn:btih:488EAF093BD0EC5752B5F3ED2CFFF408F092D5B4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257146.jpg" />
 </div>
 
 
@@ -308,6 +332,78 @@ magnet:?xt=urn:btih:488EAF093BD0EC5752B5F3ED2CFFF408F092D5B4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF0C08F55D2ADFB5146A45D18A97BCF2A4D28CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503036   (259327) от 29.05.2012
+
+Журнал | Stuff №6 [июнь 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stuff - авторитетный гид по компьютерам, домашним кинотеатрам, цифровым камерам, КПК, мобильным телефонам, продуктам life style. Самый продаваемый в мире журнал о технике. Stuff пишет о том, что любят покупать мужчины.2012Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503439   (259547) от 30.05.2012
+
+Журнал | InfoCity №5 [2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259547.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - ежемесячный журнал о компьютерной технике и технологиях. На страницах издания представлена информация о компьютерах, мобильной технике и технологиях, новинках программного обеспечения, электронной игровой индустрии. Журнал InfoCity будет полезен как специалистам в области информационных технологий так и широким массам компьютерных пользователей..2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2CEB35AE23F53FF12820A3F600DAAF3D8DE30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503696   (259975) от 31.05.2012
+
+Журнал | Шпаргалки пользователя №1 [2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск журнала «Мой друг компьютер» предназначен для пользователей персональных компьютеров. В нём описывается как ускорить загрузку Windows 7, настроить и установить программное обеспечение, создать диск восстановления системы.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0EA3A1DA0414B8615A05D868D748B591DD9B7F
 ```
 
 

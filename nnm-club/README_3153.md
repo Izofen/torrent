@@ -1,3 +1,75 @@
+###  Публикация: 1822240   (101083) от 05.10.2025
+
+SplitCam 10.8.60 (x64) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101083.jpg" />
+</div>
+
+
+###  Подробнее
+
+SplitCam - бесплатная программа способная существенно расширить возможности веб камеры и предназначенная для разделения видеопотока. Позволяет добавлять в видео всевозможные эффекты для веб камеры во время видеозвонков, накладывать 3D маски и рамки, применять различные фильтры и фоны, добавлять объекты, текстовые надписи. Кроме того присутствует возможность трансляции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7555920D220229F07D9073B2B5FCD9546867EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862043   (101084) от 05.10.2025
+
+Возмездие / Месть / Revenge (2012) WEB-DL [H.264/720p-LQ] (сезон 2, серии 22 из 22) (Fox Life)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101084.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета находится богатое семейство Грейсонов, живущих в Хамптонсе, на Лонг-Айленде, Нью-Йорк. Много лет назад Конрад и Виктория Грейсон подставили своего друга, Дэвида Кларка, свалив на него ответственность в организации террористического акта, повлекшего массовые смерти. Дэвид был осужден и умер в тюрьме. Спустя годы, его дочь, Аманда Кларк, возвращается (   Читать дальше...   )Производство: США / ABC Studios Page, Fright Temple, Hill EntertainmentЖанр: триллер, драма, мелодрама, детективРежиссер: Кеннет Финк, Мэтт Эрл Бисли, Сэнфорд БукставерАктеры: Эмили ВанКэмп, Мэделин Стоу, Гэбриел Манн, Джошуа Боуман, Ник Уэкслер, Генри Черни, Коннор Паоло, Криста Б. Аллен, Эшли Мадекве, Джеймс Таппер и др.Перевод: Многоголосый закадровый, профессиональный - Fox LifeПродолжительность: ~ 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1640D866615578120B1AE781B19C242CDD765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970502   (101086) от 05.10.2025
+
+Клан ювелиров. Возмездие (2015) WEB-DLRip [H.264/720p-LQ] (сезон 5, серии 1-20 из 20)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101086.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире больших денег, лжи и интриг опасность грозит каждому, кто осмелится пойти наперекор установленным правилам игры. Однажды, в эпицентр противостояния двух враждующих ювелирных кланов попадают отчаянные влюбленные Зоя и Тимур. Вступив в схватку с самой судьбой, и не раз заглянув в лицо смерти, они будут бороться за свое право на счастье.Производство: Украина / Канал "Украина", "Front Cinema"Жанр: мелодрама, детективРежиссер: Дмитрий ГольдманАктеры: Наталия Денисенко, Андрей Фединчик, Константин Данилюк, Вячеслав Довженко, Валерия Ходос, Светлана Зельбет, Виктория Смачелюк, Елизавета Зайцева, Алексей Череватенко, Лилия Яценко и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505725   (101087) от 05.10.2025
 
 Возмездие / Revenge (2011-2012) WEB-DL [720p] (сезон 1, 22 серии из 22) (NewStudio)
@@ -6,7 +78,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101087.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101087.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101088.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101089.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D12D19D2C6DB6069734ACEC065C0977033903964
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101090.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:B9126C6F50F4F0F1F6EC702919AE38772ECCA18E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101091.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:9376B0B7D9A5EA7CCE86B6A58E6740EB042E13BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101092.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:9376B0B7D9A5EA7CCE86B6A58E6740EB042E13BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101093.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:961C9CCB3CA3DBDF0F15F575536D180DB7BBA3E9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101094.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:961C9CCB3CA3DBDF0F15F575536D180DB7BBA3E9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101096.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:6B82B11BACB95BECC951042894832C04DCBF32FB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101098.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:15272820614AC38C094B2BD940097C1488BDE6DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101099.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:F792E492BDE65D19AB141C7C91CC74C55DD3D3D1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101100.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101101.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101102.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101103.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101104.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101105.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101106.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101107.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101108.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101109.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101110.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101111.jpg" />
 </div>
 
 
@@ -572,86 +644,6 @@ magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768158   (101112) от 25.12.2024
-
-Футбол. Кубок Италии 2024/2025. 1/8 финала Интер - Удинезе (19.12.2024) TVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101112.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 декабря 2024 Милан 1/8 кубка Италии
-Стадион: Джузеппе Меацца
-«Интер» в Лиге чемпионов занимает шестое место в таблице общего этапа. В Кубке Италии «нерадзурри» только начинают свой путь. В прошлом сезоне миланцы также стартовали с 1/8 финала, но тут же вылетели от «Болоньи». Отметим, что в итальянской Серии А «Интер» занимает третье место, а «Удинезе» - девятое. (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4B9418B8881CF3477214CFE06B220D7700F181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768654   (101113) от 25.12.2024
-
-Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer- Feeling (3:16)
-02. Hungry for Love (4:08)
-03. I'm Here (3:14)
-04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768669   (101114) от 25.12.2024
-
-The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Budapest in Winter (3:38)
-02. Windows of Warmth (3:13)
-03. Blessed Day (3:28)
-04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
 ```
 
 

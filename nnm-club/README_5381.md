@@ -1,3 +1,176 @@
+###  Публикация: 1516768   (165401) от 12.12.2021
+
+Джон Бойн | Незримые фурии сердца (2021) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сирил Эвери – не настоящий Эвери, во всяком случае, отец не устает ему это повторять. И никогда настоящим ему не стать. Но тогда кто же он? Мать Сирила, совсем еще девочку изгнали из родной ирландской деревни, когда стало известно, что она ждет ребенка. Сирила усыновила богатая и чрезвычайно эксцентричная пара из Дублина. Он рос в достатке, но глубоко одинокий – (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 17:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757C5C8651B64D8A813E3DD309DDD630707C7F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432094   (165402) от 16.12.2020
+
+AirRadar 6 v6.0.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165402.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirRadar - приложение для сканирования WiFi сетей с предоставлением обширной информации о найденных точках доступа, уровне их сигнала, источниках помех, с мощными фильтрами, возможностью автоматически присоединяться к лучшей открытой сети с наиболее сильным сигналом и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE87751863D9ECB22E21BE2B89340FC6CDAD9CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580475   (165403) от 15.12.2022
+
+Tensei Shitara Ken Deshita / Reincarnated as a Sword / О моём перерождении в меч [2022, TV, 12] WEBRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фран — девушка-кошка и рабыня. Однажды на повозку, в которой она ехала, напало чудовище. Фран убежала в лес, спасаясь от монстра, и нашла там говорящий магический меч. Фран вытащила меч из земли, что высасывала из него магию и делала слабым. После этого необычное оружие помогло девушке одолеть чудовище и даже освободило из рабства. Свободная Фран дала мечу имя Наставник (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Исихира СиндзиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320B068B984E9E123DC6EB5199B74CE349080C63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597474   (165404) от 15.12.2022
+
+Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (2021) PCRec [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы находитесь в поиске курса, который поможет вам создавать персонажей, похожих на кого-то из реальной жизни, в ZBrush?
+Хотели-бы вы лучше понимать, как лепится реалистичный портрет или даже персонаж в ZBrush?
+Если да - приветствую вас на этом курсе. Меня зовут Виктор Ямакадо, я занимаюсь 3D уже 10 лет. В основном создаю модели персонажей для коллекционных фигурок. (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 32:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE8D991D0FAE4CAF89387BDBA8C27DB4C0B5452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432133   (165405) от 16.12.2020
+
+Duplicate Photos SweeperOff 3.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Sweeper - очень простой и легкий в использовании инструмент, который поможет вам быстро найти и удалить дубликаты и похожие фотографии с вашего Mac. Любой, кто не разбирается в технологиях, может использовать его для поиска дубликатов фотографий или похожих фотографий в системе Mac и может удалить их одним щелчком мыши. В отличие от других очистителей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Wise Tech Labs Private LimitedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E44F5F1B2E0BCE8D4C65CA5852AA47EB894E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673255   (165406) от 01.11.2023
+
+Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Roots Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory Fails [00:03:38]
+02. Talking In Your Sleep Again [00:03:57]
+03. You Knew No Other Way [00:04:38]
+04. Vanina Vanini [00:04:08](   Читать дальше...   )Жанр: Post-Punk, Roots RockПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECAFAF648159352AD5129E6ED30A8E8C72F7187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 313214   (165407) от 16.12.2019
+
+Андрей Кивинов, Андрей Константинов | "Знак качества" Серия книг [2006-2011] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это хорошая серия книг под названием "Знак качества". В серию вошли книги двух писателей - Андрея Кивинова и Андрея Константинова. Серия начала публиковаться с 2006 года и продолжает свое существование.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62DF984DE56E333E1AD36510FA46EA389AB1094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516754   (165408) от 12.12.2021
 
 VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
@@ -6,7 +179,7 @@ VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165408.jpg" />
 </div>
 
 
@@ -33,7 +206,7 @@ magnet:?xt=urn:btih:38CB610A04642092F0467CBD6E74C55B59BEAE4E
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165409.jpg" />
 </div>
 
 
@@ -60,7 +233,7 @@ Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165410.jpg" />
 </div>
 
 
@@ -87,7 +260,7 @@ Aura - Hallucinations (2023) [MP3|320 Kbps] <Progressive Rock, Prog Related>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165411.jpg" />
 </div>
 
 
@@ -114,7 +287,7 @@ Xiaomi представила свой первый SSD — 1 Тбайт и бо
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_165412.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_165412.jpg" />
 </div>
 
 
@@ -138,7 +311,7 @@ Display Maestro 4 v4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165413.jpg" />
 </div>
 
 
@@ -163,7 +336,7 @@ VA - Nu Cool Covers 4: Pop Classics ReStyled (2021) [AAC|~315 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165414.jpg" />
 </div>
 
 
@@ -190,7 +363,7 @@ magnet:?xt=urn:btih:72EBDE49B947074FEF66A46AEB2F837B3F367BFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165415.jpg" />
 </div>
 
 
@@ -214,7 +387,7 @@ File List Export 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165416.jpg" />
 </div>
 
 
@@ -238,7 +411,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165417.jpg" />
 </div>
 
 
@@ -265,7 +438,7 @@ magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165418.jpg" />
 </div>
 
 
@@ -289,7 +462,7 @@ Alarm Clock Pro 13 v13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165419.jpg" />
 </div>
 
 
@@ -315,7 +488,7 @@ Maxon Cinema 4D Studio R21.115 (RB297076) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165420.jpg" />
 </div>
 
 
@@ -339,7 +512,7 @@ Ely Bruna, Papik - In Sweet Harmony (2021) [AAC|~303 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165421.jpg" />
 </div>
 
 
@@ -366,7 +539,7 @@ magnet:?xt=urn:btih:870F143F83C0732322713B835885BD4F55A091FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165422.jpg" />
 </div>
 
 
@@ -390,7 +563,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165423.jpg" />
 </div>
 
 
@@ -414,7 +587,7 @@ magnet:?xt=urn:btih:7BC35B70E8E5189D00C745D69007CB4A425C43E8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165424.jpg" />
 </div>
 
 
@@ -438,7 +611,7 @@ Serial 2 v.2.0.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165425.jpg" />
 </div>
 
 
@@ -463,7 +636,7 @@ magnet:?xt=urn:btih:81FC8629E719D64FE440CFA63473583AE7C916DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165426.jpg" />
 </div>
 
 
@@ -474,189 +647,6 @@ magnet:?xt=urn:btih:81FC8629E719D64FE440CFA63473583AE7C916DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1779A47B6090A59D33CFE2F7E3C0ADD2775ABBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432230   (165427) от 16.12.2020
-
-Duplicate File Finder Pro 6.11.3  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165427.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrimeFile - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Drag & drop столько папок, сколько вы хотите, и нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатов файлов по категориям: изображения, видео, музыки, архивы, документы и др.. Это очень легко, чтобы увидеть, сколько места занимает каждый файл.
-
-В Pro версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8EBF4454818B44D27402D2977B430336526557
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597507   (165428) от 15.12.2022
-
-Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [15.12.2022]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671
-Автоматом создаётся учётка - User.
-Установщик от Windows 10 21H2.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EAC331C23AFA244F06C2A88DDD709629EA81B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673275   (165429) от 01.11.2023
-
-Arthur Brown - Dance (1975) Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got To Get Out Of This Place (2023 Remaster) [00:03:27]
-02. Helen With The Sun (2023 Remaster) [00:07:31]
-03. Take A Chance (2023 Remaster) [00:05:16]
-04. Crazy (2023 Remaster) [00:02:15](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B084D0FFCF71AF92CE9F6950881AB528A1C610A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516773   (165430) от 12.12.2021
-
-VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PABLoKEY - Musicorum (7:55)
-02. Chemical Boy - Ultimum (6:50)
-03. Ignat Shamko - Life Line (8:07)
-04. Tekiko Jimu - Caleta de Chicas (2:31)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 01:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066CA4E5796D2666C27EFAE76004A3A4F93D9EBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432145   (165431) от 16.12.2020
-
-Librarian Pro 6 v6.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED9CA26CD97A39E8199F7F46A8B73CB0174570C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597564   (165432) от 15.12.2022
-
-Убежище (2022) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дом, где остались девятилетняя девочка Надя и её аниматор - студент Лёня, забирается похититель. Его цель - девочка. Студенту придётся сделать выбор: оказать сопротивление и рискнуть своей жизнью или позволить забрать девочку, чтобы спастись самому.Производство: Россия, ООО «Синема Ворлд»Жанр: триллер, драмаРежиссер: Владимир ТихомировАктеры: Илья Любимов, Максим Дрозд, Михаил Евланов, Надя Славецкая, Милана Филимонова, Сухраб Хайлобеков, Алиса Дебабова-Лукшина, Лев ЛазуковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B18CF830C0B9CD488AC5BC29710F51989790A42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597374   (165433) от 15.12.2022
-
-Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2364]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Поиск работает (значок скрыт)
-Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6400411A7812D0253A1D58FC9786FEF62AD3A735
 ```
 
 

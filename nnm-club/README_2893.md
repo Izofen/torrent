@@ -1,3 +1,76 @@
+###  Публикация: 474397   (84978) от 28.03.2012
+
+Август. Восьмого (2012) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда события нанизываются одно на другое, когда каждая минута ставит тебя перед выбором, когда жизнь и смерть становятся частью страшной компьютерной игры, пульт от которой — в чужих руках, тогда ты начинаешь действовать так, будто каждая минута — последняя. Казалось бы, жизнь хорошенькой разведенной москвички Ксении оставляет не много места для драматических ситуаций... (   Читать дальше...   )Производство: Бонанза СтудиоЖанр: Драма, военныйРежиссер: Джаник ФайзиевАктеры: Светлана Иванова, Максим Матвеев, Егор Бероев, Артем Фадеев, Владимир Вдовиченков, Сергей Газаров, Гоша Куценко, Анатолий Белый, Кирилл Плетнёв, Алексей ГуськовПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474418   (84980) от 28.03.2012
+
+Владислав Крапивин | Оруженосец Кашка. Мушкетер и Фея. Колыбельная для брата [2011] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оруженосец Кашка
+Повесть начинается турниром лучников, в котором одному из «рыцарей» в оруженосцы достается нескладный мальчишка Кашка. Так начинается настоящая дружба между двумя мальчишками, которой вовсе не препятствует разница в возрасте.Жанр: детская литература
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCF0956948DCDC92FE929A0ECA15F2B19A9284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474863   (84981) от 28.03.2012
+
+Захват / Carjacked (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Жанр: ТриллерРежиссер: Джон БонитоПродюсер: Эрик Гозлан, Дэниэл Гродник, Майкл АратаАктеры: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Кристен Кер,р Катрин Дент, Тим Гриффин, Молли МакКуин, Гэри Граббс, Дэвид Дженсен, Анджелл БруксПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A95D242B400FDAE3468EDD8877533EB3E24FEAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474200   (84983) от 28.03.2012
 
 Platinum Hide IP 3.1.7.6 [Мульти/Русский]
@@ -6,7 +79,7 @@ Platinum Hide IP 3.1.7.6 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84983.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Platinum Hide IP 3.1.7.6 [Мульти/Русский]
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84984.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Adobe Flash Player 11.2.202.228 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84985.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Firefox перестанет работать на старых версиях W
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84987.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Firefox перестанет работать на старых версиях W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84989.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Plugin Alliance - Maag EQ4 v1.1 x86.x64 By ASSiGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84990.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ AIDA64 Extreme Edition l Extreme Engineer Edition l Business Edition 2.30.1900 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84991.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ AVG Internet Security / AVG Internet Security Business Edition / AVG Anti-Virus 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84992.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ VA - Romantic Collection Disco 80 vol. 1 (2012) [MP3|256 kbps]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84993.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ magnet:?xt=urn:btih:8289318092C5369C37A9AE184C50A40C77A18403
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84994.jpg" />
 </div>
 
 
@@ -260,7 +333,7 @@ magnet:?xt=urn:btih:5D534A30E1559ACDACA5C586A9C097897F115ADE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84995.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ ASUS Eee PC 1000HE вспомогательный DVD-диск версия 3.0 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84996.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ ASUS Eee PC 1000HE вспомогательный DVD-диск версия 3.0 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84997.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ magnet:?xt=urn:btih:80D77465792F1B345F21CCCF17963EBA6C9841C8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84998.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ magnet:?xt=urn:btih:736B7027FCD70E8FA81E4C44716AE5CE4C478CC6
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85001.jpg" />
 </div>
 
 
@@ -385,7 +458,7 @@ magnet:?xt=urn:btih:14274EF6788E1B7364D450D2DBA4C68EADB6894D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85003.jpg" />
 </div>
 
 
@@ -409,7 +482,7 @@ magnet:?xt=urn:btih:14274EF6788E1B7364D450D2DBA4C68EADB6894D
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85004.jpg" />
 </div>
 
 
@@ -437,7 +510,7 @@ magnet:?xt=urn:btih:F0C15ACD2F534058C429481B73D2BA27498601E4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85006.jpg" />
 </div>
 
 
@@ -461,7 +534,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85007.jpg" />
 </div>
 
 
@@ -485,7 +558,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85009.jpg" />
 </div>
 
 
@@ -509,7 +582,7 @@ XLaunchpad 1.0.5.317 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85011.jpg" />
 </div>
 
 
@@ -533,7 +606,7 @@ XLaunchpad 1.0.5.317 [Multi/Русский]
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85012.jpg" />
 </div>
 
 
@@ -558,7 +631,7 @@ magnet:?xt=urn:btih:84E29AA6331969BF79BE52E9CB8990E957FCB5C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85014.jpg" />
 </div>
 
 
@@ -569,83 +642,6 @@ magnet:?xt=urn:btih:84E29AA6331969BF79BE52E9CB8990E957FCB5C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7CBFF79EF22977E2C6821BA0026F1CA00515EB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474399   (85016) от 28.03.2012
-
-Август. Восьмого (2012) [H.264] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда события нанизываются одно на другое, когда каждая минута ставит тебя перед выбором, когда жизнь и смерть становятся частью страшной компьютерной игры, пульт от которой - в чужих руках, тогда ты начинаешь действовать так, будто каждая минута - последняя. Казалось бы, жизнь хорошенькой разведенной москвички Ксении оставляет не много места для драматических ситуаций: да, сын Тема тяжело переживает развод родителей, да, поклонник поглощен карьерой, да, мама вмешивается в личную жизнь, - но трудно назвать эти обстоятельства критическими. Все меняется, когда бывший муж, офицер миротворческих сил, просит Ксению прислать Тему к нему, подышать горным воздухом в прекрасной деревушке в доме его родителей! Он уверяет, что это совершенно безопасно - да маленький Тема и не чувствует никакого страха, ведь рядом папа, добрый и непобедимый герой. Но наступает день, когда вражеские танки входят в город - и мир самых страшных игровых иллюзий мальчика становится реальностью. На экране оживают компьютерные драконы и злые космические (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Джаник ФайзиевПродюсер: Джаник Файзиев, Илья Бачурин, Фёдор БондарчукАктеры: Светлана Иванова, Максим Матвеев, Егор Бероев, Артем Фадеев, Владимир Вдовиченков, Сергей Газаров, Гоша Куценко, Анатолий Белый, Кирилл Плетнёв, Алексей ГуськовПеревод: ОригинальныйПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF3BF80055FFC225812300906520D9C3AEBEEC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473591   (85017) от 28.03.2012
-
-Дмитрий Париев | 30000 за 4 недели [2012] [Unpacked]
-
->>Мультимедийные материалы
->>Другие мультимедийные материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий париев - автор таких курсов как: Дизайн + 3D оформление обложки за 3 минуты WordPress Access Быстрый Интернет-магазин и других. Он предлагает способ зарботка 30000 рублей, всего-лишь за 4 недели.
-Хотите зарабатывать в Интернете? Забирайте пошаговый алгоритм, который просто великолепно подходит для старта с нуля! Вы получите план действий на каждую неделю, следуя которому даже наполовину, вы заработаете КАК МИНИМУМ 10000 рублей за 4 недели. Результат сильно зависит от вас, но 10 000 рублей по этой схеме заработать может каждый  даже при минимуме усилий. Если же вы будете выполнять все задания, то заработаете 30 000 и более за первые 4 недели.
-Как заработать в интернет 30 000 за четыре недели — смотрите в тренинге Дмитрия Париева. Просто повторяйте и заработайте!2012Жанр: Бизнес-Система для интернетаФормат: Unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5968D9566D792904F085A89292FC41D8DBCDC6B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474534   (85018) от 28.03.2012
-
-Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85018.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
-02. Dance In The Dark
-03. Glitter And Grease
-04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 

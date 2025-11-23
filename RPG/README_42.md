@@ -6,7 +6,7 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149718.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149753.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150847.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151070.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151483.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sailing Era (2023) [Multi] (1.3.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151906.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ StarCrawlers (2017) [En] (1.1.2) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153196.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Vikings - Wolves of Midgard (2017) [Ru/En] (2.1/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154649.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.30) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154778.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154783.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154796.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Salt and Sacrifice (2023) [Multi] (2.0.0.0a8) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154898.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shadows Heretic: Kingdoms (2014) [Ru/En] (1.0.0.8183) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158522.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159100.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159186.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159422.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Lillusion (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160040.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160049.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Company of Crime (2020) [Ru/Multi] (1.0.5.1178) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160347.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160729.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160776.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160919.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160970.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161546.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161571.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161622.jpg" />
 </div>
 
 

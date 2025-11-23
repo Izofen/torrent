@@ -6,7 +6,7 @@ Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166946.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166949.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166954.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166963.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BCD4C536DA27BC5E41AAD5F47F333BCB2A1239CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166967.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Realm - Endless War (1988) Reissued 2006 [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166968.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Exhorder - Mourn The Southern Skies (2019) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166972.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:448F41BAE78B60E996D9FAF9CF15D23F9EEB1DD7
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166973.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166975.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Disbelief - Navigator (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166980.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Crimson Tears - Gothica (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166985.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Matter Of Taste - Chateau Obscure (1996) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166990.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166997.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pink Floyd - The Later Years: 1987-2019 (2019) 5CD [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167022.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167035.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ AB/CD - Back 'n' Attack (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167043.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Animal Drive - Bite! (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167063.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167074.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167078.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Soul Remnants - Raising The Sacrificial Dagger (2021) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167101.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Skeletal Remains - Devouring Mortality (2018) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167107.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Frozen Rain - One Mile From Heartsville (2023) [FLAC|Lossless|WEB-DL|tracks] <AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167109.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Slade - Live and Loud! (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167119.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sunsleep - Moonlight Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167208.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Viogression - Perception Blur (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167291.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hallas - The Hällas Saga - Live at Cirkus (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167307.jpg" />
 </div>
 
 

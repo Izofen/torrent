@@ -6,7 +6,7 @@ Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168180.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168182.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skid Row - The Gang's All Here (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168189.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fields Of The Nephilim - Dawnrazor (1987) [FLAC|Lossless|image + .cue] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168190.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Generation Steel - Lionheart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168196.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fields Of The Nephilim - Fallen (2002) [FLAC|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168208.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eisbrecher - Schock Tour Edition 2016 (2016) Box 4CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168210.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168212.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skylark - The Princess' Day (2001) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168218.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eric Clapton - The Lady In The Balcony: Lockdown Sessions (2021) Japanese Editio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168224.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fields Of The Nephilim - Elizium (1990) [FLAC|Lossless|image + .cue] <Gothic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168242.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Liedfett - Hi! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Deutschrock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168251.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Weight of Emptiness - Withered Paradogma (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168277.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vega - Battlelines (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168280.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Fields Of The Nephilim - Revelations (1993) [FLAC|Lossless|image + .cue] <Gothic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168285.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Starchaser - Starchaser (2022) Deluxe Edition, 2023, Frontiers Records s.r.l. [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168292.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Halloween 2022 Rock Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168301.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Man Machine Industry - Eschaton I-II. Reckoning Day (2022-2023) 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168302.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5A7B09C9E148E3F77E85ADD365683943E03C3127
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168303.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Fields Of The Nephilim - The Nephilim (1988) [FLAC|Lossless|image + .cue] <Gothi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168305.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Legendry - Time Immortal Wept (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168310.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Skylark - Wings (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168313.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Fields Of The Nephilim - Earth Inferno (1991) [FLAC|Lossless|image + .cue] <Goth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168315.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Destroyer 666 - Defiance (2009) [FLAC|Lossless|image + .cue] <Black, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168324.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Shadow Warrior - Return Of The Shadow Warrior (2019) Japanese Edition, EP [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168344.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Viogression - 3rd Stage of Decay (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168346.jpg" />
 </div>
 
 

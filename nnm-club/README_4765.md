@@ -1,3 +1,173 @@
+###  Публикация: 1678210   (147693) от 20.11.2023
+
+Mac FoneLab Android Data Recovery 3.2.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы случайно удалили и потеряли данные на телефоне Android? Попробуйте это быстрое, мощное и простое в использовании средство восстановления файлов Mac FoneLab Android Data Recovery. Оно позволяет восстанавливать утерянные удаленные контакты, сообщения, историю звонков, фото, музыку, видео и документы на телефонах Android. С помощью этого восстановления данных Android (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.203Разработчик: © 2023 FoneLab Studio.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAB7E362236330F3F7445BC6FECCD9FA8966425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434808   (147696) от 26.12.2020
+
+Кристин Гиттер | Чем запить таблетку? Фармацевт о том, почему нельзя делить таблетки на части, хранить их на кухне и запивать всем подряд (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекарства проникают в нашу кровь – а кроме этого, что еще мы знаем о них? Что происходит с таблеткой, как только она оказывается во рту? А если это обезболивающее, то откуда оно знает, что болит именно голова? Время приема и дозировка – большинство людей думает только об этом, но это далеко не вся информация, которую нужно знать. Не важно, было ли лекарственное средство (   Читать дальше...   )Жанр: Популярно о медицине, ФармакологияПеревод: Анна ГудковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF788570CE93E4F5FD2B1A7CB7D2B615F57EDE34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678049   (147697) от 20.11.2023
+
+Balsamiq Mockups For Desktop 3.5.18 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Balsamiq Mockups — создание макетов сайтов, мобильных и веб-приложений (прототипа будущего приложения).
+Balsamiq Mockups будет полезна для project managers, designers, developers. Использовать Mockups для прототипирования еще проще, чем рисовать на бумаге - вы можете переделать любую выбранную часть и тотчас получить отличный результат. Создавайте и демонстрируйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: © 2008-2023 Balsamiq Studios, LLCПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34038A4F2BEA02FB6A718C80E1CDF15A495DFE8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434948   (147700) от 26.12.2020
+
+Малышка с характером / The Doorman (2020) BDRip [H.265/1080p-LQ] [10-bit] [GER Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147700.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом она – солдат спецподразделения, в настоящем - швейцар в роскошном отеле, где готовится дерзкое ограбление. Лишь она стоит между безжалостными преступниками и бесценными произведениями искусства, спрятанными в стенах отеля.Производство: США / Double Dutch International, Smash Media, CR8IV DNAЖанр: Боевик, триллерРежиссер: Рюхэй КитамураАктеры: Руби Роуз, Жан Рено, Аксель Хенни, Руперт Эванс, Джулиан Федер, Кайла Лорд Кэссиди, Луис Мэндилор, Дэн Сауфуорф, Хидэаки Ито, Дэвид СакурайПеревод: Дублированный (iTunes)Субтитры: Английские (Forced, Full, SDH)Продолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E8922A35374B50866739A682A94FCF376925E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589409   (147701) от 15.12.2012
+
+Больше, чем любовь / A Lot Like Love (2005) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек и девушка знакомятся в самолете, но вскоре расстаются. В течение семи последующих лет они то встречаются, то расстаются вновь. И только позже они понимают, что все это время искали друг друга и то, что казалось простой случайностью, на самом деле — любовь…Жанр: Драма, Мелодрама, КомедияРежиссер: Найджел КоулАктеры: Аманда Пит, Эштон Катчер, Тэрин Мэннинг, Айми Гарсиа, Ли Гарлингтон, Берди М. Хэйл, Тайрон Джордано, Мелисса ван дер Шифф, Тереза Спрюилл, Джеймс РидПеревод: ДублированныйЯзык субтитров: Русские, Английские (отключаемые)Продолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8B396946F53DA65B54640EC079D9E8DB25EAD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424916   (147702) от 26.12.2020
+
+Первобытное зло / Primeval (2007) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот серийный убийца скрывается в африканских джунглях и считается одним из самых опасных. На его счету больше жертв, чем у Джека-Потрошителя, Унабомбера и Чикатило вместе взятых. Его много раз пытались поймать, но каждый раз преследователи в лучшем случае уходили ни с чем, а в худшем – сами становились новыми жертвами. Команда телевизионщиков из США отправляется (   Читать дальше...   )Производство: США / Hollywood Pictures, Pariah FilmsЖанр: Ужасы, боевик, криминал, приключенияРежиссер: Майкл КэтлманАктеры: Доминик Перселл, Брук Лэнгтон, Орландо Джонс, Юрген Прохнов, Гидеон Эмери, Гэбриел Малема, Линда Мпондо, Лелохоноло Макоко, Думисани Мбебе, Эдди БекомбоПеревод: Дублированный, профессиональный двухголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2F0BBD53B4EEADFB7BBA66F7D9054B99B3E652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738890   (147703) от 27.12.2013
+
+Кровавый алмаз / Blood Diamond (2006) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147703.jpg" />
+</div>
+
+
+###  Подробнее
+
+1999, Сьерра-Леоне. Гражданская война. Кровь и хаос. В этой безрадостной атмосфере орудует ловкий контрабандист, специальность которого — бриллианты. Ему нет особенного дела, что эти камешки используются для дальнейшего нагнетания межнациональной розни.
+Но однажды контрабандист встречает местного рыбака, у которого пропал сын — его, говорят, забрали в «детскую армию», (   Читать дальше...   )Производство: США, Германия / Warner Bros., Virtual Studios, Spring Creek ProductionsЖанр: триллер, драма, приключенияРежиссер: Эдвард ЦвикАктеры: Леонардо Ди Каприо, Джимон Хонсу, Дженнифер Коннелли, Арнольд Вослоу, Энтони Коулмэн, Дэвид Хэрвуд, Бейзил Уоллес, Джими Мистри, Майкл Шин, Стивен Коллинз, Ато Эссонда, Перси Матсемела, Тони Кгороге, Ник РедингПеревод: Профессиональный (дублированный) + Профессиональный (двухголосый) + Авторский (одноголосый)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), Украинский (Full), Английский (Full)Продолжительность: 02:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C1D288C76352C45D5DA4068D2D5F342FD8BF43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678012   (147704) от 20.11.2023
 
 TG Pro (Temperature Gauge Pro) 2.88 [En]
@@ -6,7 +176,7 @@ TG Pro (Temperature Gauge Pro) 2.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147704.jpg" />
 </div>
 
 
@@ -31,7 +201,7 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147707.jpg" />
 </div>
 
 
@@ -58,7 +228,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147708.jpg" />
 </div>
 
 
@@ -83,7 +253,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack xatab [Game of the Year Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147709.jpg" />
 </div>
 
 
@@ -107,7 +277,7 @@ magnet:?xt=urn:btih:E09B1779E8F41EBB79122F7C280B58C9EA3FF441
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147710.jpg" />
 </div>
 
 
@@ -131,7 +301,7 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147712.jpg" />
 </div>
 
 
@@ -158,7 +328,7 @@ magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_147713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_147713.jpg" />
 </div>
 
 
@@ -184,7 +354,7 @@ Haste The Day - Best Of The Best (2012) Solid State Records [FLAC|Lossless|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147714.jpg" />
 </div>
 
 
@@ -211,7 +381,7 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147715.jpg" />
 </div>
 
 
@@ -238,7 +408,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -262,7 +432,7 @@ NIUBI Partition Editor 7.4.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147718.jpg" />
 </div>
 
 
@@ -287,7 +457,7 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147719.jpg" />
 </div>
 
 
@@ -314,7 +484,7 @@ magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147721.jpg" />
 </div>
 
 
@@ -338,7 +508,7 @@ magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147722.jpg" />
 </div>
 
 
@@ -365,7 +535,7 @@ magnet:?xt=urn:btih:1B26B0AA9941E65BE89DC851D1A953BB3AB389D2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147723.jpg" />
 </div>
 
 
@@ -390,7 +560,7 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147724.jpg" />
 </div>
 
 
@@ -417,7 +587,7 @@ magnet:?xt=urn:btih:41C1012C9098CFFC432BE0CD52D66C85A8AEA8A9
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147725.jpg" />
 </div>
 
 
@@ -441,7 +611,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147728.jpg" />
 </div>
 
 
@@ -468,7 +638,7 @@ magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147729.jpg" />
 </div>
 
 
@@ -479,183 +649,6 @@ magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969533   (147730) от 27.12.2015
-
-Журнал | Дачный совет №26 (декабрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147730.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C089AA394923FD7AD5975E7606920FB0AF901C5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086879   (147731) от 26.12.2016
-
-Холодное сердце (2016) HDTVRip (серии 1-2 из 2)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна и Михаил - счастливые родители, их дочке Юле уже десять лет. Девочка родилась с пороком сердца и едва не умерла сразу после рождения. Родители окружили Юлю заботой, любовью и привыкли исполнять любые ее пожелания. После трагической гибели мужа Аня полностью посвящает себя дочери, работает сиделкой и даже не помышляет о личной жизни. Тем временем из капризного (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Екатерина ДвигубскаяАктеры: Ксения Алферова, Мария Лисовая, Андрей Фролов, Виталий Кудрявцев, Екатерина Соломатина, Сергей Греков, Светлана Виноградова, Наталия АринбасароваПродолжительность: ~01:29:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03EB5CCEDD929C67E7830C0787C5DF5232EDD45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418824   (147732) от 24.12.2021
-
-Ричард Докинз | Собрание сочинений [15 книг] (2008-2022) [FB2, EPUB, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Докинз (Clinton Richard Dawkins) – английский этолог, эволюционный биолог, доктор философии, учёный и популяризатор науки, член Королевского литературного общества.
-Родился 26 марта 1941 в Найроби. Учился в Баллиол-колледже, Оксфорде.
-
-С 1995 по 2008 годы работал профессором Оксфордского университета. Всю жизнь посвятил изучению зоологии, исследованию поведения (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Научно-популярная литература, Генетика, Естествознание, Общая биология, Палеонтология, Биографии и Мемуары, Публицистика, Религиоведение / история религийФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437B1D218D9C8B4C4FF3E957E84CA2C276385B45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244726   (147733) от 24.12.2019
-
-Half-Life 2: The Orange Box (2007) [Ru] (1.0) Repack R.G. ReCoding
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life 2: Orange Box - новый продукт от компании Valve, включающий в себя не только долгожданный Episode Two, но и две не менее интересных и увлекательных игры. Half-Life 2: Episode Two - долгожданное продолжение культовой части «Half-Life 2», получившей более 35 наград «Игра года» от множества изданий по всему миру. Episode Two - продолжение знаменитой саги, (   Читать дальше...   )Тип издания: RepackРазработчик: Valve CorporationЖанр: FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8814090FA63B897333C1F62A235BE1C87117B20F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271931   (147734) от 25.12.2018
-
-Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossless|WEB-DL|tracks] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayfarer 08:04
-02. Beasts 08:58
-03. Companion Plan 07:04
-04. Lilies Beneath the Bridge 06:00(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4155A1C63FAF406F7967F25F726147DABD144E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678051   (147735) от 20.11.2023
-
-Johan Kihlberg's Impera - Spirit Of Alchemy (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Will Last
-02. Read It And Weep
-03. All About You
-04. When Souls Collide(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209970410A42D44F2037D0ED22F8C8D002BEEC1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434850   (147737) от 26.12.2020
-
-Экшены - GraphicRiver - Art Mix Photoshop Action - 28178955 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147737.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Art Mix» - действие фотошоп превратит ваши обычные фотографии в художественное полотно с эффектом стиля современной графики. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8C82BCEC0B349C50168D3802A1C3389AFEA556
 ```
 
 

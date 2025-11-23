@@ -6,7 +6,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176103.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176126.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176139.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176141.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176145.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176155.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176404.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176509.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -240,6 +240,33 @@ magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319188   (177798) от 06.10.2023
+
+Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце уходит на Запад
+02. Война
+03. Стоп! Думаю себе
+04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594487   (177838) от 01.12.2022
 
 Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
@@ -248,7 +275,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177838.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177947.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177947.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178126.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178209.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178209.jpg" />
 </div>
 
 
@@ -348,6 +375,33 @@ magnet:?xt=urn:btih:3E595F46D5797EB11C307525A15FD41ACE723720
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428854   (178227) от 04.12.2020
+
+Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178227.jpg" />
+</div>
+
+
+###  Подробнее
+
+East Side
+A1 Manifesto
+A2 Trash
+A3 Angel Eyes(   Читать дальше...   )Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666730   (178297) от 06.10.2023
 
 The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023, Rhino [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Hard rock, glam metal>
@@ -356,7 +410,7 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178297.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178297.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178333.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178341.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178341.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178348.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178348.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178384.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178384.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178389.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178389.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178391.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178391.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178416.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178421.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178421.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178702.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178702.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178851.jpg" />
 </div>
 
 
@@ -640,61 +694,6 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FB828F3EFD453B7F826A32B400FC17D1412EBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666729   (178949) от 05.10.2023
-
-Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blonde (3:19)
-02. How the Story Ends (3:15)
-03. Everything Turns Around (3:01)
-04. Overhang (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666746   (178953) от 05.10.2023
-
-Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
-Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
-2006 - Pitch Black Progress
-2008 - Holographic Universe
-2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
 ```
 
 

@@ -6,7 +6,7 @@ Dishonored (2012) [Ru/Multi] (334700) Repack EXROW [RHCP Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tobacco Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12871.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12881.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12884.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12902.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12905.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ All About Chopsticks / Все о палочках для еды (2025) [Ru/Multi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12954.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12958.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12985.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13000.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13008.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13009.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13023.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13024.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13029.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13030.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13032.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13087.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Scene Rune [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13090.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13094.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13108.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.16.29934/dlc) Repack Fi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13130.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13148.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13162.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13164.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PC Tycoon 2 (2024) [Ru/Multi] (1.2.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13165.jpg" />
 </div>
 
 

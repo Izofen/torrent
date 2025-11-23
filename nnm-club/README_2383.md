@@ -6,7 +6,7 @@ Pencil Photo Sketch : Drawing v2.0.69 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blender 3.6.10 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62324.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B1EA7D6D28A794B0ABBE19B4FDEC67013DF2063C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62325.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wondershare PDFelement 10.3.2.2684 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62326.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Google Chrome 123.0.6312.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62327.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ K-Lite Codec Pack Update 18.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62328.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1A4AA7FB1F5056987EF65C6D0C9E69031E17A9E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62329.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VideoProc Converter 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62330.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F4521B567F0EC9A1463C37D95BA52A84A38FC1F4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62331.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Fitify: Фитнес тренировки дома 1.68.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62332.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 11 Manager 1.4.3 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62333.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:889CA6A7B58F8369D46C7BA7F9F8F7DF141CB7C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62334.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EB97C0B873B07C0ECEBF6E0A9CC4A013B61B1F98
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62335.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:30D6948F2BC2275F08DBEF73D1DB84255D1055CC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62336.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ YT Downloader 9.6.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62337.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0314) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62338.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FD4EA42833E6AC8775A3383FE1ED0809D3C445C5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62339.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Google Chrome 123.0.6312.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62340.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Java SE Development Kit 22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62341.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, H
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62342.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62343.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ NVIDIA GeForce Desktop Game Ready 551.86 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62344.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:811219CD0D2AC13EC7796DB3AA95819DCAA521A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62345.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8054123596A5616A2942455AEA99AB9D5B6058E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62346.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4818C94E6D5FEC889B975498F5B9BB8C7F679413
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62347.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F030A20CCA095E3A958C5F4CCEF8850A8BF1996A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62348.jpg" />
 </div>
 
 

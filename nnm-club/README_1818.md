@@ -6,7 +6,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F39264F59A6376CE7493EC3CE01A59F36B75934
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47624.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8E5B4559957911295D2F89192A5FC0014B2C0125
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47625.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9B025BFB3E8046E957011F8E7FA0F97E244F7130
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47626.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5A51FB742D9D601B03AC7021833FC779B0B7AA2E
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47627.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tablacus Explorer 24.8.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47628.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8688BE6D36A81433A1208718AD9CD3627E3EF7FF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47629.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:37E98B7FDF9D3C611BD3D9C2F19A979EDADE147C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47630.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:AE3B8B8D3A2906956D2E1E1811B651909FF6E3B5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47631.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F11C0E558A228C960EE01D1BE719A823CC3E6324
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47632.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:57CB56491F9809D71991DCA57065AB702A1BD925
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47633.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PdfFactory Std & Pro 9.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47634.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Famous Piano Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrum
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47635.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2AA96CAA99424196343041EBE1246D9A45663669
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47636.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C8AD854088B15A8753641442720B9071D85BE34B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47637.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:4C5AEDA6D39F0D909CACDFFC007F273C554BFDD5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47638.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D5704ABDBDB55B17B349C599E5F781B7864FC0B0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47639.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4D43D5F31D123108F18F6CFEA485EF5CF4F4FFA8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47640.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:87325E50002804E9B14A2A228A1130A2882ABEA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47641.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F5A8A0306036C5B070B01EDF6BDDCAD237BF3851
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47642.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:D1F523B2566514B44CD40E668B3B99017359306E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47643.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:9C2CD27867066BC1939274CA9EAB0780A58B721B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47644.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1BA769DE0BBEF39F286659C181D63624BA73141B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47645.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A35A0A34D863C863206F7417DC353C5B05EBBE1B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47646.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:932DEF96AE69A45E17C21876C3FB9B1ADD5F7EB6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47647.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - Rat Pack Is Back (1996) Starlite [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47648.jpg" />
 </div>
 
 

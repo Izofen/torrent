@@ -6,7 +6,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165515.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dangerous Toys - Vitamins & Crash Helmets - Live (1999) Remaster, 2023,  Deadlin
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165542.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Inkubus Sukkubus - She of a Thousand Names (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165549.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ivory - Alien Nation (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165560.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Elegy - Manifestation of Fear (1998) Remaster, 2023, Elegy [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165595.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ancient Days - Devil's Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165599.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fleshworks - The Deadventure (2009) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165612.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165820.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Inhalo - Sever (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165828.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото гале�
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165830.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Best 90s Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165915.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C71DBDC6EE8DE2A55ED7CEDB3C90D20548C4697B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165925.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Icons of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165936.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Best Metal Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165952.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Misery - Misery Loves Company (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165969.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ As The Sun Falls - Last Days of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165971.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Those Poor Bastards - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Co
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165976.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kansas Featuring The London Symphony Orchestra - Always Never The Same (1998) Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166015.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:14D831331AB068ACB91547B4A50CE5933EBC8AD2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166016.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kerygmatic Project - Dreams World (2022) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166035.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Razorlight - Razorwhat? The Best Of Razorlight (2022) [FLAC 2.0|48/24|tracks|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166038.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166048.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Skaльпель - ВОВРЕМЯ (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166054.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Phantom cross - Платиновый (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166057.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Smoke Of Isengard - Orc Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166077.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166093.jpg" />
 </div>
 
 

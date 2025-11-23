@@ -1,3 +1,80 @@
+###  Публикация: 471243   (83577) от 21.03.2012
+
+СМЕРШ: Легенда для предателя (4 серии из 4) (2011 ) DVD9
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об одной из операций советской контрразведки «Смерш», которая началась в 1944 и завершилась в 1947 году. Это было смертельное противостояние советской контрразведки и западных спецслужб, продолжавшееся и после разгрома фашистской Германии. В центре внимания фильма: оставшийся надолго под грифом секретности подвиг нашего разведчика, ежедневно и ежечасно рисковавшего жизнью, работавшего в условиях, когда провал и предательство - заурядные события, продолжавшего свою миссию даже после обвинения в измене Родине. Четыре серии фильма «Легенда для предателя» охватывают главные события четырёх лет отчаянной борьбы, полной героизма и предательства, отчаяния и надежды, ненависти и любви...Жанр: Военный, ИсторияРежиссер: Ирина ГедровичАктеры: Анатолий Гущин, Анна Миклош, Анна Исманова, Георгий Тополага, Вячеслав Гришечкин, Иван МамоновПродолжительность: 4 ~ 00:44:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471254   (83578) от 21.03.2012
+
+Windows Live Essentials 2011 15.4.3555.308 (Offline-Installer) [Русский/Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Live — комплекс интегрированных веб-приложений и программ от Microsoft.
+Откройте для себя больше возможностей на компьютере под управлением Windows с бесплатными программами Майкрософт для работы с фотографиями, фильмами, мгновенными сообщениями, электронной почтой, социальными сетями и не только.
+Основные программы, входящие в Windows Live 2011: Messenger, Фотоальбом, Киностудия, Windows Live Mesh.
+Также в комплекте Основных компонентов Windows Live: Редактор блогов, Семейная безопасность, Mail, Компаньон Messenger, Панель Bing, Outlook Connector Pack, Microsoft Silverlight
+
+Offline-установщик предназначен для установки Windows Live Essentials 2011 в автономном режиме без наличия подключения к Интернету.Название программы: Windows Live Essentials 2011Язык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471338   (83580) от 21.03.2012
+
+Санктум / Sanctum (2011) [H.264/720p-LQ] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа дайверов предпринимает очень рискованную экспедицию в самую большую систему пещер на Земле — невероятно красивую и почти недоступную. Неожиданный тропический шторм вынуждает их спуститься глубоко в пещеры. Единственное спасение для исследователей — найти неизвестный второй выход к морю, преодолевая неистовую стихию бушующих вод, коварные ловушки подземелий (   Читать дальше...   )Жанр: Триллер, Драма, ПриключенияРежиссер: Алистер ГрирсонАктеры: Ричард Роксбург, Йоан Гриффит, Риз Уэйкфилд, Элис Паркинсон, Дэниэл Уилли, Кристофер Бэйкер, Элисон Крэтчли, Крамер Кэйн, Эндрю Хансен, Джон ГарвинПеревод: ДублированныйПродолжительность: 01:48:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470956   (83582) от 21.03.2012
 
 SkyMonk 1.71 [Русский]
@@ -6,7 +83,7 @@ SkyMonk 1.71 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83582.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Sony Picture Motion Browser update to 5.8 5.8.01 [русский, английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83584.jpg" />
 </div>
 
 
@@ -56,7 +133,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83585.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83587.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83590.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Call of Duty: Modern Warfare 3 + COOP + TeknoMW3 v2.7.0.1 [Ru] (Lossless Repack)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83592.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ WINDOWS 7 ULTIMATE x64 SP1 REACTOR 3.12
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83593.jpg" />
 </div>
 
 
@@ -181,7 +258,7 @@ VA- Для Юбилея, Дня Рождения Русский (2012) [MP3|128 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83595.jpg" />
 </div>
 
 
@@ -214,7 +291,7 @@ Mathworks Matlab R2012a [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83596.jpg" />
 </div>
 
 
@@ -238,7 +315,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83598.jpg" />
 </div>
 
 
@@ -262,7 +339,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83601.jpg" />
 </div>
 
 
@@ -286,7 +363,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83604.jpg" />
 </div>
 
 
@@ -310,7 +387,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83605.jpg" />
 </div>
 
 
@@ -334,7 +411,7 @@ Dead Island. Ryder White [Ru/En] (RePack/1.3) 2012 | R.G. Unigamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83606.jpg" />
 </div>
 
 
@@ -358,7 +435,7 @@ magnet:?xt=urn:btih:FBC92803A7578DD62D23637266D57622428A1B0C
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83607.jpg" />
 </div>
 
 
@@ -384,7 +461,7 @@ VA - Фоновая музыка для дня рождения (2012) [MP3|128-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83608.jpg" />
 </div>
 
 
@@ -417,7 +494,7 @@ magnet:?xt=urn:btih:D376547DE6B20CAF507CD6FA6210EA28474E18C2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83610.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ magnet:?xt=urn:btih:52B9283C62302C6B6B3D689249DFEF30D1BC3D2A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83611.jpg" />
 </div>
 
 
@@ -466,7 +543,7 @@ magnet:?xt=urn:btih:B9B4269AA3813A142BE6C7B78C2F63B248C57605
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83612.jpg" />
 </div>
 
 
@@ -490,7 +567,7 @@ magnet:?xt=urn:btih:AEC04114FB815FDAA07189FCAE2186EBD50AF13F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83613.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83617.jpg" />
 </div>
 
 
@@ -539,7 +616,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83619.jpg" />
 </div>
 
 
@@ -570,7 +647,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83620.jpg" />
 </div>
 
 
@@ -581,78 +658,6 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD812BA290568832B70B0765EC0F90502E0B236C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471602   (83623) от 22.03.2012
-
-Фальшивая свадьба / My fake fiance (2009) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженнифер и Винс погрязли в долгах. Она потратила все свои сбережения на первый взнос для покупки дома, он сильно проигрался в азартные игры. Познакомившись на свадьбе друзей, должники были поражены щедростью гостей и роскошью подарков молодожёнам. Эйфория от возможности лёгкого обогащения заставила Дженнифер и Винса объявить о своей скорой свадьбе. Знали бы они, сколько будет стоить устройство фиктивного торжества и во что могут вылиться их взаимные антипатии…Жанр: Комедия, МелодрамаРежиссер: Джил ДжангерАктеры: Мелисса Джоан Харт, Джозеф Лоуренс, Николь Тубиола, Бургесс Дженкинс, Дайан Нил, Джейсон МакДональд, Стив Ширрипа, Джон Аллен, Деметриус Б. Бэнкс, Пол БеднажПеревод: Двуголосый закадровыйЯзык субтитров: испанскиеПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471681   (83624) от 22.03.2012
-
-Вымогательство / The Squeeze (1977) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим Нэйбот - бывший полицейский. Его уволили из Скотланд-Ярда за пьянство. Мужчине сложно смириться с вынужденным бездействием. И вот судьба преподносит ему шанс снова вернуться в строй. Он получает заказ от богатого промышленника, у которого похитили жену Джилл и дочь. Бандиты требуют за членов семьи бизнесмена выкуп в миллион долларов. Независимо от официального следствия, которое начато по этому делу, бывший сыщик-алкоголик ведет свою борьбу с похитителями. Он перевернет весь Лондон, но найдет женщину и девочку...Жанр: Драма, Криминал, ТриллерРежиссер: Стюарт БерджАктеры: Стейси Кич, Дэвид Хеммингс, Эдвард Фокс, Стивен Бойд, Кэрол Уайт, Фредди Старр, Род Бичем, Стюарт Харвуд, Алан Форд, Рой Мэрсден, Леон Грин, Морин Суини, Кейт Майлз, Пэм Брайтон, Лайонел Нгакане, Майкл О’Хаган, Ли Страндт, Боб РэмсиПеревод: Профессиональный многоголосыйПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D813A153324BD2B9D3EDC48F684C2A4BE7E82F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471926   (83626) от 22.03.2012
-
-Рецепты рисовые [2009] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83626.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашей кулинарной книге вы найдете десятки рецептов вкусных и полезных блюд из риса.Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,99 @@
+###  Публикация: 1430873   (169563) от 11.12.2020
+
+2Gis Все города 3.16.3 (Декабрь 2020) Portable by Punsh [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169563.jpg" />
+</div>
+
+
+###  Подробнее
+
+2ГИС - справочник организаций, включающий в себя карты городов. Более 20 000 000 пользователей в более чем 250 городах России, Украины, Казахстана, Италии, Кипра и Чехии регулярно используют 2ГИС в личных целях и для решения бизнес-задач.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF86DF353516C77D3AE1BE9ED1CAB1288208684A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672559   (169568) от 28.10.2023
+
+GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169568.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CAD4E39AF8A874EDE4BE41A4A61721478796A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344532   (169572) от 11.12.2019
+
+Эверест / Abominable (2019) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие на самую высокую точку мира? Что может быть круче! Так решает Лу, когда случайно находит огромное, но очень милое чудовище посреди шумного мегаполиса. Пусть их преследуют ученые из сверхсекретной лаборатории, зато её новый друг умеет смешить и творить чудеса. Лу уверена, что поможет дружелюбному йети вернуться домой — на Эверест.Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Джилл Калтон, Тодд ВилдерманПерсонажи: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2C39FA8B232C52655426FB3AFA7055762A7B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430737   (169573) от 11.12.2020
+
+Icecream PDF Editor PRO 2.43 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D85A5994087450CB388171DB08ADBC6C999EC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515549   (169578) от 07.12.2021
 
 SQLPro Studio 2021.106 [En]
@@ -6,7 +102,7 @@ SQLPro Studio 2021.106 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169578.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169581.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ WhatsApp 2.2049.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169584.jpg" />
 </div>
 
 
@@ -81,7 +177,7 @@ CleanMyPC 1.10.8.2063 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169591.jpg" />
 </div>
 
 
@@ -105,7 +201,7 @@ AAF DCH Optimus Sound 6.0.9071.1 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169597.jpg" />
 </div>
 
 
@@ -129,7 +225,7 @@ magnet:?xt=urn:btih:7FE1EACD729849DAC553F10026C557B68AEF1E33
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169602.jpg" />
 </div>
 
 
@@ -153,7 +249,7 @@ Ant Download Manager Pro 2.1.0 Build 75692 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169614.jpg" />
 </div>
 
 
@@ -177,7 +273,7 @@ Bandicam 4.5.3.1608 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169620.jpg" />
 </div>
 
 
@@ -201,7 +297,7 @@ Macrorit Disk Scanner 5.3.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169629.jpg" />
 </div>
 
 
@@ -225,7 +321,7 @@ Google Chrome 79.0.3945.79 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169637.jpg" />
 </div>
 
 
@@ -249,7 +345,7 @@ App Cleaner & Uninstaller Pro 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169644.jpg" />
 </div>
 
 
@@ -275,7 +371,7 @@ FabFilter Total Bundle 2020.12.08 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169645.jpg" />
 </div>
 
 
@@ -299,7 +395,7 @@ Smart Shooter 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169650.jpg" />
 </div>
 
 
@@ -325,7 +421,7 @@ NetWorker Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169661.jpg" />
 </div>
 
 
@@ -349,7 +445,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169662.jpg" />
 </div>
 
 
@@ -373,7 +469,7 @@ GoodNotes 5 v5.7.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169665.jpg" />
 </div>
 
 
@@ -398,7 +494,7 @@ CrossOver 19.0 (build 32195 ) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169670.jpg" />
 </div>
 
 
@@ -424,7 +520,7 @@ WonderFox HD Video Converter Factory Pro 20.0 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169675.jpg" />
 </div>
 
 
@@ -448,7 +544,7 @@ AIDA64 Extreme Edition 6.92.6622 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169676.jpg" />
 </div>
 
 
@@ -472,7 +568,7 @@ SideNotes 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169686.jpg" />
 </div>
 
 
@@ -496,7 +592,7 @@ Ashampoo Burning Studio 21.1.0.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169701.jpg" />
 </div>
 
 
@@ -520,7 +616,7 @@ Microsoft Edge 87.0.664.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169702.jpg" />
 </div>
 
 
@@ -531,104 +627,6 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3650E97EB87B902281AAEBD29D9469FE00D9049C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344571   (169704) от 11.12.2019
-
-Google Chrome 79.0.3945.79 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9D17336C5637F75752C4AE26E252D9B42B1B04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515513   (169707) от 07.12.2021
-
-iPulse 3.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
-Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C063F956B7E5F40140F793542DA5D6DAE0E3BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672225   (169708) от 27.10.2023
-
-Adguard 7.15.1 (7.15.4386.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9DFFFCF9FE87FDA3B8F1EA13B702592B5E214E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515459   (169712) от 07.12.2021
-
-Submerge 3 v3.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
-Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1251590EC13D2F0F3A6BDB5F15E87F992CB5F13B
 ```
 
 

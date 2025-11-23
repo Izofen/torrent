@@ -6,7 +6,7 @@ Telegram Desktop 4.16.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60241.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains DataSpell 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60245.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ IK Multimedia - TONEX MAX 1.6.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60247.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1B940693D90A526EA86116E6F1B55BF712B4F5FB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60249.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Change MAC Address 24.04 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60259.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ GPU-Z 2.58.1 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60260.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ HiBit Startup Manager 2.6.40 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60262.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VueScan Pro 9.8.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60271.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Psiphon 3 build 182 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60275.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ AIMP 5.30 Build 2541 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60278.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ RustDesk 1.2.3-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60279.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ ExperienceIndexOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60283.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Snappy Driver Installer Origin R763 | Драйверпаки 24.04.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60297.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ MAGIX Vegas Pro 21.0 Build 300 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60299.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ HiBit Uninstaller 3.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60327.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 12.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60330.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SoundSwitch 6.10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60338.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Ventusky: Прогноз погоды v33.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60339.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ TrustViewer 2.12.1.5195 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60340.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Adobe Photoshop Express 13.4.404 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60345.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.0 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60356.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Square Home Launcher 3.0.11 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60358.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Double Commander 1.1.12 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60359.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ XnView MP 1.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60362.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ GoodbyeDPI 0.2.2 Launcher 7.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60374.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Super S10 Launcher 5.2 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60381.jpg" />
 </div>
 
 

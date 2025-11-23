@@ -6,7 +6,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61882.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CapCut - Video Editor v11.5.0 b11100500 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61883.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61884.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Horizon: Forbidden West (2024) [Ru/Multi] (1.0.38.0/dlc) Scene Rune [Complete Ed
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61885.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Horizon Forbidden West – продолжение приключения охо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61886.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61887.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B7A7F7BA6981212B71B6DB2742FC382894B38803
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61888.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A56416B0F19733E9CF82D9B4A643FB11E8C637BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61889.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:FB4F7B3364DE4677F72D8176E3CBE2DCA2C008F2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61890.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dosanko Gal wa Namara Menkoi / Hokkaido Gals Are Super Adorable! / Досанк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61891.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1AB2F00E4219B350CAC656DCC00EAD58A681E7DD
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61892.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:CEE151FC98B256DC587823E013F8C4914E6F4E01
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61893.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:CEE151FC98B256DC587823E013F8C4914E6F4E01
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61894.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Internet Download Manager 6.42 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61895.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Oroka na Tenshi wa Akuma to Odoru / The Foolish Angel Dances with the Devil / Г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61896.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61897.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:B9EB367C1D1EC68343A0B69D2D384FAE43DB0A0B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61898.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Girls Bravo 2 | Браво, девушки! 2 [2005, TV, 13 из 13] DVDRip 480p
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61899.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:7535F0083E0639C2163D75F65E7B974E0BAEEA48
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61900.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:ABFBAE7957A8AE9F6C95451F92E60270ADD0813B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61901.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:2C9CB528784C2ADC930ACE7E270C2DEFC719FB43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61902.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2959E390ADAF7C4294E973FB53E1A2AA09395EA1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61903.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EA360C88BDA29B18BDFAC8B12237AB78971B2D1A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61904.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:FFF94E3593AFB45B618AE55713D87BFC336B77DD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61905.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Floorp Browser 11.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61906.jpg" />
 </div>
 
 

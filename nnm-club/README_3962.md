@@ -1,3 +1,77 @@
+###  Публикация: 1692428   (122694) от 16.01.2024
+
+Луна / Deo mun (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122694.jpg" />
+</div>
+
+
+###  Подробнее
+
+2029 год. Пять лет назад Южная Корея пыталась отправить экспедицию на Луну, но ракета взорвалась вскоре после старта, поэтому на новую миссию возлагаются большие надежды. Уже выведенный на окололунную орбиту космический корабль попадает под действие сильного солнечного ветра, происходит утечка топлива и взрыв, в результате которого погибают два из трёх членов экипажа. (   Читать дальше...   )Производство: Корея Южная / BLAAD StudiosЖанр: Фантастика, драма, триллерРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Хон Сын-хи, Чхве Джон-у, Брэд Литтл, Пол де ХэвиллэндПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: 02:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479902610802F8E55A865B2DD91E52945A1593E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 118978   (122695) от 16.01.2024
+
+АББА: Фильм / Abba The Movie (1977) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм охватывает период наивысшей популярности группы, между альбомом 1976 года «Arrival» и альбомом 1977 года «The Album», песни из которых представлены в виде видеозарисовок.Производство: Швеция, АвстралияЖанр: документальный, драма, комедия, музыкаРежиссер: Лассе Халлстром /Lasse Hallstrom/Актеры: Агнета Фельтскуг /Agnetha Faltskog/, Бенни Андерссон /Benny Andersson/, Бьерн Ульвеус /Bjorn Ulvaeus/, Анни-Фрид Люнгстад /Anni-Frid Lyngstad/, Роберт Хьюз /Robert Hughes/Перевод: профессиональный одноголосыйСубтитры: нетПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4405282674EB78011E9A36948B1D72E80B5DA003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469696   (122696) от 16.01.2024
+
+М. Л. Закожурникова и др. | Русский язык. Учебник для 1-го класса (1965) [Раритет] [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составили:
+М.Л. Закожурникова, Ф.Д. Костенко, Н.С. Рождественский
+Предлагаемое раритетное издание является пособием по обучению чтению и письму детей 6-7 летнего возраста, слегка пожелтевшие страницы.Жанр: УчебникИздательство: «Просвещение» МоскваФормат: PDF, DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472002   (122697) от 16.01.2024
 
 И.Я.Билибин | Сказки. Василиса Прекрасная (1902) [Раритет] [PDF]
@@ -6,7 +80,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122697.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122698.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122699.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122700.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ Mimestream 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122702.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -181,7 +255,7 @@ The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122704.jpg" />
 </div>
 
 
@@ -208,7 +282,7 @@ Travis Koester - Mister Travis (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122705.jpg" />
 </div>
 
 
@@ -235,7 +309,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122706.jpg" />
 </div>
 
 
@@ -262,7 +336,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122707.jpg" />
 </div>
 
 
@@ -289,7 +363,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122708.jpg" />
 </div>
 
 
@@ -314,7 +388,7 @@ Soulver 3 v.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122709.jpg" />
 </div>
 
 
@@ -339,7 +413,7 @@ Dropshare 5 v.5.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122710.jpg" />
 </div>
 
 
@@ -364,7 +438,7 @@ EasyGantt Classic  4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122711.jpg" />
 </div>
 
 
@@ -388,7 +462,7 @@ iShowU Studio 2 v.2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122712.jpg" />
 </div>
 
 
@@ -413,7 +487,7 @@ Serial Box & SerialSeeker 01-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122713.jpg" />
 </div>
 
 
@@ -439,7 +513,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122714.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122715.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ Woody & The Bluepackers - Porch (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122716.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Brothers Brown - Nowhere Left To Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122718.jpg" />
 </div>
 
 
@@ -566,7 +640,7 @@ Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122719.jpg" />
 </div>
 
 
@@ -580,84 +654,6 @@ Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72EAE5ABB46CF5C9DDB868E8648B02058D8959FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692100   (122720) от 15.01.2024
-
-Kevin Burt - Thank You Brother Bill A Tribute to Bill Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Is He (And What Is He To You) (4:54)
-02. Kissing My Love (4:28)
-03. World Keeps Going Round and Round (5:27)
-04. Just the Two of Us (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022C78CBD43C17A32FEDCAB5D289EEAAE7426E89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692210   (122721) от 15.01.2024
-
-Ольга Баскова | Артефакт & Детектив. Проклятая сабля крымского хана (2022) [MP3, Ольга Плетнева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тот, кто хочет владеть всем миром, непременно поплатится за свое тщеславие. Зачарованная сабля сулила могущество и богатство хану Девлет Гирею, потомку великого Чингисхана, но была утеряна на поле битвы, и с тех пор несла только разрушение и несчастья… Сила проклятья не ослабла вплоть до наших дней, и закружила в водовороте трагических событий Жанну и Андрея, каждому (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 10:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD69EA4FF49710139774759BB2316179979FFD2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692226   (122722) от 15.01.2024
-
-Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Train (3:54)
-02. Can't Shake These Blues (4:52)
-03. 1964 (6:33)
-04. Don't Let The Devil Ride (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2D446B552D97124954E116EA1B878A3CAAF0F7
 ```
 
 

@@ -6,7 +6,7 @@ Baccara - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39381.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39392.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39402.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sapho - El sol y la luna (1987) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39485.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blue System - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Pop, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39505.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39566.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:358D744369D7B0D7297AE65616F308E0A6756B81
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39574.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39664.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39669.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39674.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39726.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Barbra Streisand - The Broadway Album (1985) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39750.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Super Hits 80's Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ita
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39770.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Best Of 93 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Reggae, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39776.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:AFD1C5DBDE9841468B8881D31DC9A5097DDB40A4
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39932.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:968322FAE7BDA8BE6922A6C94E8E83E500ECF869
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39938.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ The Blessed Madonna - Godspeed (2024) [MP3|320 Kbps] <House, Dance-pop, Disco, T
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39960.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Kylie Minogue - Tension II (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39983.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:DF4706C2970290C9C0445BEFF2877978FF8F7ABB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40185.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Союз 15  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40212.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Paul Anka - Paul Anka Gold Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40279.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Pop Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40280.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Best Of 92 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40409.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Army Of Lovers - Sexodus (2023) 2 x CD, Reissue, 2024, Maschina Records [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40480.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - NRJ Music Awards 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40493.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Olivia Newton-John - Physical (1981) Deluxe Edition, Remastered, 2021, Primary W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40620.jpg" />
 </div>
 
 

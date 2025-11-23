@@ -1,3 +1,75 @@
+###  Публикация: 1638840   (197296) от 10.06.2023
+
+Фитнес тренер FitProSport v4.100 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с персональным фитнес тренером «FitProSport» Ваши занятия станут максимально эффективными!Тип издания: Full с МаркетаРелиз состоялся: 01.06.2023Разработчик: FitProSportПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B93F3CA3BA1F58A24D9A0CBBAF3B549C3F7230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637516   (197499) от 05.06.2023
+
+Калькулятор самогонщика v1.13 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение представляет собой калькулятор, с помощью которого можно рассчитать необходимое количество сырья, воды и дрожжей для изготовления самогона. Есть возможность расчёта для самогона из: сахара, зерна, фруктов. Также есть функция "разбавление самогона", которая поможет Вам рассчитать какое количество воды необходимо добавить чтобы разбавить спирт (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 17.01.2022Разработчик: User_01Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637465   (197568) от 04.06.2023
+
+Сервисная книжка автомобиля v4.7 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживайте все свои расходы на автомобиль с помощью этого приложения для учета расходов на автомобиль!Тип издания: FullРелиз состоялся: 07.04.2023Разработчик: Mikheev AlekseyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637241   (197609) от 03.06.2023
 
 Универсальный ТВ пульт v1.1.29 [Ru/Multi]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197609.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197609.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:CCACACB7B5709A14BD66CE18FF3B16C524693C9B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198044.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_198044.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Search By Image v8.3.0 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198102.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198102.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Photo Editor v8.6 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198488.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198488.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:62E8EB9FF7CA5F2D1086D20956DD11A1013459B8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198697.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198745.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198745.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199062.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Telegram for Android 9.6.3 (3344) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199119.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199119.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ Dual Space - Multiple Accounts & App Cloner 4.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199127.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199127.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199963.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199963.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:C3CCAC25268E7EA21F0694ACFACB3E43A38CB3F6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200069.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200069.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200181.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200181.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ SD Maid Pro v5.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200235.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200235.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ VPN.lat: Unlimited and Secure 3.8.3 7.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200433.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200433.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ Enhance it v4.1.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200462.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200462.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Kiwi VPN Proxy: Safer & Faster 51.23.12 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200534.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Display Tester v4.56 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200616.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200616.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ BikeComputer Pro v8.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200734.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200734.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ LectureNotes v2.10.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200801.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201184.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201184.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201303.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201303.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ Free Download Manager for Android 16.9.0.5156 (87037e22) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201323.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201323.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ Movily v1.5.1 / v1.1.1 ATV [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201661.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201661.jpg" />
 </div>
 
 
@@ -550,78 +622,6 @@ Movily – бесплатный видеосервис для просмотра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC706075DE5E7BDEF66010E9EA3E823F347C219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829575   (201839) от 25.10.2025
-
-Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 25.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829594   (201844) от 25.10.2025
-
-WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вам новый способ проверки и оптимизации сетей WiFi. Превратите ваше Android-устройство в анализатор Wi-Fi сетей! WiFi Analyzer порекомендует вам лучшую сеть Wi-Fi и самое оптимальное место для ее использования. WiFi Analyzer предоставит вам самую полезную информацию об оптимизации сети, чтобы помочь вам снизить уровень помех и увеличить скорость и стабильность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.10.2025Разработчик: olgor.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829277   (201865) от 25.10.2025
-
-Poweramp Эквалайзер build-1009-uni Mod by ModExPro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poweramp Эквалайзер - отдельное приложение-эквалайзер с обширным функционалом, созданное на базе Poweramp. Приложение обработки звука, основанное на плеере Poweramp, с как можно большим количествомвом опций Poweramp.Тип издания: PremiumРелиз состоялся: 22.10.2025Разработчик: Poweramp Software Design (Max MP)Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F963B363E39EC60186250426796A806BD3C477
 ```
 
 

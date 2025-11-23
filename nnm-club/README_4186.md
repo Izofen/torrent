@@ -1,3 +1,75 @@
+###  Публикация: 1683640   (128523) от 11.12.2023
+
+Что происходит потом / What Happens Later (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилла и Билл — бывшие любовники, которые увидят друг друга впервые за много лет, когда они оба окажутся в заснеженном аэропорту во время перелета.Производство: США / Ten Acre Films, Rockhill Studios, Das Films, Prowess PicturesЖанр: Мелодрама, комедияРежиссер: Мег РайанАктеры: Мег Райан, Дэвид Духовны, Hal Liggett, Julia D. Borkowski, Faron Ledbetter, Эрик Паркинсон, Will Reed, Kat Silva, Renee WhiteleyПеревод: Профессиональный многоголосый (NewStudio)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5727441A9D44C0A7BCC4AECB1A9515ED9C2ABDBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683374   (128524) от 11.12.2023
+
+Столпы Земли / The Pillars of the Earth (2010)  BDRip [H.265/1080p] (сезон 1, серии 1-8 из 8) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128524.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Столпы Земли» — это мини-сериал, снятый в 2010 году по одноимённой книге Кена Фоллетта. В качестве продюсера «Столпов…» выступил знаменитый Ридли Скотт. На создание сериала ушло около года работы и 40 миллионов долларов. Действие картины разворачивается в Англии XII века. У короля Генриха I при странных обстоятельствах погибает единственный наследник. Оставшаяся (   Читать дальше...   )Производство: Германия, Канада, Великобритания, Венгрия / Tandem CommunicationsЖанр: Драма, история, триллер, мелодрама, военныйРежиссер: Серджо Мимика-ГеззанАктеры: Эдди Редмэйн, Хейли Этвелл, Иэн МакШейн, Дональд Сазерленд, Руфус Сьюэлл, Мэттью Макфэдьен, Сэм Клафлин, Дэвид Оукс, Сара Пэриш, Наталия ВёрнерПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: нетПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F4AED3B9B705222E761902F73B92E6E6A46F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683380   (128525) от 10.12.2023
+
+Благовест | Акафист святому праведному воину Феодору Ушакову (2022) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист святому праведному воину Феодору Ушакову.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821AA26558075E4CE5610D091A06797DEE89C168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683351   (128526) от 10.12.2023
 
 Наша банда. Десять лет / Our Gang. Ten Years Old (1927) WEBRip [H.264/720p-LQ]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128526.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Tyrants - Beyond The Horizon (2023) EP [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128527.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:86FFDD2A557D98DA0ABBE6393520A28F7078F148
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128528.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:915EEBADE415007EAD86379FC44088D492490093
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128529.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128530.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128531.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128532.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ magnet:?xt=urn:btih:E033DA3276C7AF2A60AAECCFA7C232BA7D52EE16
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128533.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128534.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ Osiris - Meanders A Soul (2021) [FLAC|Lossless|image + .cue] <Symphonic Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128535.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128536.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ Strike Master - U.F.T.M (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128537.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Strike Master - Strike Master (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128538.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:1292567B9053B0DEFD8E18354D76C87EA4388AC1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128539.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128540.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ Atack - Nine Lives (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128541.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:7EB939DF0B2A502743FE3B73B96A8A5DBDA89F87
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128542.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ Eli Paperboy Reed - Hits And Misses (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128543.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128544.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128545.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ The Unknown - Big Dreams (1989) Reissue, 2023, FnA Records [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128546.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128547.jpg" />
 </div>
 
 
@@ -582,7 +654,7 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128548.jpg" />
 </div>
 
 
@@ -596,84 +668,6 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05DBE93E94069F43705D067846AF8007D97C3F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683213   (128549) от 10.12.2023
-
-Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Runner (4:06)
-02. Tonight (3:23)
-03. Caught Feelings (4:34)
-04. No One Saves The World Alone (5:16)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD5C8E0DC606376C6BAD3912C34DAC5661B2062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683210   (128550) от 10.12.2023
-
-Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birks Works [6:27]
-02. I've Never Been in Love Before [5:35]
-03. Japanese Folk Song [6:23]
-04. Misterioso [7:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683387   (128551) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
 ```
 
 

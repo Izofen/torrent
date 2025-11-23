@@ -1,3 +1,177 @@
+###  Публикация: 1598461   (162436) от 19.12.2022
+
+Андрей Еслер | Менталист (Книга 4). Трансформация (2022) [MP3, Петров Никита (Петроник)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фёдор Фонвизин – молодой наследник одного из старейших родов. С рождения он обручён со Светланой Романовой. Но надежды отца на то, что сын однажды возглавит род, терпят крах. Герой взрослеет – и всё понятнее становится, что нет у него магического дара, который в этом мире решает всё. А значит, при испытании он, скорее всего, погибнет. Приняв неизбежное, Фёдор прожигает (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Городское фэнтезиПродолжительность: 08:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571B92103F28FBF39D3BB43410981C01D3C17292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824551   (162437) от 18.10.2025
+
+Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nightmare Returns ❂ Welcome 2 My Nightmare 2011
+02. Poison ❂ Trash 1989
+03. Might As Well Be On Mars ❂ Hey, Stoopid ! 1991
+04. You & Me ❂ Lace & Whiskey 1977(   Читать дальше...   )Жанр: Shock rock, Hard rockПродолжительность: 14:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BDDF0273BB346C339564B5B68706DA8B6E1EE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517673   (162438) от 16.12.2021
+
+Metadata Converter Pro for Mac 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metadata Converter - это интуитивно понятный редактор метаданных пакетных фотографий, средство просмотра и переименования. Исправьте теги метаданных EXIF ​​/ IPTC / XMP в ваших фотографиях: поместите координаты GPS, удалите личную информацию с ваших фотографий, исправьте или установите даты съемки, добавьте свои собственные авторские права и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329A153395C0178649345502B27CCFD43B670CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433029   (162439) от 19.12.2020
+
+BusyContacts 1.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162439.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9226EE1354D82AA30F142319B6C491A5DAAF046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674176   (162440) от 04.11.2023
+
+Speedtest от Ookla 5.2.3 Mod by maxi123444 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.11.2023Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF2152D4F956DE8F535534A965BEBAE2CA01800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598462   (162441) от 19.12.2022
+
+Павел Вяч | Завуч (Книга 7). Честь и воля (2022) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей, молодой амбициозный завуч средней школы, хочет сделать блестящую карьеру и уверенно движется вверх по служебной лестнице. И это несмотря на то, что в душе он грезит о мире с магией. Однажды, попав на секретный полигон во время конференции со школьниками, он оказывается там, где всю жизнь мечтал очутиться. Но начинать карьеру тут придётся с нуля…
+Война продолжается, (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, LitRPGПродолжительность: 10:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8AE77F76235169E4A8450E368FAE1D35538559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598550   (162442) от 19.12.2022
+
+Уитни Гдмаун | Токсичный позитив (2022) [MP3, Нона Трояновская]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Честное руководство, которое поможет овладеть эмоциями — даже самыми сложными — для того, чтобы по-настоящему услышать себя и стать свободными. Стать самими собой. Каждый день на нас оказывают давление, призывая быть позитивными. Отовсюду транслируется мантра: «Мыслите позитивно. Не обращайте внимание на плохое». В результате мы привыкаем верить, что ключ к счастью (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 07:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE274EFBC06A846D85E306E664BA109FF2878374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517628   (162443) от 16.12.2021
 
 Dropzone 3 v3.8.2 [En]
@@ -6,7 +180,7 @@ Dropzone 3 v3.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162443.jpg" />
 </div>
 
 
@@ -31,7 +205,7 @@ Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162444.jpg" />
 </div>
 
 
@@ -58,7 +232,7 @@ ProFind 1.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162445.jpg" />
 </div>
 
 
@@ -82,7 +256,7 @@ BusyCal 3 v3.12.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162446.jpg" />
 </div>
 
 
@@ -107,7 +281,7 @@ John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162447.jpg" />
 </div>
 
 
@@ -134,7 +308,7 @@ magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162448.jpg" />
 </div>
 
 
@@ -161,7 +335,7 @@ magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162449.jpg" />
 </div>
 
 
@@ -185,7 +359,7 @@ Elmedia Player Pro 8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162450.jpg" />
 </div>
 
 
@@ -210,7 +384,7 @@ Far Cry New Dawn (2019) [Ru] (1.0.5/dlc) Repack Other s [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162451.jpg" />
 </div>
 
 
@@ -234,7 +408,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162452.jpg" />
 </div>
 
 
@@ -258,7 +432,7 @@ magnet:?xt=urn:btih:39088105C9587039A65E972509E118A81DD04828
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162453.jpg" />
 </div>
 
 
@@ -282,7 +456,7 @@ NetLimiter 5.1.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162455.jpg" />
 </div>
 
 
@@ -306,7 +480,7 @@ Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162456.jpg" />
 </div>
 
 
@@ -330,7 +504,7 @@ magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162457.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ magnet:?xt=urn:btih:E003CDFD8919A85152007BABD22EA591A965C3B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162458.jpg" />
 </div>
 
 
@@ -378,7 +552,7 @@ magnet:?xt=urn:btih:BE7A602C60E97AEB19759638BFBEB7AA8ECDB881
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162459.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ magnet:?xt=urn:btih:3A44B5042913B01ACDDA0E5A0BD440AF4BAC1470
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162460.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ magnet:?xt=urn:btih:A7CE2DD63ECA9D8FDA9A67163C18FB5C2C6F7BE7
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162461.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ magnet:?xt=urn:btih:1596978FA7F818F682D73A57CFD500D76E486B5B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162462.jpg" />
 </div>
 
 
@@ -461,181 +635,6 @@ magnet:?xt=urn:btih:1596978FA7F818F682D73A57CFD500D76E486B5B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1561EA5FA8F786C7839A8C809952057B91C649B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674090   (162463) от 04.11.2023
-
-Swift Publisher 5 v.5.6.9 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swift Publisher - это пакет графических утилит для macOS особенно пригодится тем, кто занимается полиграфией. Swift Publisher предназначен для создания макетов документов, печати листовок, газет, брошюр, буклетов и подобных документов. Swift Publisher работает с шаблонами страниц, благодаря чему пользователь может разместить на них объекты, используемые одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2003–2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AAA633B354E86CCAA680A9296F32245F4AF222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432289   (162464) от 18.12.2020
-
-Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.685.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124B78398EFE16538E0CC6E1B99CDF5D18868675
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517322   (162465) от 15.12.2021
-
-Microsoft Office 2021 for Mac LTSC v16.56 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Microsoft CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566BC34FEE7A577095A0E7CB616A4E7987D7133A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598571   (162466) от 19.12.2022
-
-Commander One PRO Pack 3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4F53A295801EECCD63735247121900E58AB146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229365   (162467) от 15.12.2021
-
-Нежный возраст (2000) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162467.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, рассказанная в фильме — это история взросления одного конкретного человека в условиях новой рыночно-мафиозной общественной жизни, история его любви к однокласснице, которая становится известной парижской топ — моделью, нежные и трогательные взаимоотношения с которой проходят через всю жизнь героя, от самого раннего детства до сегодняшних дней, спасают и (   Читать дальше...   )Производство: Россия, Studio TriteЖанр: ДрамаРежиссер: Сергей СоловьевАктеры: Дмитрий Соловьев, Елена Камаева, Иван Берзин, Валентин Гафт, Сергей Гармаш, Борис Гребенщиков, Ирина Григорьева, Кирилл Лавров, Андрей Панин, Людмила СавельеваПродолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39ED061ABDFCF98E0569157834C470D5E52F0FB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432436   (162468) от 18.12.2020
-
-Побочный эффект (2020) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в размеренную и счастливую жизнь архитектора и его жены вламываются грабители. Теперь единственная мечта Андрея - стереть ту кошмарную ночь из памяти Оли. Отчаянные поиски решения приводят его в жутковатую квартиру в Доме на набережной к таинственной Маре, которая обещает «особое» лекарство.Производство: Россия / OKKO Studios, Друг ДругаЖанр: Триллер, ужасыРежиссер: Алексей КазаковАктеры: Александра Ревенко, Марина Васильева, Семён Серзин, Анатолий Журавлёв, Мария Карпова, Мария Абрамова, Степан Девонин, Наталья Дедейко, Сергей Черданцев, Константин ГвоздковПеревод: Не требуется (Русский)Субтитры: АнглийскиеПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA5D2A9C3B4EBE9C63825CFC9525106B492AC95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673951   (162469) от 04.11.2023
-
-Bonny B & The Jukes - Peace (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born with the Blues (5:58)
-02. Hard Time (5:59)
-03. Macho Blues (4:51)
-04. Let's Talk (6:16)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EE7D745D1D256C871BF50C27AE5B9BCD098672
 ```
 
 

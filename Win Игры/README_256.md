@@ -6,7 +6,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173132.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173143.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173267.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173273.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.3.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173286.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173295.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173299.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173321.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173334.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Train Sim World 6 (2025) [Ru/Multi] (build 20097146/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173399.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173403.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173426.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173432.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173433.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173434.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173437.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173438.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173448.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173450.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173532.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173543.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173603.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173726.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173726.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173742.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174338.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174362.jpg" />
 </div>
 
 

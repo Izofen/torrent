@@ -6,7 +6,7 @@ Windows 11 Professional VL x64 24H2 by OVGorskiy 04.2025 [RU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20658.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:24FB542C1A2F5EE24E8B2869CF61096C49928FF9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E26241BFA612719F8933659D5472EB8CAC20CB6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20660.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CD8958F143AB6BA7642C0680BB5DC10C926A30FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20661.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:30E28AF707982984B320E10574EC67D71DB056CE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20662.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F22285A27315A45F2D37E2CA8CFDF9E83F655737
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20663.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20663.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20664.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B3F98798C17C6C32704E5A22CB7FE29843C86471
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20665.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20665.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20666.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arms Trade Tycoon: Tanks (2024) [En] (1.1.8.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20667.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:54A30027C0C057A2B10643DE2A70FE4F1B70B600
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20668.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20668.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9D7ECC4D0895F2216D6486633A3DEB7A6A465565
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20669.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20669.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:BCA0A120AE3949F99440E9709DA5BBA3073FABBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20670.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Air Xonix 3D / Воздушный ксоникс (L) [Ru] 2005
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20671.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ OTTA-Orchestra - Дискография (2014-2025) [MP3|320 Kbps] <Instrumental
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20672.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5DCDA70EF28BFC0E7CC5DFC2EB890486220D64D5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20673.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:5DCDA70EF28BFC0E7CC5DFC2EB890486220D64D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20674.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:047D3F7BF66B173811366482A29F5486B5598D06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20675.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:E7F1F54D628A4A5E5C24308F6BBA3B67C3076681
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20676.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20676.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:ABDA05C93583723DE561443FC219E7663D3C3269
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20677.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20678.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tablacus Explorer 25.4.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20679.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Text Editor Pro 32.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20680.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ QOwnNotes 25.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20681.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:94E2C13935E718B0B46C97287566ADC01E797EFB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20682.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20682.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:96CBC09A04ED24B17DDBFF0464FDCC884B075C7F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20683.jpg" />
 </div>
 
 

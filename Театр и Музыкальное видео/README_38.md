@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156471.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:911A2048810D8A79F79F9F87C8E1F519BF01509A
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156501.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156501.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:911A2048810D8A79F79F9F87C8E1F519BF01509A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156504.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156516.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156516.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156609.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156800.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156800.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156808.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156956.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6C250F4D1940E695CA5FB74958399BCD01C3A666
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157054.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157097.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157124.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:855092B9586BE6EA2ED96F65129B55B13C6449E2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157215.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157346.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157421.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:DDD54082282071DCFC28D96E3D2D5A35AB10F860
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157545.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:47CF88BE1FECBE7042DA4A3948B7450CB8FA9B65
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158423.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158442.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:229FA4B5FE9AD02B2C23DEB7C8E2EEE68DB30D39
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158448.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158654.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158900.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158901.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158926.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159292.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159684.jpg" />
 </div>
 
 

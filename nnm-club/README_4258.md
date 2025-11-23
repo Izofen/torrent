@@ -1,3 +1,84 @@
+###  Публикация: 1682713   (130891) от 08.12.2023
+
+Урок / The Lesson (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиам, честолюбивый и амбициозный молодой писатель, с готовностью соглашается на должность репетитора в семейном поместье своего кумира, известного писателя Дж. М. Синклера. Но вскоре Лиам понимает, что попал в паутину семейных тайн, обид и мести.Производство: Великобритания / Bleecker Street Media, Constellation ProductionsЖанр: триллерРежиссер: Элис ТротонАктеры: Ричард Э. Грант, Жюли Дельпи, Дэрил МакКормак, Стивен Макмиллан, Криспин Леттс, Томас Спенсер, Joseph MeurerПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CF33B70818D74208A35CC909CDDA41A8676681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596807   (130892) от 31.12.2012
+
+VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кавказ>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130892.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Анжелика Начесова - Черкесский знак (3:07)
+2. Эльдар Далгатов - Милая (4:45)
+3. Хасбулат Рахманов - Раненая птица (4:12)
+4. Айдамир Эльдаров - Корочка льда (3:27)
+5. Руслана - Схожу с ума (3:32)
+6. IDAR - Вернись (3:00)
+7. Группа «СК STYLE» - Чики-чики (4:15)
+8. Айдамир Эльдаров - Не зови (3:04)
+9. Mamikon - Narine (4:36)
+10. Альберт Тлячев - Я и ты (3:29)Жанр: Pop, Dance, кавказПродолжительность: 06:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7B9FAD7A4CC92648165A16F34F5609115B695F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682732   (130893) от 08.12.2023
+
+Advanced SystemCare Pro 17.1.0.157 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785F116DFA44449025E77858FF7723D3C6290517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682748   (130894) от 08.12.2023
 
 10 дней плохого человека / Kotu Adamin 10 Gunu / 10 Days of a Bad Man (2023) WEB-DLRip [H.264/1080p] [DVO]
@@ -6,7 +87,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130894.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Mozart - Symphonies 39, 40 & 41, A Little Night Music, Divertismento 17, Serenad
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130895.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130898.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130901.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ magnet:?xt=urn:btih:5BC8CAC52F0A0AE0283D483036F73027D8EC2245
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130902.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ magnet:?xt=urn:btih:25ED1724B37040F467573458B039EC75424A5DA7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130903.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130904.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ New year wallpapers 2013 (31.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130905.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ magnet:?xt=urn:btih:F99E6B9F0AE2D446A165E7382BA1AE31FDFAD879
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130906.jpg" />
 </div>
 
 
@@ -232,7 +313,7 @@ magnet:?xt=urn:btih:F8BFB7C7C396B30FD93E2857D73AAAD3B36BC8B4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130907.jpg" />
 </div>
 
 
@@ -256,7 +337,7 @@ magnet:?xt=urn:btih:F8BFB7C7C396B30FD93E2857D73AAAD3B36BC8B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130908.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130909.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ magnet:?xt=urn:btih:26E68AAB2270DD6C1856F3996357C97B43F6C6DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130910.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ magnet:?xt=urn:btih:B7AE1301A39976BC76B533D01624BED38705F539
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130911.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:872400B6EE254BA2A04C84B4C0A49402DEB3D9FE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130912.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:E3B94B9F119533B0C4B74869A74C3095EC77C2A4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130913.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Hard Disk Sentinel PRO 6.10.7 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130915.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ magnet:?xt=urn:btih:E2D04F82693E95D3C5E695D40F07285C9D3D30FC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130916.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Humble Pie - 23 Albums, 2 Box Set (1969 - 2022) 43 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130917.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ magnet:?xt=urn:btih:243D765C0F07AC4F7E0C58F2CA78CF284B7181E9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130918.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130919.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130920.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130921.jpg" />
 </div>
 
 
@@ -568,82 +649,6 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5F8C91326D48AEA36D72C143167EE01121EC05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596401   (130922) от 31.12.2012
-
-Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 кб/с]<R&B\Boogie\Jazz\Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулиан Miles "Jools" Holland, кавалер Ордена Британской империи ,(родился 24 января 1958), английский пианист, руководитель оркестра, певец, композитор и телеведущий.  Он был одним из основателей группы Squeeze и его работа привлекла его со многими художниками, в том числе Стинг , Эрик Клэптон , Марк Нопфлер(   Читать дальше...   )Список альбомов:
-
-2010-Rockinghorse
-2011-Jools Holland & Friends
-2012-The Golden Age Of SongЖанр: R&B \ Boogie \  Jazz \ BluesПродолжительность: 03:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682496   (130923) от 08.12.2023
-
-Арабские учёные придумали солнечную башню, которая будет давать электричество днём и ночью
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа учёных из Иорданского технического университета им. Аль-Хусейна и Университета Катара смоделировала «солнечную» башню высотой около 200 м, которая смогла бы вырабатывать электроэнергию не только днём, но также и ночью. Вертикально ориентированные турбины в башне будут приводить в движение восходящий и нисходящий потоки воздуха, работая, таким образом, круглосуточно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682651   (130925) от 08.12.2023
-
-Лукавый / Lord of Misrule (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Натуральное хозяйство, дом, окруженный вековыми деревьями - подлинная мечта уставшей от столицы семьи. Здесь, в уютном городке, где все друг друга знают, они готовятся встретить овеянный легендами языческий праздник. В самый разгар торжества исчезает дочка - но кажется, никто не спешит ее искать. Где-то глубоко в чаще леса оживает (   Читать дальше...   )Производство: США / BCP Asset Management, Bigscope Films, REP Productions 12Жанр: ужасыРежиссер: Уильям Брент БеллАктеры: Таппенс Мидлтон, Ральф Айнесон, Мэтт Стокоу, Алекса Гудолл, Розалинд Марч, Джейн Вуд, Энтон Саундерс, Роберт Гудман, Люк Айнесон, Дэвид ЛэнгхэмПеревод: Дублированный (Pride Production)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259BB1831838058EC37DAB1DB5D49C8B1E300175
 ```
 
 

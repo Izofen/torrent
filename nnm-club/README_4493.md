@@ -1,3 +1,129 @@
+###  Публикация: 1348953   (139009) от 30.12.2019
+
+Журнал | Хакер №11 (248) (ноябрь 2019) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139009.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хакер" — журнал, рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но этим всё не ограничивается. Часто в журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F23BD20E0E7780DF4997D923DCDC50A2FD99B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520969   (139010) от 30.12.2021
+
+Caravelli - Compilation (2021) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Windmills of Your Mind
+02. Holydays
+03. Comme D'habitude
+04. Mamy Blue(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 03:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC589D640B223ED0557B51EDA0E41896EA050D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273158   (139011) от 30.12.2018
+
+Владимир Кузьмин - Вечные Истории. Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карма
+02. Перекрёсток
+03. Зависим
+04. Ведьма(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679154   (139012) от 24.11.2023
+
+Муравьиная ферма / The Ant Farm (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруги Деб и Ричард приезжают в небольшой домик у озера. Ни зимние пейзажи, ни тепло от камина не могут заставить пару перестать думать о событиях давно минувших дней — много лет назад трагически погибла их дочь, и сегодня — годовщина ее смерти. Все меняется, когда супруги находят во льдах неподалеку от дома незнакомку. Девушка жива, и она ужасно похожа на погибшую (   Читать дальше...   )Производство: США / Shannon Productions, LRAM Film Productions, West DigitalЖанр: ТриллерРежиссер: Роберт ШеннонАктеры: Теа Анцис, Мартина Финч, Роберт Шеннон, Пол Келлехер, Фрэнк Сикрет, Саша СаймонПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6606A439B190FE0C2C0E894FBFEAD31305AE35E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087695   (139013) от 31.12.2016
+
+Ирина Мельникова | Александра - наказание Господне (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Появление Александры, дочери известного путешественника графа Волоцкого, в светском обществе Петербурга равносильно извержению вулкана. Ей нет равных не только по красоте и уму, но и в умении отваживать нежелательных женихов и осаживать чванливых светских франтов. И только молодой князь Адашев не обратил на юную красавицу никакого внимания. Неугомонная Александра (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 10:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1353191E295EE6372DFEB8D3FDBCD9F3B2C023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970689   (139014) от 31.12.2015
 
 Макс Вебер | История хозяйства. Город (2001) [DJVU]
@@ -6,7 +132,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139014.jpg" />
 </div>
 
 
@@ -32,7 +158,7 @@ magnet:?xt=urn:btih:1296B49F1139B79EB45F82AD154041B8BDC9AB62
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139015.jpg" />
 </div>
 
 
@@ -56,7 +182,7 @@ VA - Solum 3 - Creation (2017) SOLANIC [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139017.jpg" />
 </div>
 
 
@@ -83,7 +209,7 @@ magnet:?xt=urn:btih:AD042DE03B9AEA1520AE94388AD83EA8B4D76850
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139018.jpg" />
 </div>
 
 
@@ -107,7 +233,7 @@ magnet:?xt=urn:btih:3F917B1ECDE401D70ED7053FAE7EE54F35C61D4F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139021.jpg" />
 </div>
 
 
@@ -132,7 +258,7 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139022.jpg" />
 </div>
 
 
@@ -159,7 +285,7 @@ magnet:?xt=urn:btih:2F876101E7A9D5904997A314693711C5FD817EE0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139023.jpg" />
 </div>
 
 
@@ -186,7 +312,7 @@ magnet:?xt=urn:btih:08747FC5BC9C9261E9CB7DEC8BED8FB97BABC220
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139024.jpg" />
 </div>
 
 
@@ -210,7 +336,7 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139026.jpg" />
 </div>
 
 
@@ -237,7 +363,7 @@ magnet:?xt=urn:btih:1612E058448692A254603762BD9A2544975C5BD5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139027.jpg" />
 </div>
 
 
@@ -261,7 +387,7 @@ magnet:?xt=urn:btih:8CC14A7DEF0429BED893E328A254E5176DA7809A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139028.jpg" />
 </div>
 
 
@@ -285,7 +411,7 @@ magnet:?xt=urn:btih:5F5D6E0A4CDAA025707BB509C3CA5BDF75094FAC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139031.jpg" />
 </div>
 
 
@@ -309,7 +435,7 @@ VA - The Electronic Spirit (2021) [MP3|320 Kbps] <Synthwave, Synthspace, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139032.jpg" />
 </div>
 
 
@@ -336,7 +462,7 @@ VA - Now Xmas (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139033.jpg" />
 </div>
 
 
@@ -363,7 +489,7 @@ magnet:?xt=urn:btih:EA74D660F2C393DF10DE6EC5435C3D76BF8D1659
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139034.jpg" />
 </div>
 
 
@@ -387,7 +513,7 @@ K-Lite Codec Pack 15.3.2 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139035.jpg" />
 </div>
 
 
@@ -411,7 +537,7 @@ magnet:?xt=urn:btih:90D1F1A5D411A5648C9F552DDC672D4E11F0AEE7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139036.jpg" />
 </div>
 
 
@@ -435,7 +561,7 @@ Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139037.jpg" />
 </div>
 
 
@@ -462,7 +588,7 @@ magnet:?xt=urn:btih:49736A12E370D38357C9FBEB23C4B1585055FF31
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139038.jpg" />
 </div>
 
 
@@ -487,7 +613,7 @@ magnet:?xt=urn:btih:AF81FDF5E3325A0E8881E8C3E959C3A5D4010ACC
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139041.jpg" />
 </div>
 
 
@@ -511,7 +637,7 @@ magnet:?xt=urn:btih:C169FF1CBDF245A869C425141E459FF472E7B04A
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139042.jpg" />
 </div>
 
 
@@ -522,128 +648,6 @@ magnet:?xt=urn:btih:C169FF1CBDF245A869C425141E459FF472E7B04A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D67D144A8B55CF52BC7DC12B3D279A1B048B23AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970686   (139043) от 31.12.2015
-
-Макс Вебер | Избранное. Образ общества (1990) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник работ одного из ведущих западных социологов М. Вебера (1864-1920). В издание вошли следующие работы: «Социология религии», «Введение» к «Хозяйственной этике мировых религий», «Город», «Социальные причины падения античной культуры». «Рациональные и социологические «снования музыки».Жанр: Философия, Обществознание, социологияПеревод: М. И. Левина, А. В. Михайлов, С. В. КарпушинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF76490B75FB651C567DDC6124965EDB8C18E5CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679275   (139044) от 24.11.2023
-
-CCleaner 6.18.10838 Technician Edition (x64) + CCEnhancer Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308BAE90D88D8DEABB52E5393D883ECB640840E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087413   (139046) от 31.12.2016
-
-Хорхе Луис Борхес | Тлён, Укбар, Орбис Терциус (2010) [сборник] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ выдающегося писателя Х.Л. Борхеса, повествующий о "лингвистической" стране Тлёне и всем, что с ней связано.Жанр: ФантастикаПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B71CC549D5669E7799816B1F61F2807E1D3E32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195943   (139047) от 31.12.2017
-
-Журнал | Story [Россия] №1-2 (109) (январь-февраль 2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139047.jpg" />
-</div>
-
-
-###  Подробнее
-
-"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
-Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2A0B68C5716FB57E5BBD780A1942741DA1EBBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272818   (139049) от 30.12.2018
-
-Михаил Француз | На пороге мира (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчины, женщины, дети, животные, растения – все здесь таило опасность и несло смерть.
-Во все времена государства тратили огромные финансовые и человеческие ресурсы на создание хладнокровных и безжалостных суперсолдат, однако в основном это были неудачные попытки… Что же будет, если однажды все же получится создать хотя бы одного супербойца? На пороге какого мира (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 12:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7FE7353143CCF523BF1D7BFFD308B24FA74468
 ```
 
 

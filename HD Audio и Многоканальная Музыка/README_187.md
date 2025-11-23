@@ -6,7 +6,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134299.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134611.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ White Heat UK - White Heat Perfect Storm (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134642.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134644.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134881.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134912.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134925.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134943.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134951.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134965.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134970.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134987.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134999.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blinker The Star - Animal Math (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Shoeg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135271.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135301.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135309.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135329.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136750.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137173.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137592.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137613.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137695.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137699.jpg" />
 </div>
 
 

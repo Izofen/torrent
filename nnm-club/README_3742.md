@@ -1,3 +1,77 @@
+###  Публикация: 195333   (116974) от 18.02.2024
+
+Остаться в Живых / LOST (2004-2009) BDRip [H.264] (6 сезонов + эпилог)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров, оставшихся в живых, оказываются на пустынном острове посреди океана. Люди в панике.
+
+Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностей…Эпилог сериала «Остаться в живых».Жанр: Приключения, Драма, ТриллерАктеры: Хорхе Гарсиа, Майкл Эмерсон, Малкольм Дэвид Келли, Рей Портер, Тед Руни, Франсуа Чау и др.Язык субтитров: 1. Русские 2. Английские 3. Английские (SDH)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0C0C9D5E056CCF4C9E3E7C647C213DCD65B5EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147348   (116975) от 18.02.2024
+
+Hearts of Iron / День Победы (2002-2009) [Ru] (1.06c/1.3b/1.3a/1.2/1.1b) Repack R.G. ReCoding [Коллекционное издание]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hearts of Iron III позволит вам сыграть в стратегию в условиях одного из самых внушительных конфликтов в мировой истории, Второй Мировой Войны. За любое государство, на любом фронте, в любом из множества сценариев. Приведите свой народ к победе в периоде между 1936 и 1948 годами. Ведите войны, используйте дипломатию, создайте свою промышленность - все это есть в (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: СтратегииЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177284   (116976) от 18.02.2024
+
+Не бойся, я с тобой! (1981) DVDRip
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циркач, скачущий на коне и стреляющий по надувным шарикам в руках своего друга и напарника, получает известие, что его бабушка тяжело больна. Несмотря на то, что его ждёт кровная месть, он собирается ехать. Напарник, волнуясь за товарища, отправляется с ним.Производство: СССР,  ГК "ВайТ Медиа"Жанр: мюзикл, боевик, мелодрама, комедия, приключенияРежиссер: Юлий ГусманАктеры: Кристина Гюлалиева, Эльдар Гасымов, Лев Дуров, Мухтарбек Кантемиров, Полад Бюль-Бюль оглы, Михаил Ефремов, Анатолий Равикович, Владимир Долинский, Игорь Золотовицкий, Галина Коньшина, Дмитрий Быков, Гамида Омарова, Заур Шафиев, Бахрам Багирзаде, Эдгард Запашный, Гаджимурад Ягизаров, Ильгар Мусаев, Тимур Бадалбейли, Лейла Бюль-Бюль оглы, Аббас Кязимов, Яна Никитина, (   Читать дальше...   )Субтитры: ОтсутствуютПродолжительность: 02:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC9E84D19A1D7292663D51D7BDFAEF540D4BBD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700252   (116977) от 18.02.2024
 
 Владельцы старых компьютеров спасены, покупать новый ПК ради Windows 11 не придется. Всех выручит Google.
@@ -6,7 +80,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116977.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Google стал активно продвигать свою настольну�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116978.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2071.0 (10.02.2024) RePack 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116979.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:EE7963B423E5943E3421F64BF29F058374A319BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116980.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:AE2C66280F3042F24BB04D8A917C4F6391218B3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116981.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:7FE80445A3FD8279DC406D1EB4838CA24FB2CBA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116982.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116983.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116984.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:4E929FE349DB8285B659741FCC1A4DCC4554E975
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116985.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ magnet:?xt=urn:btih:6D4BAB577EE159BC08011053640B077F4271E174
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116986.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:224692D051DF1962F731DDA23E3155C67972A089
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116987.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116988.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116989.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ magnet:?xt=urn:btih:29AF84021325FEBADE22F70D328B1C6067ADECB3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116990.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116991.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116992.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ Atrophy - Violent by Nature (1990) Reissue, 2007, Metal Mind Productions [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116993.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116994.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ Atrophy - Socialized Hate (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116995.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ Atrophy - Chemical Dependency (1987) Demo, Reissue, 2019, VIC Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116996.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116997.jpg" />
 </div>
 
 
@@ -532,7 +606,7 @@ Smooze Pro 2.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116998.jpg" />
 </div>
 
 
@@ -556,7 +630,7 @@ Galahad - The Last Great Adventurer (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116999.jpg" />
 </div>
 
 
@@ -570,87 +644,6 @@ Galahad - The Last Great Adventurer (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:930BFDB23D052B3036EAD26F57D32D3B6202F83B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700652   (117000) от 17.02.2024
-
-Throne Of Thorns - Converging Parallel Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rise
-2. Storm Maker
-3. Atomic Retribution
-4. Black Diamond(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78BA2E42E0CA5322DD05377723044D7ADF42DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700546   (117001) от 17.02.2024
-
-Гнилой Район - Сюжет одной жизни (Памяти Юрия Клинских Хоя Посвящается) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 СЮЖЕТ ОДНОЙ ЖИЗНИ - Памяти Юрия Хоя Посвящается 3:16
-2 ТЕЛЕМАГАЗИН FIREFAX 5:37
-3 ГОРИТ ПЕРДАК 6:22
-4 ТАЛИСМАН 4:28Жанр: Punk, New WaveПродолжительность: 00:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E077E37FBFE8FF0D411E4554D852939477F614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700603   (117002) от 17.02.2024
-
-i-Ten - Taking a Cold Look (1983) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking a Cold Look (03:55)
-02. Quicksand (03:58)
-03. Alone (03:58)
-04. Workin' for a Lovin' (03:19)(   Читать дальше...   )Жанр: AORПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633F7EA9F6C15C25EEC468DBCCD0B04E0291D7B5
 ```
 
 

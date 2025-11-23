@@ -6,7 +6,7 @@ Files Inspector Pro 4.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39405.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FontExpert 2025 20.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39406.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Macrorit Partition Expert 8.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39407.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:119F91D574BFC7CE957F0980FBC29D9E3BEFFE03
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39408.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:297E0C2FFDC075E67ED9BACC151F346454483BA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39409.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:05C200EA17DEDB723C34D2FAF18AD3DEE2EF6A9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39410.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39411.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:1DF766550E665FB983516468C44D56293418AA93
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39412.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39413.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4F89AF63D30F5B5806D989FD9B85AAC496805A7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39414.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5374EB5815F5D0D1B644ED9BAA9A070804EAB1D6
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39415.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39416.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4D887B9463EC1F99B4FF1FA41A7A97EC39C2A72A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39417.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Nerv Rescue Disk UEFix64\Legacy v1.0 [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39418.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39419.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NVIDIA GeForce Desktop Game Ready 566.03 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39420.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:2AFB3B4412A42FDE93139255ECE743C6635E2FB8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39421.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Google Chrome 130.0.6723.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39422.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ StartAllBack 3.8.12 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39423.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:29A5CC83EE9AB17444943045CFB5C918EC8A68A3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39424.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:200547B5723A582839B92F9C088CE3155DFFC89F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39425.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DEEC1213F685C9B3E4A77D6F05100741F425324D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39426.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:67858B70817066216A4B9CC7CA7BFB909D80F414
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39427.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:454C5E4F42DB6D8051CA10715614FCBCA142FAF0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39428.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:8054CA96A017F96C99DE04EEF9B27C699CF2E2E1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39429.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39430.jpg" />
 </div>
 
 

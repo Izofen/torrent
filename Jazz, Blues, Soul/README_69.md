@@ -6,7 +6,7 @@ Eden Brent - Getaway Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106245.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gary Harvey - Outta My Head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106246.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johnny Pallari - Second Coming (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106247.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106248.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Powersection - Losing My Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106249.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mr Tchang Bluz Explosion - Time To Move (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106251.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Federico Verteramo - In My Own Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106252.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mean Old Fireman - Rescue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106253.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Neil Sadler - Past to Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106254.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Feddy on Guitar - Give Me One More Chance (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106259.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106265.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ron Beer - Best Beer Ever (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106268.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lara Price - Half & Half (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106269.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ BuddyRo and the 'Lanes - I'm Through with Trouble (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106270.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Bad Day - The Irish Goodbye (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106271.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106274.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sage Perez - Sage & The Imaginaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106275.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106279.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Babbba - Extended Cabaret (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106286.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106289.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106290.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106294.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106296.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Fault Lines - 60 Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106297.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Richard "Groove" Holmes - Groove (1961) 1990, Pacific Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106356.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bud Powell - The Complete RCA Trio Sessions (1956, 1957) 2009, EJC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106359.jpg" />
 </div>
 
 

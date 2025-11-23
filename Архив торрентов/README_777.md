@@ -1,3 +1,76 @@
+###  Публикация: 1599423   (159803) от 23.12.2022
+
+VueScan Pro 9.7.96 (22.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159803.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E0D3063E5CA53EA787BC008C5A09FF49A632B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599313   (159805) от 23.12.2022
+
+RSS Guard 4.2.7 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159805.jpg" />
+</div>
+
+
+###  Подробнее
+
+RSS Guard — простое C++ / QT графическое приложение для чтения новостных лент (RSS-каналов).
+RSS Guard предоставляет строгий и лаконичный пользовательский интерфейс (есть возможность изменения темы оформления), поддерживаются все наиболее распространённые форматы лент новостей (RSS, Atom, PDF и др) и предоставляет функциональные возможности присущие большинству RSS-агрегаторов, (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAB4F906D9AEB15BC46A3C8F7105BC0FA2386D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599425   (159809) от 23.12.2022
+
+AIMP 5.10 Build 2418 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159809.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E81C6A891D21E7518EF43EA8264E33CBA1C9B90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675709   (159812) от 10.11.2023
 
 PotPlayer 231110 (1.7.22037) [Multi/Ru]
@@ -6,7 +79,7 @@ PotPlayer 231110 (1.7.22037) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159812.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159814.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ PotPlayer 231109 (1.7.22036) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159817.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Easy Data Transform 1.38.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159822.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ ExamDiff Pro 14.0.1.15 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159823.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Audacity 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159828.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Telegram Desktop 4.11.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159832.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Duplicate File Finder Pro 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159833.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Valentina Studio Pro 12.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159835.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (0811) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159838.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Things 3 v.3.19.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159840.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ CyberLink AudioDirector Ultra 14.0.3503.11 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159848.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ WinCatalog 2024.3.4.1023 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159854.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ AI Transcription 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159860.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Skype 8.108.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159866.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:96961D9C3FD6D98913978984832725A53CB8B13D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159868.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ HWiNFO 7.65 Build 5266 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159879.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Aiseesoft FoneEraser 1.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159883.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Native Instruments Kontakt 7.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159884.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ DRmare Tidal Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159885.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ Aiseesoft DVD Creator 5.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159889.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ AudKit Tidal Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159895.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ AudFree Tidable Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159905.jpg" />
 </div>
 
 
@@ -549,79 +622,6 @@ AudFree Tidable Music Converter для Mac позволяет загружать
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D68F8BC57D4BFC7FF791A087AFAFB282C2DF245D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675861   (159906) от 10.11.2023
-
-TG Pro (Temperature Gauge Pro) 2.86 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159906.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A3BBFA3ADA29366A2CC86B130C93FFC9D58358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675849   (159909) от 10.11.2023
-
-Fork 2.36 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A5196EC4E2CA5B8CBAE40997EF3F17D7C460D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675636   (159919) от 10.11.2023
-
-Aiseesoft Mac Video Converter Ultimate for Mac 10.5.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74B8EB0AF2DD0679F8B3F4815068CE8F1688F5F
 ```
 
 

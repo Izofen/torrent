@@ -1,3 +1,75 @@
+###  Публикация: 1676946   (154506) от 15.11.2023
+
+Opera One 105.0.4970.13 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D642944562DDC2EC7F664ED94047FA63CEB0CD78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518236   (154512) от 19.12.2021
+
+Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5407.1000 (2021.12) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE0C2CBCC0310A76A04E92EAB117C53B44AD25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676897   (154515) от 15.11.2023
+
+Smart Driver Manager Pro 7.1.1100 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Driver Manager - это быстрый, простой и безопасный способ для автоматического управления и обновления драйверов. Программа сканирует ваш компьютер и все аппаратные устройства, которые связаны и предоставить список всех драйверов нуждаются в обновлении. С просто одним щелчком мыши, Smart Driver Manager будет безопасная установка каждого обновления на вашем ПК. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2734F9BC913499CE05603A6CD9743EC345706BC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676933   (154521) от 15.11.2023
 
 Kdenlive 23.08.3 Portable by 7997 [Multi/Ru]
@@ -6,7 +78,7 @@ Kdenlive 23.08.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154521.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ VA - Steyoyoke Gems Nocturnal 05 (2016) [MP3|320 Kbps] <Techno, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154528.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ SpamSieve 2.9.35 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154530.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ Wise Disk Cleaner 11.0.6.820 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154536.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:2566AA88BA53D88806E487F81A8F6597842EA74D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154544.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ OCCT 7.2.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154586.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Topaz Video AI 4.0.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154601.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1114) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154606.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154608.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:635417F3D50CB1E8D38CBFC75452C8D63CF080A8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154610.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:EEB55E4EC7050B72FFE23751643C134F8C153904
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154613.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ BitTorrent Classic 7.11 Build  46591 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154620.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:3763525EA91EB0F26839BAC7952A636AE30F0A94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154629.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ L'Orange - Koala (2016) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154636.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Deji Meets Girl | Девушка встречает "Деджи" [2021, TV, 12 �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154641.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ iThoughtsX 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154689.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154690.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:C58865F9E749DF39511FCA0A7D2D0C5368DE92E1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154691.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ LaunchBar 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154699.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:1704ACADAE6E08E86B495026853D59149D638C34
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154702.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ AOMEI Partition Assistant Technician Edition 8.6 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154704.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ NCH VideoPad Pro 9.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154713.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154716.jpg" />
 </div>
 
 
@@ -557,84 +629,6 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by TryRooM [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A9F0E96C0AB97202D2BCF7AEA0BC9EFE051261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085946   (154718) от 23.12.2016
-
-OS Looper - 2022 (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop, Bass Music, IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat (1:24)
-02. Flyght (2:09)
-03. A Dancefloor In 2022 (2:12)
-04. Shugyōsha feat. Sicaa (2:45)(   Читать дальше...   )Производство: Unc AudioЖанр: Abstract Hip-Hop, Bass Music, IDMПродолжительность: 00:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E221DC12E6ED705720DFEB2452CB40114287539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517886   (154720) от 19.12.2021
-
-Windows 7 (6.1.7601.25796) x64 (4in1) by Brux [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе Windows 7 SP1 - Оригинальные образ от Microsoft.
-Интегрированы обновления от 15.12.21
-В качестве установки обновлений применён: Набор обновлений UpdatePack7R2 версия 21.12.15 от simplix. Образ содержит в себе 4 редакций ОС. Все изменения в сборке производились исключительно при помощи DISM.
-В сборке нет никаких изменений ничего (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83D8EA10B6192F284FA61D34D8CDABC1DB9BDB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600652   (154722) от 28.12.2022
-
-Sublime Text 3.2.2 Build 3211 RePack by DeLtA [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python. Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD2C90381E9987BAC650B7DC68AA273275CDACF
 ```
 
 

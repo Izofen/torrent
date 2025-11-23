@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DC5AE3A6AEC3353A29F0235C9A31A5779185D351
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows and Office Genuine ISO Verifier 11.12.45.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125971.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TweakPower 2.048 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125974.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sense V2 Flip Clock & Weather 6.49.0-BETA Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125975.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Optimizer 16.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125981.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Maria Zeee | Maria Zeee Podcast (2021-2024) [OPUS] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125982.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ LibreWolf 121.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125984.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ LosslessCut 3.59.1 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125988.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ HDCleaner 2.062 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125992.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ WSCC (Windows System Control Center) 7.0.7.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125994.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Realtek Ethernet Driver 1125.016 | 10.69 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126006.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ AOMEI Partition Assistant Technician Edition 10.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126008.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:779C708D8E09635EA00E8A7863C0D9C1DBEF649C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126011.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Defender Remover Portable 12.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126019.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Psiphon 3 build 181 (24.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126020.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Topaz Photo AI 2.2.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126022.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7A48AB65DD70448D879B661CD615257CAA77D540
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126133.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Bandicam 7.0.2.2138 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126134.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Сто девуш
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126136.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ uTorrent Pro 3.6.0 Build 46984 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126172.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Privacy Eraser Free 6.2.0 Build 4812 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126237.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Telegram Desktop 4.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126275.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Floorp Browser 11.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126278.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ungoogled Chromium 120.0.6099.129-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126279.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Pale Moon 32.5.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126291.jpg" />
 </div>
 
 

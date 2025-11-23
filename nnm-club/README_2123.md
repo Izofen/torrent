@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55563.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe After Effects 2024 24.4.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55564.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7A4B46B122729AAEAFBB4B2417189D511DE3B569
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55565.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A8B9190A926EAEABC5BA45BFC1DC97FE6943238
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55566.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:31769CC2B93D6237484ADFDF693587AC3AD0E812
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55567.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6519E88FC07DBD4B70B64CCA6B810F56D2551A7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55568.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 33 Public Beta 3 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55569.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3555EE8254F65B83654AE1DA1CEFC908194F8A22
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55570.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Adobe Audition 2024 24.4.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55571.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55572.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:00F2C63629CC36746398EBDC6930FD5A7A38AA66
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55573.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55574.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CCleaner 6.24.11060 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55575.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7B2582320C18E348C4F1F7B52D460BC37D0DB855
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55576.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reboot Restore Rx Professional 12.7 Build 2709799653 RePack by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55577.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6DADF1CFE37C98B2C038E08B7639A33280CD63EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55578.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:052235173C661BDB056FD2445F19C175AE16DFC0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55579.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:F54035DDB7971F252440BD8DC799AA89A1C18BE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55580.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D7BA6B40D2D1B52FBC165AFB8501754C7A3F7A07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55581.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2CD9A457EDF00F8505010530B361FDB8B9EE7F47
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55582.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0C90291D345BC51B13642E8D44F2C0486698DF56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55583.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B1DE58FE0EE4C006DA616E194D913848C99A3A14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55584.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B1DE58FE0EE4C006DA616E194D913848C99A3A14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55585.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:67C709461A818C6335F71340D69AB16C37F5D316
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55586.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Futuremark 3DMark 2.29.8256 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55587.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:D231C436ED859DB60E4E2970CA11FB351FAB63B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55588.jpg" />
 </div>
 
 

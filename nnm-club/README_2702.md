@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71000.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EF35C94E2C0727FCC65791660CA28C7244DD66F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71001.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:26D6CE9A0CAEEA59AD8A8B639ED1AEEB0CBFD634
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71002.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Days of Jupiter - The World Was Never Enough (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71003.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71004.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71005.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sharks - Live In Providence / The Car Crash Tapes (2025) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71006.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71007.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Thy Row - Unchained (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71008.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71009.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71010.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Shannon Ames - Bohemian Dreams (2004) [FLAC|Lossless|image + .cue] <Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71011.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71012.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71013.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71014.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:79916072401C835A089B3D723B231C024C0E94BC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71015.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:A8125CCC0580E2ECA72B03BB112CDD457CDD45C7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71016.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:2A6C361CC25101721A3366EB5D727BA6F3FC9E3A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71017.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B33D3CBF6C206212107524836635AC9CE4369660
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71018.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ YT Downloader 9.11.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71019.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:784631641C82BDA353E74EC3522BD8E41FA308A7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71020.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Firefox Browser ESR 128.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71021.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:6011376A592632EA1B92D94F46BB18FCF19377E2
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71022.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71023.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Kontor Top of the Clubs (2025) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71024.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:B88EC39F652CE95459416D1D907D2E371A9B39CA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71025.jpg" />
 </div>
 
 

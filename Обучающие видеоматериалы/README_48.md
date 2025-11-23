@@ -6,7 +6,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132850.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132927.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E7215F624301D8FE722A6AAAC62B8731532D90AA
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132963.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bazanova Art, Ольга Базанова | Практика художника.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132971.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133016.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133225.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133240.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Enterclass, Илья Ибряев | Состояние неба. Пейзажи 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133343.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:B2B0A00ABE0430660402A4E4D1D183522E6AAFE6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133357.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:1C90C68AE93AC6E9EF85DBE56D96C95D9BCF4CCF
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133373.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133389.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133567.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133623.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133643.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:1219EA03EA5AA70864DB016F101E61493D887198
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133664.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:1135B1C2102213E0B3315629D5B95CF9C8C68F49
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133706.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:9979EDD740BC7D31B72EB6952E90A340E5CE75CE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133767.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:5079EF1D40651CB082172DA4DB3C9016713FC190
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133785.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134081.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134093.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:C16002AFA9B44D19F005B6B202C6BD95270D65A0
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134173.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:FC7F58672C26DA4204A6BBFBA6937D9C2E23E04C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134182.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134306.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:1E8A4BA25C30BFF75E915CA8458CFB932E89BD31
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134451.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134453.jpg" />
 </div>
 
 

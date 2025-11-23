@@ -1,3 +1,51 @@
+###  Публикация: 970414   (141506) от 30.12.2015
+
+Polarity 7.2.2 Build 647 [En] (Online-Installer)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polarity – современный интернет браузер с поддержкой всех, необходимых для надежной и безопасной работы, функций. Polarity, относится к числу многочисленных поисковиков. Отличие Polarity от большинства подобных программ заключается, прежде всего, в высокой безопасности и надежности, неплохо выглядит интерфейс бесплатного обозревателя, но и конечно стоит отметить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF2AA1774E293E145B5328D77EA1CE96582EBB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678860   (141508) от 23.11.2023
+
+NetLimiter 5.3.6.0 (x64) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141508.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F17EB8007CB01792C7109980E061F51788FE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272519   (141512) от 29.12.2018
 
 Станислав Славич | Три ялтинских зимы (1979) [ODT]
@@ -6,7 +54,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141512.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ CoolUtils Total Image Converter 8.2.0.229 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141521.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ DIGI Clock Widget Plus 3.0.1 Mod by Katafrakt [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141527.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Donemax Disk Clone 2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141528.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:6F23195F640A74462D070DFD22AE0B95D027FD5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141531.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ magnet:?xt=urn:btih:A2D768CEC75599CF9CED8A3FC64DBBF9C79DADE6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141532.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ magnet:?xt=urn:btih:BDA944F2361BEA6CD3931E9BAD611856936E45BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141566.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Internet Download Manager 6.30 Build 3 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141581.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Windows Firewall Control 6.9.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141582.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Volume Ace Pro v3.6.3 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141585.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ GOM Player Plus 2.3.92.5362 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141599.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ ReviverSoft Driver Reviver 5.25.0.6 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141608.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ magnet:?xt=urn:btih:F33B68E17CBBB1914BE6DCA8892F2990DB9B79D6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141616.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Internet Download Manager 6.42 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141617.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Reason Studios Reason 12.2.3 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141624.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ BookMacster 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141634.jpg" />
 </div>
 
 
@@ -393,7 +441,7 @@ Opera One 105.0.4970.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141638.jpg" />
 </div>
 
 
@@ -417,7 +465,7 @@ Boom 3D 1.3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141644.jpg" />
 </div>
 
 
@@ -441,7 +489,7 @@ Foxit PhantomPDF Business 5.5.3.1211 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141653.jpg" />
 </div>
 
 
@@ -465,7 +513,7 @@ Foxit Phantom - приложение для просмотра, редактир
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141659.jpg" />
 </div>
 
 
@@ -490,7 +538,7 @@ Foreca Погода / Foreca Weather 4.27.1 + 4.29.2 Mod by kristik, funnysith [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141667.jpg" />
 </div>
 
 
@@ -517,7 +565,7 @@ Total Uninstall 6.21.1 Professional Edition  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141670.jpg" />
 </div>
 
 
@@ -541,7 +589,7 @@ Google Earth Pro 7.0.2.8415 Final PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141678.jpg" />
 </div>
 
 
@@ -565,7 +613,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141683.jpg" />
 </div>
 
 
@@ -578,54 +626,6 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
  05. Legion (World At War remix by Aslan Faction) [4:38]
  06. Revolt Resist (Second Amendment remix by Grendel) [4:26]
  07. Crush (Жанр: Electro Industrial / Dark ElectroПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678871   (141700) от 23.11.2023
-
-Malwarebytes Windows Firewall Control 6.9.9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD08FA8B29CD8A33E691A8EAF91F94C3B083EF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590650   (141701) от 17.12.2012
-
-Debian GNU/Linux 6.0.6 Live [amd64] (4xDVD + 2xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позавчера вышел очередной корректирующий релиз Live CD/DVD с операционной системой Debian - загружается со сменного носителя - CD, DVD, USB-накопитель и т. д. Это позволяет пользователям ознакомиться с операционной системой перед её установкой или использовать в качестве загрузочного диска. Созданы LiveCD для восстановления после сбоев и стандартные с графическими оболочками GNOME, KDE Plasma Workspaces, Xfce и LXDE для нескольких архитектур. Debian LiveCD также предоставляют возможность установки на жесткий диск.
 
 ## Скачать торент
 ```bash

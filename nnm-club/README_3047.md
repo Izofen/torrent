@@ -1,3 +1,91 @@
+###  Публикация: 465298   (96211) от 10.03.2012
+
+VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 MM Dance - Отдыхаем (Dj Alfred extended mix)
+02 DJ Robert.T - Disco Crazy (Radio Edit)
+03 DJ HaLF & Tom Stem - Ready 2 Go (Radio Mix)
+04 Kay - M.A.J.O.R. (Tiesto Remix)
+05 DJ Half & Tom Stem - Любовь По Венам (MainstreamOne feat. DJ
+06 DJ Feel feat. Loona - I ll Find Myself (original mix)
+07 ViRUS! - ЧЗF
+08 Aly & Fila - Rising Sun (Bjorn Akesson remix)
+09 Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
+10 Nicky Romero - Toulouse (original mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465500   (96213) от 10.03.2012
+
+VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96213.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Armada Presents The Miami Soundtrack 2012 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 03:57:22Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Antillas ft Fiora - Damaged (Main Mix)
+02. W&W - Invasion (ASOT 550 Anthem) (Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465745   (96223) от 10.03.2012
+
+Олег Курылев | Знамена Германии. Иллюстрированная энциклопедия [2010] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вашему вниманию книга посвящена флагам и знаменам германских государств, которые в разное время располагались на территории будущей Германской империи в границах 1871 года и Австрии. Исследование охватывает исторический промежуток от XIII века до наших дней.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465414   (96225) от 10.03.2012
 
 Николай Гербель | Изюмскiй слободской казачiй полкъ. 1651-1765 [1852] [PDF]
@@ -6,7 +94,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96225.jpg" />
 </div>
 
 
@@ -30,7 +118,7 @@ magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96228.jpg" />
 </div>
 
 
@@ -60,7 +148,7 @@ VA - Count Down Rock Ballads (5CD Boxset) (1993) [MP3|320 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96231.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96232.jpg" />
 </div>
 
 
@@ -126,7 +214,7 @@ magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96235.jpg" />
 </div>
 
 
@@ -153,7 +241,7 @@ VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96236.jpg" />
 </div>
 
 
@@ -186,7 +274,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96242.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96242.jpg" />
 </div>
 
 
@@ -219,7 +307,7 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96244.jpg" />
 </div>
 
 
@@ -252,7 +340,7 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96245.jpg" />
 </div>
 
 
@@ -284,7 +372,7 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96246.jpg" />
 </div>
 
 
@@ -308,7 +396,7 @@ magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96250.jpg" />
 </div>
 
 
@@ -332,7 +420,7 @@ Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96251.jpg" />
 </div>
 
 
@@ -365,7 +453,7 @@ magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96260.jpg" />
 </div>
 
 
@@ -389,7 +477,7 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96262.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96262.jpg" />
 </div>
 
 
@@ -413,7 +501,7 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96264.jpg" />
 </div>
 
 
@@ -437,7 +525,7 @@ magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96271.jpg" />
 </div>
 
 
@@ -461,7 +549,7 @@ magnet:?xt=urn:btih:FEAA9C08E548A7A8317EF610C1F00A5110C5FCB4
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96272.jpg" />
 </div>
 
 
@@ -494,7 +582,7 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96278.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96278.jpg" />
 </div>
 
 
@@ -520,7 +608,7 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96280.jpg" />
 </div>
 
 
@@ -546,7 +634,7 @@ Visual Assist X 10.6.1862 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96285.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96285.jpg" />
 </div>
 
 
@@ -573,7 +661,7 @@ Coolio - Forever The Best (2006) [MP3|320 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96286.jpg" />
 </div>
 
 
@@ -606,7 +694,7 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96295.jpg" />
 </div>
 
 
@@ -639,7 +727,7 @@ VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96297.jpg" />
 </div>
 
 
@@ -659,91 +747,6 @@ VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466414   (96303) от 11.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 67
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96303.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 67
-Название: Desktop Wallpapers Pack 67
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466409   (96304) от 11.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 66
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96304.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 66
-Название: Desktop Wallpapers Pack 66
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1280х960 до 2048х768
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466405   (96309) от 11.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 65
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96309.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 65
-Название: Desktop Wallpapers Pack 65
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1600х1200 до 2560х1920
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 ```
 
 

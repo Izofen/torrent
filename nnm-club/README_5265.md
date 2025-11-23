@@ -1,3 +1,178 @@
+###  Публикация: 1826149   (162330) от 18.10.2025
+
+Андрей Скоробогатов | Секатор. Курьерская служба (Книга 2). Новичок (2025) [MP3, Владислав Горбылев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, молодой дворянин с душою тысячелетнего Секатора-убийцы миров, заступает на свою должность в Императорской Курьерской Службе, в отделе особых поручений. Его ждут заявки-квесты по колониям Российской Федеративной Империи в Гренландии, Антарктиде и на Филиппинах. Многочисленные противники - кланы, тайные сообщества, мафия всех мастей, а также могущественные (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: 1С-ПаблишингПродолжительность: 07:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C993D2EAD0D29F64256E3742D70792FD3AF5270A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674095   (162331) от 04.11.2023
+
+Topaz Photo AI for Mac 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2C41F7701C4F543F87F063464D1045B46B595D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432730   (162332) от 19.12.2020
+
+Kyle Kelly Pleasants - Why Can't We All Just Get Along (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Along (3:25)
+02. The Way I Treated You (3:39)
+03. If That Old Bench Could Talk (4:01)
+04. I Am Gone (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B5B38C042C078673717248A3409FD170617CC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826160   (162333) от 18.10.2025
+
+Андрей Волковский | Убийство в зачарованном городе (Книга 5). Убийство на скалистом утесе (2025) [MP3, Владислав Андрейченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое дело волшебника Ская.
+Следы загадочного артефакта, вытягивающего магическую силу, ведут в приграничный замок Гарт де Монт. Тайная служба поручает волшебнику Скаю с друзьями отправиться туда под видом путешественников и вычислить заказчика, но в первую же ночь в замке происходит убийство. Отравлен слуга, и это явно не случайность: кто-то заметает следы или хочет (   Читать дальше...   )Жанр: Фэнтези, детектив, приключенияИздательство: ЭксмоПродолжительность: 07:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55136AF3EC0B33985AC73C0AB1F19442CC49166F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673993   (162334) от 04.11.2023
+
+Chicago - Greatest Christmas Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow! Let It Snow! Let It Snow! (2023 Remaster) [00:03:29]
+02. All Over the World (2023 Remaster) [00:04:20]
+03. White Christmas (2023 Remaster) [00:02:31]
+04. Have Yourself a Merry Little Christmas (2023 Remaster) [00:04:04](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDCFC6283CE71AF6B47E86338186664588CBD7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904374   (162336) от 19.12.2022
+
+Юрий Никулин - Я никуда не уеду (2005) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм расскажет о великом клоуне 20-го века, о человеке, благодаря которому цирк на Цветном бульваре обрел новую жизнь. 10 лет как не стало Юрия Владимировича Никулина. Природа совместила в нем редкие и, казалось бы, взаимоисключающие таланты — Никулин был великим клоуном и глубочайшим драматическим артистом. О лицедеях масштаба Никулина — а их в истории единицы (   Читать дальше...   )Телекомпания: Россия, ООО Телепроект КЛАССЖанр: ДокументальныйРежиссер: Юлия КосареваАктеры: Юрий Никулин, Татьяна Никулина, Леонид Куксо, Наталья Варлей, Алексей ГерманПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC81215CCEC8FCBBB33C5CE0107306495196B294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826187   (162337) от 18.10.2025
+
+Александр Тамоников | Александр Тимохин. Мститель (2025) [MP3, Евгений Лебедев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Месть – чувство не совсем законное, но зачастую справедливое… Бывший командир штурмовой группы спецназа «Валдай» Андрей Дементьев ныне служит обычным милицейским участковым. Гоняясь за бандой наркоторговцев, он и предположить не мог, что столкнется лицом к лицу со своим кровным врагом – боевиком-террористом Лечо Кабадзе по кличке Кабан. Именно по его вине несколько (   Читать дальше...   )Жанр: БоевикИздательство: ЭксмоПродолжительность: 10:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D21C37844F6AEA3D9A24291C1C49DCEA48E77E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674118   (162338) от 04.11.2023
 
 Журнал | Все для женщины №45 (октябрь 2023) [PDF]
@@ -6,7 +181,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162338.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ NCH Debut Professional 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162339.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:4974659C572DAD754296274FF8CFF6F037A46BB9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162340.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ DJ Calma - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162341.jpg" />
 </div>
 
 
@@ -105,7 +280,7 @@ Moaning Silence - A Waltz Into Darkness (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162342.jpg" />
 </div>
 
 
@@ -132,7 +307,7 @@ MemTest86 10.1 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162343.jpg" />
 </div>
 
 
@@ -156,7 +331,7 @@ magnet:?xt=urn:btih:18A382D11EAB651C2964E36E7CECBFD82C4CAEBD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162344.jpg" />
 </div>
 
 
@@ -180,7 +355,7 @@ magnet:?xt=urn:btih:C0A477896CA204AFED700211F678DC099C3FA4E1
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162345.jpg" />
 </div>
 
 
@@ -204,7 +379,7 @@ magnet:?xt=urn:btih:C0B172C265120737A05846B00439E89384EAFF1D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162346.jpg" />
 </div>
 
 
@@ -228,7 +403,7 @@ Stoneflower - Finally (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162347.jpg" />
 </div>
 
 
@@ -255,7 +430,7 @@ magnet:?xt=urn:btih:5572404E2F644295FB838A9D4323E6528C8149F2
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162348.jpg" />
 </div>
 
 
@@ -279,7 +454,7 @@ magnet:?xt=urn:btih:C8C55CC7C2528A123443249403D31D4E46B2998C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162349.jpg" />
 </div>
 
 
@@ -304,7 +479,7 @@ Super Photo Upscaler 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162350.jpg" />
 </div>
 
 
@@ -329,7 +504,7 @@ magnet:?xt=urn:btih:DC8909BF6A3AD208C0E65EE61A0A2417F1351E3A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162352.jpg" />
 </div>
 
 
@@ -353,7 +528,7 @@ Atrise Lutcurve 4.0.5 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162353.jpg" />
 </div>
 
 
@@ -377,7 +552,7 @@ Camel - The Snow Goose (1975) Remastered And Expanded Edition, 2023, UMC-Decca [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162354.jpg" />
 </div>
 
 
@@ -404,7 +579,7 @@ VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162355.jpg" />
 </div>
 
 
@@ -431,7 +606,7 @@ magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162356.jpg" />
 </div>
 
 
@@ -457,7 +632,7 @@ magnet:?xt=urn:btih:667CF6A188322D6B8692FA777FA96B97AFDD8160
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162357.jpg" />
 </div>
 
 
@@ -471,184 +646,6 @@ magnet:?xt=urn:btih:667CF6A188322D6B8692FA777FA96B97AFDD8160
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0053068C8B89E7EC64DF0B97725D8E19DCE9971E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433072   (162358) от 19.12.2020
-
-The Monster - Extervolution (2020) [MP3|320 Kbps] <Heavy, Power-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Worst in This World [00:01:34]
-02 - Let Me Live [00:04:49]
-03 - I Fly When I Dream [00:03:46]
-04 - The Girl of My Life [00:05:31](   Читать дальше...   )Жанр: Heavy, Power-MetalПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA3199489137D85470B2D12E2847A33984A4615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517753   (162359) от 16.12.2021
-
-Dropshare 5.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162359.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCD0876763BD655DF9DBAED8C0E5A210516EB97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517651   (162360) от 16.12.2021
-
-Pro Microphone: Audio Recorder 1.4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия звукозаписи и записи музыки. Для начинающих певцов или тех, кто хочет, чтобы их услышали - Pro Microphone. Сделайте свой голос громче. Пойте и сохраните все свои треки, выберите разные микрофоны под свое настроение. Профессиональный студийный микрофон всегда на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Music Paradise, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CBB6DD47F3CFACE6A3AB2D601C1BE0FA95A7E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598447   (162361) от 19.12.2022
-
-Книжная серия | Настоящие преступники [12 книг] (2018-2022) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, что все это вымысел, но подобные истории действительно случаются. Истории людей, годами державших в страхе целые города и, даже, страны. Истории «Настоящих преступников».
-Серия книг «Настоящие преступники» от издательства «Пальмира», собрала в себе подлинные истории самых беспощадных убийств ХХ века. Имена этих серийных убийц до сих пор знакомы практически (   Читать дальше...   )Жанр: Триллер, Биографии и Мемуары, Публицистика, СпецслужбыПеревод: А. А. Самунджян,  Г. Ю. Михайлов, А. А. Рудакова и др.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6EE27BD659EED42C22FFDA91D89648135C488D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432766   (162362) от 19.12.2020
-
-Sainted Sinners - Unlocked & Reloaded (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same ol' Song (4:51)
-02. Standing on Top (4:47)
-03. Early Light of Day (4:27)
-04. 40 Years (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0962D62FBA3750FFD66B507EEA65830779D413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433043   (162363) от 19.12.2020
-
-Postico 1.5.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой, но мощный менеджер PostgreSQL баз данных для Mac
-Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
-Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18342A6C61EA22E8E3F6CCEAB152709973BBF864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598603   (162364) от 19.12.2022
-
-Р.С. Жуковский | Основы градостроительства (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162364.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены базовые представления о современном градостроительном проектировании на всех пространственных уровнях от территориального планирования и градостроительного зонирования до планировки территорий и формирования объёмно-пространственных композиций застройки и зелёных насаждений. Описаны все структурные единицы систем расселений, городов (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0AEA4890E8FBC511F91E868C9E2B4C29EC839C
 ```
 
 

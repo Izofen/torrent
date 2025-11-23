@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50796.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 2 (2020) [MP3|192-320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50797.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:816C3F5E400A1A4C6311E066116028B1EAD1A5CD
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50798.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1C957B0CAADAAE99C27142D574FC814B374D0B7B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50799.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3DF891F48303EDB3724833B52F82914FD0B440B0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50800.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:518C9F709F1C7E559738E1F7DB6C3C69EE7668D6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50801.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A9DBB40C0A66C1616861283892CE887FA4290370
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50802.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:01557121727A87586BA3BFD998BC27A0E853EAF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50803.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:56BE1510F3374A9627483C66EE88664166B6EAEB
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50804.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Topaz Gigapixel AI 7.2.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50805.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50806.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:CE83DAA3B6244FFC51A39E4409557AC472D40C49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50807.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PTC Mathcad Prime 10.0.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50808.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:61D1E5D8B49532E6A3B0C74EF52D64B959A5AB10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50809.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:6B1F35A60A93632AAE95416E2F6F9AC3D27BC98A
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50810.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50811.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50812.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4C3666002B7D31F5FF04E1EE7933F5E3D25C1A44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50813.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D817163AAD448C6A6B00A3FCAE0BA06F30DC568F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50814.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Susanna Oroyan | Fantastic Figures [1994] [PDF]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50815.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:AAF8722FA77BC7D7D1B1513E0771AFBEF5CB73DB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50816.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:7CF8183E7056E76EAA055817B5B0ED07A3CE47EC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50817.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A9DC36B73B45472AAB9A2374ECEB895D1CFF5725
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50818.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:7D9B346405D1FA86B8C908B82091787F70C31BF7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50819.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:BAB4A46C245F8E79EF44B2E6D1942FBE85570186
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50820.jpg" />
 </div>
 
 

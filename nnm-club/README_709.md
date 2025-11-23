@@ -6,7 +6,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18758.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iDigging (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18759.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FinePrint 12.12 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18760.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Malwarebytes Windows Firewall Control 6.15.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18761.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18762.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Foobar2000 2.24.5 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18763.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A5B3986A3E7DBA6F549500779ACC73AC5B5D928C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18764.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tixati 3.35.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18765.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ashampoo Photo Optimizer 11.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18766.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Windows 11 (v24h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18768.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AnyDesk 9.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18769.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:44858037BFC5AFF1F618923B408A818508E399FF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18770.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18771.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Phasmophobia (2020) [Ru/En] (0.12.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18772.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18773.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:BEF6BB989143E2AE79D2DC9FAA365C87BA771E30
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18774.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18775.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18776.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18777.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18778.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Abelssoft SSD Fresh Plus 2026 15.0.61552 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18779.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mind Over Magic (2025) [Ru/Multi] (1.0.536.1435.9b6043f8) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18780.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8B33466B93B88D6973E59AB51717BA38537812E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18781.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v24 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18782.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2D781541D2B46D0AEFF710E3CA1831EEEE8A0126
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18783.jpg" />
 </div>
 
 

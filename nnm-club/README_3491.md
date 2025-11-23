@@ -1,3 +1,82 @@
+###  Публикация: 1719677   (110448) от 01.05.2024
+
+Black Tusk - The Way Forward (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Grasp [00:02:47]
+02. Brushfire [00:02:22]
+03. Harness (The Alchemist) [00:02:35]
+04. Lessons Through Deception [00:02:14](   Читать дальше...   )Жанр: Sludge Metal, HardcoreПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FC7E04A8A5A1FAA5FC22FB67006056AAF254FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719919   (110449) от 01.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нью-Йорк Айлендерс - Каролина Харрикейнз (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 мая 2024, среда. 02:30 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 18 874 зрителя (99% при вместимости 19 041)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4457E7E81FD5D9C2BC7256F5DCAA643222378518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719505   (110450) от 01.05.2024
+
+Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point [00:03:26]
+02. Line [00:02:53]
+03. Triangle [00:02:15]
+04. Square [00:03:42](   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8E15F4A6A90EA9784ABD8C1AD17F2F15CDE104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719972   (110451) от 01.05.2024
 
 Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
@@ -6,7 +85,7 @@ Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110451.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110452.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110453.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110454.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110455.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110456.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110457.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110458.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Har
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110459.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110460.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110461.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110462.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110463.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110464.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110465.jpg" />
 </div>
 
 
@@ -407,7 +486,7 @@ Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110466.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110467.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110468.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110469.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110470.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ magnet:?xt=urn:btih:02D2979A753632A4128348882AC1A2A6CA48B84B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110471.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110472.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110473.jpg" />
 </div>
 
 
@@ -601,84 +680,6 @@ The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4AF0F99AEA2D968A952ABB0D26E706A90012FC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719858   (110474) от 01.05.2024
-
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024)
-СУДЬЯ Тюрпен Клеман (Улинс, Франция)
-Судья на линии 1: Дано Николя (Франция)
-Судья на линии 2: Пажес Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч! ФутболЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70807BBC8DD716AAF14816AFB7CA4CBAF2D79B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719966   (110475) от 01.05.2024
-
-Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озора Хироши изобретает Мол, устройство, которое делает пользователя непобедимым. Однако его планы стать супергероем недолговечны, когда его сестра Мирай случайно меняет конфигурацию костюма. Теперь она сама вынуждена в одиночку спасти Токио от злого Машингала и его банды андроидов, состоящих исключительно из женщин.Производство: Студия AICЖанр: приключения, комедия, фантастикаРежиссер: Китадзумэ ХироюкиПеревод: LexThornЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325C744EE2464345DD9695B72AAF8B8AE929BE17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719616   (110476) от 01.05.2024
-
-Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Punjab of Java Po' [5:29]
-02. Big Girls [5:42]
-03. Falling in Love with Love [6:32]
-04. 7th Avenue [5:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5425FBE4D44D2DD6B8C864FE94CEEEBD04B51A
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1674016   (163174) от 03.11.2023
+
+AllDup 4.5.52 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163174.jpg" />
+</div>
+
+
+###  Подробнее
+
+AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
+Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E741B9B7B5E9C987152E04AC90C37F642EECAA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598405   (163176) от 18.12.2022
+
+MuseScore 4.0 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163176.jpg" />
+</div>
+
+
+###  Подробнее
+
+MuseScore — великолепное приложение для создания партитур.  Программа распространяется бесплатно, имеет открытый исходный код.  Данное средство предназначено, скорее, для начинающих музыкантов, потому что хотя и имеет огромное количество инструментов и возможностей при этом остаётся невероятно простым для понимания программным обеспечением. Удобство и полезность программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AB017AC828F4125328F329C22051B1A2FD8B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673891   (163179) от 03.11.2023
+
+Wise Auto Shutdown 2.0.5.106 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Auto Shutdown позволяет Вам отключать компьютер, перезагружать его, отключать питание, выходить из системы, переходить в спящий режим или в режим гибернации на регулярной основе или определенное время. Это значительно упрощает управление питанием. Работает в фоновом режиме и показывает напоминание за 5 минут перед выполнением, если стоит соответствующая галочка.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72B4B04D802B7E81A4764600A696D3738B33051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673994   (163180) от 03.11.2023
 
 Brave Browser 1.60.110 [Multi/Ru]
@@ -6,7 +79,7 @@ Brave Browser 1.60.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163180.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:3D81411FC6496D6571A5F75FE98712188147C9B0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163186.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Audacity 3.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163188.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ CCleaner 5.88.9346 Free / Professional / Business / Technician_Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163214.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Rhinoceros 8 v.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163215.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ FreeFileSync 11.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163219.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ calibre 6.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163228.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Allegorithmic Substance Alchemist 2020.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163233.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ macOS 12 Monterey 12.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163234.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Movavi Video Suite 22.0.1 [DC 09.12.2021] RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163253.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ ScreenFlow 9 v9.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163254.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ RAW Power 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163259.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ iVI Video Converter 4 v4.740 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163263.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163268.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163269.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163276.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ PowerPhotos 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163283.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ K-Lite Codec Pack Update 17.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163289.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:4646E625D8F20B1464A8865DA6E8402DD84AF668
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163299.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Topaz Gigapixel AI 4.4.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163304.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ NeoOffice 2017.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163307.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ OfficeSuite + PDF & HD + Modificstions & Addons 11.10.39034 Mod by Mihz, Alex004
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163308.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ iconStiX 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163312.jpg" />
 </div>
 
 
@@ -554,78 +627,6 @@ iconStiX предлагает обработку нескольких объек
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39F510BA6002B7C6C6468B777D9E2982646EC209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346360   (163316) от 19.12.2019
-
-Ableton - Live Suite 10.1.6 (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ableton Live 10 Suite представляет собой самое полное издание программного обеспечения Live для создания и исполнения музыки и является софтом полной интегрированной студии, оснащенной всем необходимым для музыкальной творческой работы. Издание Suite может предоставить неограниченное количество треков и сцен, 12 треков send и return, 256 моно аудио входных каналов, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13EA97D5E2576755517D7715DC0E1FE3266FBE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432666   (163317) от 18.12.2020
-
-Display Maid 3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790ABC419EF8C4567C201FA0D83ED9A92E9777FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432678   (163322) от 18.12.2020
-
-Timemator 2 v2.7.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C359B6D94DC92F69E696E22E9CECE162002F9FF
 ```
 
 

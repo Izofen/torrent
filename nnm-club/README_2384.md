@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62349.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NVIDIA GeForce Desktop Game Ready 474.82 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62350.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News vol.354 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62351.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:835EFE761B426463F335BC44F2340960AEF1591C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62352.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ DNS Changer 2.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62353.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62354.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62355.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:621D0EB6FD1F3A71FA184A63E65E55C4C6796A5D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62356.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7A6E55C6A881A6CECC66B7AA761B3D99B423B5A5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62357.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D2FEEF65FB43C9BFEA05802DD558081D8E60AF0F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62358.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:163AA51ABF7EA043485BBE0223868BFF265BA111
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62359.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Infuse PRO 7.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62360.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Android Studio Iguana | 2023.2.1 Patch 1 Build #AI-232.10300.40.2321.11567975 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62361.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:159FC26182AF48FCEDC0F71B341CF0453F083FB5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62362.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62363.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62364.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:35129CCDC0D02AAF1BB02B1EEB090F5B3EAF80D3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62365.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5411CE9280AAF05D973D8537ECCC5C23DC58CF4C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62366.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Skillbox, Андрей Щедрин | Горшечные растения (2022)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62367.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62368.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62369.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Advanced SystemCare Pro 17.3.0.204 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62370.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62371.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3D1B9C0598FDF26DDD3AFC42837AE8BBCDD6E609
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62372.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:2581200B4EC16EB55F4A08F28AF55FAE5C0ADDE3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62373.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:8C13AB40E59DAC48CD875584F1A0854D7CA4A24C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62374.jpg" />
 </div>
 
 

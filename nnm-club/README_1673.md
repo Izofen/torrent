@@ -6,7 +6,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43853.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3523B11ABB0A93009705C24C06BF344994E97EA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43854.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F51A1AB5D9A91136CC0117E0EA3B4AFDC26D5E8E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43855.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F51A1AB5D9A91136CC0117E0EA3B4AFDC26D5E8E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43856.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SpaceX запустила корабль с туристами, которые �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43857.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Lice
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43858.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7089EF150267C51A089589CE7262F1C3E749B6C8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43859.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Telegram Desktop 5.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43860.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:810059C9A367DB0EA2FCDE74858E34ECB9E89176
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43861.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BB8338DE0FE33C191915D7BD8EF10F68B605FC61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43862.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43863.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.40 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43864.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:0416122F204BD25FF5E0F44A5D0FA32C715B31CA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43865.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9DBE82A71AE3B24BBAF8AD3EDD9E6287800633AF
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43866.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:1B7109B5ED72EA0CC0658F084629B77346A1EA22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43867.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0A02CA4667EB10CEF8EED954739EEF33B67FB312
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43868.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:0DF22C67DA17164530C9FE191D4CE2200E842632
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43869.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B732967F5FA48BDD0F23CE5C37C7071F310B530C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43870.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Lebanon Arabic Ethnic Deep House Hits (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43871.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:EC008E2A7C184EB0A784934D4F371CF23F48F6E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43872.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:EC008E2A7C184EB0A784934D4F371CF23F48F6E0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43873.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Uplifting Only Top 15: September 2024 (Extended Mixes) (2024) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43874.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Lenny Kravitz - Human (Remixes) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43875.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - DJ Hits Vol. 888 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43876.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SkinInc. - Another Crack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43877.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:9C34C3799C0FF1E3DEE324110C948C37246A70D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43878.jpg" />
 </div>
 
 

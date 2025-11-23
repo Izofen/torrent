@@ -1,3 +1,78 @@
+###  Публикация: 1731637   (107718) от 21.06.2024
+
+Beyblade X | Бейблэйд Икс [2023, TV, 2 из 52] WebRip 1080p raw+rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блейдер-любитель Робин Казами оказывается вне команды, когда друзья бросают его после сокрушительного поражения. К счастью для него, случайная встреча с бывшим чемпионом Джексоном Кроссом заставляет этих двух маловероятных товарищей по команде объединить усилия. Джексон намерен снова подняться на вершину The X под псевдонимом «Blader X» и бросить вызов своему старому (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоЯзык озвучки: Японский и русский (BeyBeast Project)Субтитры: ОтсутствуютПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAF2B9C027A42FDAC9CFFB91EB4732FEF232053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731364   (107719) от 21.06.2024
+
+Maurice Ravel - The Complete Works (2020) 21CD [MP3|320 Kbps] <Classics>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107719.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-5: Piano works
+CD6-7: Chamber music
+CD8-12: Orchestral works
+CD13-15: Songs, Choral works(   Читать дальше...   )Жанр: ClassicsПродолжительность: 24:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6474E999DEA4F72ECF8B8E23DBDA14D37E1ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731466   (107720) от 21.06.2024
+
+В поисках Адама / Adam the First (2024) [H.264] [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107720.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах Адама жестоко убили его родителей. После трагедии он неожиданно находит среди вещей в своём доме странный список. В нем содержатся имена мужчин и их адреса. Предположив, что любой из них может оказаться его настоящим отцом, Адам отправляется в путешествие по стране в надежде найти его.Производство: США / Adam 1 Pictures, Crystal City Entertainment, Randomix ProductionsЖанр: драмаРежиссер: Ирвинг ФранкоАктеры: Дэвид Духовны, Оакс Фигли, Т.Р. Найт, Ларри Пайн, Билли Слотер, Jason Dowies, Эрик Хэнсон, April Alsbury, Кимберли Бэйкер, Холли БонниПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731597   (107721) от 21.06.2024
 
 Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2019) [PDF] [EN]
@@ -6,7 +81,7 @@ Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107721.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107722.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107723.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107724.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:8CAA71093D6CA5C5045125A7B4CCD6A673B40F34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107725.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:8CAA71093D6CA5C5045125A7B4CCD6A673B40F34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107726.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:44A2A902295C888D30E62D4E02D4B0EE435C8AA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107727.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ magnet:?xt=urn:btih:2C70B5A4BAD0A907385BC61FD027E72007045A2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107728.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ VA - Music News vol.391 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107729.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ Icecream PDF Editor Pro 3.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107730.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:8CCD224624A4E0362062C00504B67E374B034CB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107731.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:697FB1D9C030D607AECC6DB4E2A4AF45930767EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107732.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ magnet:?xt=urn:btih:6F7C8F22C2F7F3F0BCCA6F2D8AC43D323826A258
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107733.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:56F1CEAD0122A76C5F341082A0E6FF2C751C9504
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107734.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107735.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ Magma Rise - Neither Land nor Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107736.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107737.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ Magma Rise - Lazy Stream of Steel (2010) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107738.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ Magma Rise - To Earth to Ashes to Dust (2021) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107739.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ magnet:?xt=urn:btih:E102B88C4EC51C368B6E6A5943202512C4B56867
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107740.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by Shadow_Patcher [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107741.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ VA - DJ Hits Vol. 82 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107742.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107743.jpg" />
 </div>
 
 
@@ -579,87 +654,6 @@ VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F14EB595647C401AA126BDB8CE5E7481C4726A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731227   (107744) от 20.06.2024
-
-Fedde Le Grand - Something Real (2016) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Give Me Some (Radio Edit) [3:26]
-02 - Feel Good (Radio Edit) [3:17]
-03 - I Can Feel (Radio Edit) [3:15]
-04 - Beauty From The Ashes (Original Mix) [3:29](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 02:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B24961499DAE923EC884DC21C666CC729DAAF66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731133   (107745) от 20.06.2024
-
-Хороший год - От небес до земли (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Морская соль [00:03:57]
-02. Все это сон [00:03:59]
-03. Каждому свое [00:04:27]
-04. Лайфхак [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496B848E1243B24828EB9D8FD16DF9924DC43C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731288   (107746) от 20.06.2024
-
-Ozric Tentacles - Strangeitude & Pungent Effulgent (1989-1991) Compilation, Reissue, 2007, Recall 2cd [FLAC|Lossless|image + .cue] <Progressive Rock, Space Rock, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107746.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Pungent Efflugent(1989):
-01. Dissolution (The Clouds Disperse) 6:15
-02. O-I 3:58
-03. Phalarn Dawn 7:34(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Instrumental RockПродолжительность: 02:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA294D8AA4FA3D4018350E147A29249149A9E2D3
 ```
 
 

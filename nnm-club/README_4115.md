@@ -1,3 +1,76 @@
+###  Публикация: 1686404   (126677) от 22.12.2023
+
+Последнее путешествие «Деметра» / The Last Voyage of the Demeter (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракула путешествует в Лондон на русском корабле «Деметр» и потихоньку ест матросов и пассажиров.Производство: США, Великобритания, Канада, Индия, Германия / Amblin Partners, Dreamworks Pictures, Firebrand VideoЖанр: ужасыРежиссер: Андре ЭвредалАктеры: Кори Хокинс, Эшлинг Франчози, Лиам Каннингэм, Давид Дастмалчян, Крис Уолли, Джон Джон Брионес, Стефан Капичич, Мартин Фурулунд, Николай Николаефф, Вуди НорманПеревод: Дублированный (Официальный), Профессиональный многоголосый (HDRezka Studio, Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), английские (full, SDH)Продолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0C10D7A56A88B42235B0C95DBB04FD73053DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686376   (126678) от 22.12.2023
+
+День благодарения / Thanksgiving (2023) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плимут, штат Массачусетс. Давка в торговом центре в Чёрную пятницу, совпавшую с Днём благодарения — празднике, зародившемся в этом городке, — унесла жизни нескольких человек. Год спустя, надев маску первого местного губернатора Джона Карвера и украв из музея его топор, неизвестный начинает охоту на виновных в той трагедии.Производство: США, Канада, Австралия / TriStar Pictures, Spyglass Media Group, Ethereal Visage ProductionsЖанр: ужасыРежиссер: Элай РотАктеры: Нелл Верлак, Патрик Демпси, Гэбриел Дэвенпорт, Джейлен Томас Брукс, Майло Манхейм, Дженна Уоррен, Рик Хоффман, Карен Клише, Эддисон Рэй, Тай ОлссонПеревод: Многоголосый профессиональный (TVShows 18+)Язык озвучки: РусскийСубтитры: Русские (18+) отдельноПродолжительность: 01:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF055D83552BFBE9A0D5A03F98D139B9179404D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374020   (126679) от 22.12.2023
+
+Джером Д. Сэлинджер | Девять рассказов + 1 (2004) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи». Писатель-классик, писатель-загадка, на пике своей карьеры объявивший об уходе из литературы и поселившийся вдали от мирских соблазнов в глухой американской провинции. Книги Сэлинджера, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 06:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D3FB33EBF89063E5095E33650BEC0A5EF44E26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686147   (126680) от 22.12.2023
 
 Хоккей. НХЛ 2023-2024. Нью-Йорк Айлендерс - Вашингтон Кэпиталз (20.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -6,7 +79,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126680.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:FF451244E6A901A0E4DE6B3B3BB03BC7DB71DBCA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126681.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:CD93D42DA5B7EABD31248CF4D00C5FE58457D399
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126682.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:E03048986BE827D4E97EA3ACBAB275EA0274ADEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126683.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:513C7048C920BF37FBB976775B6F651E2AE96708
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126684.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:000517C04D44C3FB22008DA8FECC1F1484E77DCB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126685.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ PhpStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126686.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ GoodbyeDPI 0.2.2 Launcher 6.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126687.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ magnet:?xt=urn:btih:1CF03DE9460542B875964922343748A2C68CF22E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126688.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ magnet:?xt=urn:btih:DFD2538F543A5255456B9E192A84CB5ED530B154
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126689.jpg" />
 </div>
 
 
@@ -255,7 +328,7 @@ VA - Понемногу отовсюду by Yuridar #D (1957-2023) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126690.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126691.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126692.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ magnet:?xt=urn:btih:DEB1DA6A63417E01BA1B49ED1AF091D525C5774F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126693.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ magnet:?xt=urn:btih:B8968653DEAD3F65CB44DF727FE6185A9080B6CF
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126694.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ magnet:?xt=urn:btih:C01DE1FC724C9745AD195155FAB8FA20447BF717
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126695.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ magnet:?xt=urn:btih:1EA6E4E3E1D5BB55781FAB5D521ED36DA6A127ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126696.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ magnet:?xt=urn:btih:30423E1549E0C43287BFA73A82C5BAFF566D53C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126697.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ magnet:?xt=urn:btih:13A37FD084851537F39862761080EC259C4BF621
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126698.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ magnet:?xt=urn:btih:12FB3705601D7206CC171767B906E30F30B85013
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126699.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ magnet:?xt=urn:btih:CC97EC796287FCFD01B170881332239FC10A12A2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126700.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ magnet:?xt=urn:btih:BA34EBF3D06AD94A6440EF4D6114956396966F02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126701.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ magnet:?xt=urn:btih:4F06008767E19BBB72183F039C48BF8C40E513D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126702.jpg" />
 </div>
 
 
@@ -558,78 +631,6 @@ magnet:?xt=urn:btih:4F06008767E19BBB72183F039C48BF8C40E513D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82AC36EA9344D2CC0D47174D74F4994C91661A58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667062   (126703) от 22.12.2023
-
-Under Ninja | Иные ниндзя [2023, TV, 12 эп.] WebRip 720p raw
-
->>След.
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пocлe Bтopoй миpoвoй кoмaндoвaниe coюзникoв в Япoнии coздaлo нoвoe aгeнтcтвo для пpoтивocтoяния тeppopизмy в тиxooкeaнcкoм peгиoнe. Пepcoнaл aгeнтcтвa cocтoял из ниндзя, кoтopыe зaнимaлиcь изнaчaльнo тoлькo внyтpeнними дeлaми. Ho co вpeмeнeм пpoгpaммa paзвивaлacь и дopocлa дo нынeшниx мacштaбoв: 20 тыc. ниндзя, кoтopыe peшaют внyтpeнниe и внeшниe пpoблeмы. Один из (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключенияРежиссер: Кувабара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22057166577CD3408369FD6440D110AFF08EBFC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667060   (126704) от 22.12.2023
-
-Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 эп.] WebRip 720p raw
-
->>След.
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ивaтaни Haoфyми вмecтe c тpeмя дpyгими людьми пpизвaн в пapaллeльный миp, чтoбы cтaть eгo Гepoeм. Пoлyчив в pyки лeгeндapный щит, oн oтпpaвляeтcя в пyтeшecтвиe, нo нe имeя ни oпытa, ни xapизмы, ocтaётcя лишь c oднoй пpeкpacнoй cпyтницeй, кoтopaя пpeдaёт eгo нa тpeтий дeнь. B peзyльтaтe Ивaтaни oкaзывaeтcя oгpaблeнным и oбвинённым в изнacилoвaнии, cильныe миpa ceгo (   Читать дальше...   )Производство: студия Kinema Citrus / キネマシトラスЖанр: приключения, фэнтезиРежиссер: Хага ХитосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6B691B73B27EF173C14A874AD32063BF1DC30E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634090   (126705) от 22.12.2023
-
-WebStorm 2023.3.2 [x64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126705.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```
 
 

@@ -6,7 +6,7 @@ RAR Extractor - Unarchiver (vip) 6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6B6C1C6E604F65C130F7C03F33A50F1647FD0D12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11079.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:31B7CD04033A3477D22C08A663979DD4EDD58F10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11080.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6D21F734B4C156E6877AB9416339A4CA9EC724D3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11081.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11082.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2FCE133D174EBE228652C4F6656BDF5DABCA22F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11083.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - FSOE Summer Compilation 2025 (2025) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11084.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:67455374DC3953E71FA29C05F652B7DB3FC6BE01
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11085.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Nothing But... Late Night Deep House, Vol. 03 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11086.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11087.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E426086E1510EAF7791B5A1A5D3BBDDBAC003C19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11088.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:AE7B7E30AC469326EBECCA6C5AB54D0758BA8847
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11089.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A449C9DDBD2DA575C6882E23117AC7412DE998DC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11090.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:6731B00C02823B77DB17E9D6D0F0482E4A9E9391
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11091.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A211D124B87807572824CF81DDB64FDB6E5906FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11092.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11093.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:20F74FD86D91C253FC6E2171892ABED69109132C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11094.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:31744A0073C5404BBDCC65D86C6F64A77C4A2D3F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11095.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:DC039F53AA14D51C7CAAF2C2BAF2EBFD1333C81A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11096.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11099.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.582 RePack (& Portable) by elchupaca
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11100.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:38C22EEA592E8CE339DCC8719722D18F6295AAA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11101.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:1E0B16D5E5FC7A7A39BFA49E3DF09BAECCE03057
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11102.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:9839A98645F067478BFB8412FC4C00E0ADBDA4BE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11103.jpg" />
 </div>
 
 

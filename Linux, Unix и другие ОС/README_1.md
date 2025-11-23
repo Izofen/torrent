@@ -6,7 +6,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio for Linux Network 3.5.1347 [x86, x64] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41099.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Devuan 5 (Daedalus) [x86_64, i586] 4DVD+14xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42264.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ MX-23.4 (MX Linux 23.4) [x86_64, i686] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42363.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43397.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43406.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Manjaro 24.0.8 Wynsdey (Xfce, KDE Plasma, Gnome) (Official images Manjaro Team) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43963.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47303.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47599.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Transmission for Linux 4.0.6 (38c164933e) [x32, x64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48049.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Tails 6.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52733.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ UALinux CyberPack FaP 20.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53046.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FreeBSD 13.3 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54414.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55437.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Oracle Linux 9.4 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56313.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56891.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Red Hat Enterprise Linux 9.4 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57221.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58481.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Fedora 40 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58590.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59105.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ GParted LiveCD 1.6.0-3 [i686, i686-pae, amd64] 3xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60323.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ KDE neon 6.0.2 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61945.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Rocky Linux 9.3 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62449.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SparkyLinux 7.3 / 2024.02 Rolling Edition [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62452.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Red Hat Enterprise Linux 9.3 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62455.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ubuntu 23.10.1 (Mantic Minotaur) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62469.jpg" />
 </div>
 
 

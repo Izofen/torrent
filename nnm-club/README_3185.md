@@ -1,3 +1,75 @@
+###  Публикация: 489924   (102262) от 30.04.2012
+
+Валентин Иванович Дикуль | Подборка книг по лечению болезней позвоночника (11 книг) [2012] [FB2,PDF,DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102262.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ваше обозрение представлен сборник книг Валентина Ивановича Дикуля - российского тяжелоатлета, руководителя медико-реабилитационного центра заболеваний опорно-двигательного аппарата. Опыт этого мужественного человека вдохновляет многих начать новую жизнь и побороть свои заболевания. В своих книгах Валентин Дикуль делится с читателем разработанным лично им уникальным комплексом физических упражнений для лечения разнообразных заболеваний опорно-двигательного аппарата.Формат: FB2,PDF,DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0FFED08A866C2ED288FB5484914241006E6338
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490134   (102263) от 30.04.2012
+
+Последний полёт / Le dernier vol (2009) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая летчица Мари, строптивая и отважная, отправляется на поиски своего любимого, который исчез в районе Сахары, пытаясь совершить рекордный перелет из Лондона в Кейптаун. Ее неожиданный прилет резко меняет жизнь «верблюжьего» корпуса, заброшенного так далеко от родной Франции, которого сейчас заботят волнения, вызванные восстанием туарегов. Капитан Антуан, у (   Читать дальше...   )Жанр: Драма, Мелодрама, ПриключенияРежиссер: Карим ДридиАктеры: Марион Котийяр, Гийом Кане, Гийом Марке, Фридерик Эпо, Михаэль Вандер-Мерен, Сванн Арло, Роберт ХоэнПеревод: Двухголосый закадровыйПродолжительность: 01:24:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490180   (102266) от 30.04.2012
+
+Рестлинг / WWE Extreme Rules 2012 (2012) HDTVRip [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое PPV Extreme Rules 2012Жанр: СпортПеревод: ОтсутствуетПродолжительность: 02:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D338C81D8F0BB9D2C2BEA27F8F4128ECDE2BC268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490149   (102270) от 30.04.2012
 
 Видеоприложение к журналу "Рыбалка на Руси". Выпуск № 5. Май 2012 г. (2012) DVDRip
@@ -6,7 +78,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102270.jpg" />
 </div>
 
 
@@ -38,7 +110,7 @@ magnet:?xt=urn:btih:B611BE00A9CEE1A45BC2DFC034F956831A9AACBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102271.jpg" />
 </div>
 
 
@@ -64,7 +136,7 @@ magnet:?xt=urn:btih:57F46A794E726679885945E8D7CE797CE3F09AA6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102273.jpg" />
 </div>
 
 
@@ -92,7 +164,7 @@ magnet:?xt=urn:btih:3DA305CB13E27875EBFB23611880E5809DCB9319
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102276.jpg" />
 </div>
 
 
@@ -116,7 +188,7 @@ magnet:?xt=urn:btih:16134EEE6DE975B015195D40D930300049DD08E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102281.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102281.jpg" />
 </div>
 
 
@@ -140,7 +212,7 @@ Gekijouban Sora no Otoshimono: Tokei Jikake no Angeloid / Падшая с неб
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102284.jpg" />
 </div>
 
 
@@ -164,7 +236,7 @@ magnet:?xt=urn:btih:F7D2F079FAB39C8270FA5841168292D034139102
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102289.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ magnet:?xt=urn:btih:D14EE326742B632501925B1C58322FD87ECEBE0D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102291.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ Pop Art Studio 6.2 Batch Edition x32/x64 Portable by Boomer  [Русский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102292.jpg" />
 </div>
 
 
@@ -241,7 +313,7 @@ PictureCode Noise Ninja 2.3.7 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102294.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102294.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Noise Ninja — это специальная программа для пода
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102296.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ London Elektricity - 8 Albums (1999 - 2011) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102300.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102300.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ London Elektricity - 8 Albums (1999 - 2011) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102301.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ iZotope - Iris v.1.0 by UNION x86 x64[STANDALONE|VST|RTAS][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102303.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102303.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ iZotope Iris v1.0 - Инновационный ре-синтезатор, кот
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102305.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:9335CA01DE6E3B0D522128E3AC15CBFEDD20ABFC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102309.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:FAD6D100E971C89C1DBCD0812DC7157F193EF9C7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102311.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:FAD6D100E971C89C1DBCD0812DC7157F193EF9C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102312.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:AC6CEE61F8CFC5EFA711BD7BD4BE2401E8EDE24D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102313.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:90E6E81B21D06A8112A82822F0D962965BE85E8A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102316.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:90E6E81B21D06A8112A82822F0D962965BE85E8A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102318.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:90E6E81B21D06A8112A82822F0D962965BE85E8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102321.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ magnet:?xt=urn:btih:D845582979B0A7478EDE03C1A37EA0FA810E7D9A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102323.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102323.jpg" />
 </div>
 
 
@@ -581,82 +653,6 @@ magnet:?xt=urn:btih:D845582979B0A7478EDE03C1A37EA0FA810E7D9A
 Версия прошивки: v.42.0.004
 Язык ввода: Русский, Английский
 Tребования: Nokia c6-00 RM-612   Скриншоты:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490170   (102325) от 30.04.2012
-
-ROSA Desktop 2012 RC [i586, x86-64] (2xDVD)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102325.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 апреля этого года стал доступен для тестирования RC операционной системы ROSA Marathon 2012, официальный релиз которой получит пятилетнюю поддержку. В качестве графической среды система использует рабочий стол KDE 4.8.2. В отличие от предыдущих версий, его быстродействие возросло, а потребление памяти снизилось. Другие обновления ОС: ядро 3.0.28 LTS Desktop  (включая поддержку PAE, нетбуки и современные Intel процессоры); KDE 4.8.2  усовершенствованный командой разработчиков ROSA (SimpleWelcome, RocketBar, Dolphin 2.0); ROSA Media Player;  Klook; улучшенные драйвера Intel, NVIDIA and AMD с поддержкой для i3/i5/i7, GF6xxx и совремнных продуктов AMD; Mesa 7.11 и многое другое.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3DAC6321EADB2A76DCF80930E7076A8D433E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490109   (102326) от 30.04.2012
-
-Сыщик / Sleuth (2007) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий автор детективных романов Эндрю Уайк приглашает к себе в гости Майло Тиндла, любовника своей жены. Тот прибывает в роскошный особняк писателя, где получает неожиданное предложение. Сэр Эндрю знает об их связи и даже готов отпустить жену, но на определённых условиях. Хитроумный план включает в себя инсценировку ограбления, махинации со страховкой и весьма пикантные ситуации, что в результате должно обеспечить всем безбедное существование. Писатель и гость вступают в рискованную игру, но ещё неизвестно, кто выйдет из неё победителем.Жанр: Триллер, Драма, ДетективРежиссер: Кеннет БрэнаАктеры: Майкл Кейн, Джуд Лоу, Гарольд Пинтер, Кармел О’СалливанПеревод: ДублированныйПродолжительность: 01:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FFD1FEF4629BACA3CF49FDD503AD182FBFDA19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488973   (102327) от 30.04.2012
-
-Windows XP Professional SP3 bY maestro1997 x86(AHCI) v2 [Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переделаная версия Windows Xp SP3 VL  обоснованая на оригинальном корпоративном дистрибютиве с интегрированими обновлениями по апрель 2012 года, интегрированими AHCI драйверами, Internet Explorer 7, Windows Media Player 10.
-В сборку интегрированы важные системные библиотеки что позволяет устанавливать "тяжелый" софт и игровые приложения.
-Дистрибютив проходит проверку на подлиность на сайте Microsoft как подлинное програмное обеспечение.
-Сборка устанавливается в авторежиме( нужно выбрать только раздел для установки и ввести настройки даты/ времени)
-Дистрибютив прежде всего предназначен для "чистой" установки с загрузочного компакт диска (в Bios в меню Boot выставить, First boot device-CDROM)Название программы: Windows XP Professional SP3 bY maestro1997 v2 SP3 x86(AHCI)Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash

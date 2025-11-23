@@ -6,7 +6,7 @@ VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98893.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Deep Line. Lounge Collection (2012) [MP3|320 kbps]<Chillout | Downtempo | L
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98903.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Моя ночная коллекция (2012) [MP3|192-320 kbps]<Pop | Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98947.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98998.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99001.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99007.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Dancefloor Fever Winter (2012) [MP3|320 kbps]<Club | Dance | House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99032.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Clu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99048.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99050.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99054.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Солнечный музыкальный отрыв (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99066.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Хиты на радио клубнячек и попса vol.1 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99072.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99089.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99094.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99100.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Только Хиты Хит FM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99117.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Авто Дискотека DFM (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99132.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - В Машину! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99133.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99215.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99274.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99276.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99281.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99284.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99293.jpg" />
 </div>
 
 
@@ -790,7 +790,7 @@ VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99328.jpg" />
 </div>
 
 
@@ -823,7 +823,7 @@ VA - Best Of 2012 vol. 1 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99348.jpg" />
 </div>
 
 

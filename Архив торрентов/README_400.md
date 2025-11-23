@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95482.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95487.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95487.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95519.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Save2pc Ultimate 5.11 Build 1376 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95533.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ save2pc - программа для загрузки и конвертирова
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95546.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BE4270159245EA784265362366AFCDD3021F7DAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95548.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95550.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95550.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95551.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5BE2A4D0E372F5464E823D909A06F40C4E26F4A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95557.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - The Dance Cube XXXV 3CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95565.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - The Dance Cube XXXVI 3CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95569.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95599.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95621.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bruce Springsteen - Wrecking Ball (Special Edition) (2012) [MP3|~245 кб/с (V0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95623.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95625.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95626.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:D296F33128F371843759D6DF084188D8EE30B874
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95629.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95637.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95652.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:CFB1F86744CA3C7D08793C820C31DC6DAD51EBAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95655.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95662.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F3DA6BDFB6B77BEB00FE232ACAE14367018D1122
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95665.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Roxy Music - The Best Of (2003) [FLAC|Lossless]<Rock, Glamour Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95676.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95678.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95689.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:4D30018C6FA2C6F6C62E3DE8DF440BAE9A186635
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95721.jpg" />
 </div>
 
 

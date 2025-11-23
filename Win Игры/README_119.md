@@ -6,7 +6,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33931.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33956.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33999.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Scrap Mechanic (2016) [Ru/Multi] (0.7.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34004.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Autopsy Simulator (2024) [Ru/Multi] (Build 153 413) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34005.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34010.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.8/dlc) Repack seleZen [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34011.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34020.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Forbidden Fantasy (2024) [Ru/Multi] (Build 16582417/dlc) Repack Let'sРlay [Supp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34022.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34033.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34035.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34045.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34065.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34087.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34089.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34092.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34102.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hot Wheels Monster Trucks: Stunt Mayhem (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34108.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ State of Decay 2 (2020) [Ru/Multi] (38/dlc) Repack FitGirl [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34113.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2/dlc) Repack Let'sРlay [Digital D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34135.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34139.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34158.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34165.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.30) License GOG [Digital Collector's E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34177.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34190.jpg" />
 </div>
 
 

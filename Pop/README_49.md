@@ -6,7 +6,7 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Triangle Sun - Wake Me Up (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117646.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117652.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VIVA - Осень (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117660.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117772.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117774.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117806.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117811.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117817.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mike Mareen - LP Dance Control (1985) Reissue, Remastered, 2022, Klaus Steiner S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117959.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117966.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:44035DDB8B99F612770E124E92C7FFE31FF89DD9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118090.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118091.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118109.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A30521C819195F42B248C1C541BEE11E6042CBA1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118123.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:31F7E07DA729370BBDAAB9550471005C610BCEF6
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118142.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Syntheticsax - Mirage (2021) [FLAC|Lossless|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118147.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Emin - Now or Never (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer-Songwriter
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118272.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118298.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118308.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Artik & Asti - Качели (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118329.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118454.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Digital Emotion - Digital Emotion (1984) 2024, 2CD Remastered Expanded Edition [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118469.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Elect
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118475.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Sanremo (2024) 2 x CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118476.jpg" />
 </div>
 
 

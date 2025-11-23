@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32156.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:57F18386C47642D9FB1DAFE9CFE034D00BDF684F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32361.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:063E8C2695DFF81E427BAF83233844804CE506F9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0EB9D8C8BBE47D733E7A1F044C0A32E2C5AE1EBA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32810.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:717BC70CE765D172078164A7F8D2DDCBEE3F11D9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33372.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FD83CA24DD057AE67F5741534E3288C6FB342902
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34328.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9684D68A1A83E9EEFD53BFDE6CE0C5D20622F0D7
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34831.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:08A4B1E5A3A3F4E45FBB70841B89FD05A2C62F3A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34929.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:AA005B9D1F66E9BC983BA5425C0F9E6E1AAFC866
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35055.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A14F7B90AE27F768B4409C9F184E93073C5FBD44
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35144.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D5D13CF8A6D13FFAAED6CBBCE96BFC09A913E2A4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35289.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:DC7E9AC6BDCC96E0205382886BE5171F90AA00A1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35369.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2828ED634C3BE4986E59556095C8A1B534204FCE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35557.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:93F886CE4ECEB3B7408C6740D8FBDFA3FEF3EA5A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35921.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FD8A82BDAA24E87EF4E26B06EB8F27969DDD6119
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35987.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:DDCE7E5A9160C6E9A556FA3FFD6A2FB3BA040B7D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37711.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:9BE3C44501898B312D8E9ED4B7FC61A9705E01D6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37952.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:519571115BBE49B1B7A55A6CA0887DA21861CF1F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38398.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:95B06478599D0B194666075C322358E88DD0E3BD
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38507.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:BF6E1137645ECCF281499B4C0DF0DA8E8E85E85E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39656.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:95FF1096B63D26EB6C9BA96AE66219D8F6D15A67
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39861.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:1A1708B8435EBCE876CF16D32BCED619B9D9EF95
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40529.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:8A47BF5EC89DF6F618AC58BDC9E85F14B9563247
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41374.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:0376740FF3BBEA88A4A31DBDC73830145F649BD7
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42174.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:DA2B1A0F5B65965F4AE96466D0DDAACD06CAF739
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42178.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:7561780608548DA99FE9E789F5E14BF019747F24
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42753.jpg" />
 </div>
 
 

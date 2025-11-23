@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F494DBD4F53F08340313F60E2D1E9113DC4F8B73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26921.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Process Lasso Pro 15.1.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26922.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7B437B48E9E99516543A07927B35E8F6ED8DAB96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26923.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7B437B48E9E99516543A07927B35E8F6ED8DAB96
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26924.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ISOLAND: Pumpkin Town v1.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26925.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ford Etis 1.7565 (11.2015) [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26926.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:21E52749BBFD0166E55206FA167A231CE617F602
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26927.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C0195F3F70434F555BA95851811D6B22BE245A96
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26928.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:53B953574C485A1E268C7744EED2D4263DBA6106
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26929.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3919EB2F521E8D62768E3E83B818F6D4F695575F
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26930.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26931.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ CCleaner 6.33.11465 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26932.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Songs of Silence (2024) [Ru/Multi] (1.2.0-d.8104) Repack FitGirl [Deluxe Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26933.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Topaz Photo AI Pro 3.5.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26934.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B139C94734202C7B800C6BDB0BCBB6526397111C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26935.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26936.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AE467D1A1E77839781E6317B1D96D4A68F513738
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26937.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:694BD6596E3763FAE216F10B788F81EFC24D3A77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26938.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:92E5829EB70B506062E00D1BB93B100F7539D176
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26939.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:80786F0D54EA18CBF1A2F14A263B9ED9C6E17AE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26940.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26941.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ventoy 1.1.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26942.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:6CF6EA7D26B2ACB925945A06A69D8A72C45C6234
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26943.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:03F520FBB2630D0325D880327F594403A310BC0E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26944.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Udemy, Leszek Pyrka | Master Camera movements in Blender - Create Awesome Videos
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26945.jpg" />
 </div>
 
 

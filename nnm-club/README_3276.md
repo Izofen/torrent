@@ -1,3 +1,84 @@
+###  Публикация: 1746669   (104858) от 01.09.2024
+
+Ian Wilde - Dream Hunter (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready Now (4:41)
+02. Secretly In Love (4:24)
+03. My Heart Is Yours (4:14)
+04. Roaring Angels (4:26)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59EDF4AF21A3B752EB57DEDB64B1FF425752A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746601   (104859) от 01.09.2024
+
+Quantifier - The Ordinary Strain (2024) [MP3|320 Kbps] <Progressive Sludge Metal, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lapse [00:03:13]
+02 - Featherweight [00:07:58]
+03 - The Wake [00:05:16]
+04 - Omen of Shade [00:05:11](   Читать дальше...   )Жанр: Progressive Sludge Metal, Pop RockПродолжительность: 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775786C3EE3596A9AF4B96998C170EB6A6708F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746690   (104860) от 01.09.2024
+
+Curtis Erdek - Fuktrump (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America Trumpt 03:40
+02. Blinded By The Stream 03:36
+03. Decadent Donnie 04:00
+04. Hate Brings Pain 03:42(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30AABC628DC51CA03C60A14E6998FFF5A1625C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746693   (104861) от 01.09.2024
 
 Byron Nemeth - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal Prog>
@@ -6,7 +87,7 @@ Byron Nemeth - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104861.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Wall - Brick by Brick (2024) [MP3|320 Kbps] <Sludge Rock, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104862.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104863.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:9E9E6FE0B7D821906C332F776D796449422F1C14
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104864.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ magnet:?xt=urn:btih:BAFE39EC251E6A9ABD74A66C3F86032834CE4D48
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104865.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ magnet:?xt=urn:btih:60633D4439AA9230D1D99B14482D4046D49BC052
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104866.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ GeoGebra 6.0.853.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104867.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ magnet:?xt=urn:btih:10A799E3854BB450E0B7AB9292FEEB898E0CEBBA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104868.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ VA - Ibiza XXL - Best Of Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104869.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ magnet:?xt=urn:btih:DD49C72B27FE675C12E732689D3FB9CFB7B8A4D4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104870.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ VA - Free To Dance, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104871.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ VA - Bodrum Summer Festival (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104872.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ magnet:?xt=urn:btih:F52D244597F6D4742F12258CF29D69C3ED332027
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104873.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ VA - Armin van Buuren - A State Of Trance 1188 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104874.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ magnet:?xt=urn:btih:77505A38EE4983D24A306934952CDB55282A13B8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104875.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:2CCCDB331F3E9C0A9E367D3DD0E43B822EC31524
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104876.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ Palace - Reckless Heart (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104877.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Saint - Immortalizer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104878.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ magnet:?xt=urn:btih:AF0C7FA3C593C1EED006849E3C7AF2FDF8DAFE8F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104879.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ magnet:?xt=urn:btih:DD01585942624EE00181A7563FCA184F8EBCF24F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104880.jpg" />
 </div>
 
 
@@ -518,7 +599,7 @@ magnet:?xt=urn:btih:0EAF2EC1BE6C734CF097BC14D6122733FADFEFA9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104881.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ magnet:?xt=urn:btih:C15C6A5185C4F599AF8EFFBC50C33A6E167147BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104882.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ magnet:?xt=urn:btih:3BA5FC30B7B67FADEE12FFDB19421EBEA43A427F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104883.jpg" />
 </div>
 
 
@@ -583,80 +664,6 @@ magnet:?xt=urn:btih:3BA5FC30B7B67FADEE12FFDB19421EBEA43A427F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FACC4115A291E033A2F6E4643BE1A0C1CCE756C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746435   (104884) от 31.08.2024
-
-Газета | Невыдуманные истории №34 (438) (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104884.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5EB44EA74774BD9D4073E7EA813D528C68BAEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746537   (104885) от 31.08.2024
-
-MotoGP. Этап 12 из 20. Гран-при Арагона. Квалификация (31.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104885.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 августа 2024, суббота. 11:50 МСК. Этап 12 Альканьис. Гран-при Арагона. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746433   (104886) от 31.08.2024
-
-Газета | Невыдуманные истории №33 (437) (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104886.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D607AEF00A98C5F4990EE1C58098C3A34AF2C4CB
 ```
 
 

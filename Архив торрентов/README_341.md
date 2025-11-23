@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83261.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:28C58F6C5A6CDC38189F47AEA5883BFEA7B18D48
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83263.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0A5D308F2368AF554E205FFDEFFA6CBDC182C7F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83271.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F0A5D308F2368AF554E205FFDEFFA6CBDC182C7F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83272.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E51A7D05ED79CDB8D3E397C30F612D687E6F2F31
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83273.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:10D6849E6CF25515FC882C0345E8DAD58A99DC1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83281.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5311FFA1EE35BBD308DEFEC922545C66E4FDB11D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83283.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Sensation "Innerspace" -  Belgium'12 (17-03-2012)(Hasselt’s Ethias Arena)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83284.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83292.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83293.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83299.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83303.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83304.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ The KMPlayer 3.2.0.12 Final Portable by PortableAppZ + Skins [Мульти, ес
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83312.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Slim - Весна-Лето [EP] (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83314.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83319.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83324.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:DA7B1F64088CE050868CE4D6BDFD8293D45C2948
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83325.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B74EC638DFA300DCD06376DBC89701FC96593807
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83326.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Dr.Web CureIt 6.0.16 от 16.03.2012 года[Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83330.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Dr.Web CureIt! 6.0 - Бесплатный антивирусный сканер 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83332.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83345.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:C46EE8AD503DDED95036D75F37C95C0A82F560C5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83346.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Gunrox (L) [Ru, Ua, En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83356.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:60C5B4269FE3DAB78946C40F2E1D82930BD767A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83361.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:FDCB6BBA7105F157AE4C4ED2D22F0E78EC149E7D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83370.jpg" />
 </div>
 
 

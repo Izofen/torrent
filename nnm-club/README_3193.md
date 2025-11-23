@@ -1,3 +1,80 @@
+###  Публикация: 1822821   (102699) от 08.10.2025
+
+Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящен полному процессу скульптинга твердых поверхностей в Blender, начиная с рисования эскизов и заканчивая готовой трехмерной скульптурой. Попутно мы изучим базовые и продвинутые инструменты и кисти для создания скульптур. Затем мы также углубляемся в создание потрясающих материалов, таких как альфа-текстуры, карты смещения плиток и кисти VDM для твердых (   Читать дальше...   )Производство: Blender SecretsЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 16:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E39620C708B6F3F7BBEEDDC3D829AAADABAB5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822832   (102700) от 08.10.2025
+
+Шрифты - Behance - Pixel Surplus - Bowler - 158232363 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102700.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Bowler" Владимира Кленова - это бесплатный шрифт, предназначенный для использования в больших форматах и позволяющий эффективно создавать привлекающие внимание заголовки.
+"Bowler" - бесплатный шрифт для личного и коммерческого использования.
+Материал раздаётся с официальной документацией.Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0C0E40F500CA5BB7B1DAE5906ED8D26158E796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764549   (102701) от 07.12.2024
+
+Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke In Your Eyes (3:20)
+02. Moonlight in Vermont (3:29)
+03. Together Again (3:22)
+04. The Touch of Your Lips (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83577B344D63DA06FF6BFA2F16B93414A10E95D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764612   (102702) от 07.12.2024
 
 RegCool 2.019 + Portable [Multi/Ru]
@@ -6,7 +83,7 @@ RegCool 2.019 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102702.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102703.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102704.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102705.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102706.jpg" />
 </div>
 
 
@@ -137,7 +214,7 @@ Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102707.jpg" />
 </div>
 
 
@@ -164,7 +241,7 @@ VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102708.jpg" />
 </div>
 
 
@@ -191,7 +268,7 @@ VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102709.jpg" />
 </div>
 
 
@@ -218,7 +295,7 @@ magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102710.jpg" />
 </div>
 
 
@@ -243,7 +320,7 @@ Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Nig
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102711.jpg" />
 </div>
 
 
@@ -270,7 +347,7 @@ SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102712.jpg" />
 </div>
 
 
@@ -294,7 +371,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -318,7 +395,7 @@ magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102714.jpg" />
 </div>
 
 
@@ -343,7 +420,7 @@ magnet:?xt=urn:btih:CC7E8B13E85A90C91A87BCB11EDDFE5274423082
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102715.jpg" />
 </div>
 
 
@@ -367,7 +444,7 @@ Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102716.jpg" />
 </div>
 
 
@@ -394,7 +471,7 @@ White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102717.jpg" />
 </div>
 
 
@@ -421,7 +498,7 @@ High Parasite - Forever We Burn (2024) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102718.jpg" />
 </div>
 
 
@@ -448,7 +525,7 @@ Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102719.jpg" />
 </div>
 
 
@@ -475,7 +552,7 @@ Von Panzer - Iron and Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102720.jpg" />
 </div>
 
 
@@ -502,7 +579,7 @@ My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102721.jpg" />
 </div>
 
 
@@ -528,7 +605,7 @@ The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102722.jpg" />
 </div>
 
 
@@ -555,7 +632,7 @@ The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102723.jpg" />
 </div>
 
 
@@ -582,7 +659,7 @@ magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102724.jpg" />
 </div>
 
 
@@ -593,81 +670,6 @@ magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F9EFD9050405A77A27B62C669C5867CFED3DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764239   (102725) от 06.12.2024
-
-The Vazeline - Панк для молодых (2024) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102725.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Панк для молодых
-2. Разблокируйте панкам Тайгу
-3. Панки не танцуют танго
-4. Нам здесь не будет весело(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9CB441F58C65D31E430F6F9D2FF1AEE0509597
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764359   (102726) от 06.12.2024
-
-Любимые мультфильмы кота Леопольда. Выпуск 5. Приключения Фунтика (1978-1988) DVD5 [Крупный план]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые мультфильмы кота Леопольда. Выпуск № 5: Приключения Фунтика (Фунтик и сыщики, Неуловимый Фунтик, Фунтик и старушка с усами, Фунтик в цирке, Муми-Тролль и другие, Муми-Тролль и комета, Путь домой)Производство: СССР / ТО "Экран"Жанр: рисованная анимацияРежиссер: Анатолий Солин, Аида Зябликова, Нина ШоринаАктеры: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Спартак Мишулин, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Юрий Волынцев, Зиновий Гердт, Ольга Гобзева, Зинаида Нарышкина, Юрий Яковлев и другиеСубтитры: отсутствуютПродолжительность: 00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764286   (102727) от 06.12.2024
-
-Любимые мультфильмы кота Леопольда. Выпуск 2. Про тигренка и его друзей (1983-1987) DVD5 [Крупный план]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые мультфильмы кота Леопольда. Выпуск № 2: Про Тигренка и его друзей (По дороге с облаками, Подарок для слона, Клад, Девочка+дракон, Малиновое варенье, Забытый день рождения, Крококот, Вреднюга и др.)Производство: СССР / ТО "Экран"Жанр: мультфильм, короткометражка, детскийРежиссер: Юрий Бутырин, Юрий ТрофимовАктеры: Зинаида Нарышкина, Зоя Пыльнова, Александр Маркелов, Рогволд Суховерко, И. Воронцова, Зинаида Нарышкина, Клара Румянова, Раиса Мухаметшина, А.Баталов, Ролан Быков и другиеСубтитры: отсутствуютПродолжительность: 00:09:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE32A0404F5FBCB6F7EE63EB35FB7F3BCC0192A
 ```
 
 

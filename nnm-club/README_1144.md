@@ -6,7 +6,7 @@ Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30097.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30098.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:7EAFF6347A4EE3F05C70C38159D5443AC3B61EA3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30099.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30099.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A6F4E18CCFE1E0B20136F1A5A25FCFBD043DFF19
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30100.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30101.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30101.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30102.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30102.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30103.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30103.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30104.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Fabienne Ambuehl - Thrive (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30105.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30106.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30106.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30107.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30108.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30108.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30109.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30110.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ David Rodgers - Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30111.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Brad Goode - Polytonal Big Band: The Snake Charmer (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30112.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30112.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F7EED054AA046952C40D9A38333801C3EF0AC83B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30113.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Hero’s Adventure v1.2.99 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30114.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.3 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30115.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D9E5D659BC4A07693A9EF751754A9A150D027119
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30116.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Altair PSIM 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30117.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Altair PollEx 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30118.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Music News For Forum vol.056 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30119.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30119.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:49A3A1E89575334972CC2B91886997921BB406D1
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30120.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30120.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:7E43E98C170841411997CAA21FCC8F94318C6C13
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30121.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:8A6C7517C20B694C3E9C9B029310895F9E1F7753
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30122.jpg" />
 </div>
 
 

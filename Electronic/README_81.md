@@ -6,7 +6,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118958.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118976.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119326.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119349.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119357.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119443.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Groove C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119460.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sam Feldt - Tomorrowland Friendship Mix (2024-02-01) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119464.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Saturday Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119466.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - EDM Gaming Files (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119490.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Armin van Buuren - A State Of Trance 1158 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119599.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Sound of 2024 Mix 1: Medellín (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119622.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Billie Piper - She Wants You (1998) Remaster, 2024, Virgin Records Limited [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119627.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Trends In Trance, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119629.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Movement Vol. 1 (Live from Goa - Mixed By James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119634.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Best Of Uplifting Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119641.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ San Valentin - Valentine's Day (2014) [MP3|320 Kbps] <Instrumental Pop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119643.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Infected Mushroom - REBORN (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Ele
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119672.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Infrasonic Winter Selection (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119768.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ INVRS - Live @ Ural Mountains for SE:VER, Russia (2024-01-23) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119775.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Live @ Neon Countdown Festival, Thailand (2023) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119804.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ V.A. - Buddha-Bar Beach & Love by Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119812.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ DJ KUBA & NEITAN - Live @ Skandalizer x Level27, Poland (2024-01-19) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120276.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Depeche Mode - Speak & Spell (1981) 1st German Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120305.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Miss Monique - Yearmix 2023 (2024-01-26) [MP3|320 Kbps] <Progressive House, Melo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120321.jpg" />
 </div>
 
 

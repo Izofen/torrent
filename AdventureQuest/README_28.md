@@ -6,7 +6,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41291.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41309.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41393.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41397.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41428.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41491.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41715.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41814.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41846.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41945.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41962.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42023.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42058.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42077.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42079.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42105.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42116.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42152.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42171.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42176.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42463.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42541.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42543.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42588.jpg" />
 </div>
 
 

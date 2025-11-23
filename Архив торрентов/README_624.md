@@ -6,7 +6,7 @@ ToonMe 0.6.95 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133733.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AnyBurn 6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133734.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6B01D73F884F4D2556B4D66CC680D6DB75C6AAF0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133736.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ableton Live Suite 12 Beta 12.0b20 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133737.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Mirillis Action! 4.38.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133739.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Glary Disk Explorer 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133746.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Affinity Photo 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133748.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:84E5B9A55644FC0AAFD97EF45AB2564B85902934
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133751.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Future Progressive Trance Classics Vol.9 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133758.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Butterfly - NYE 2012 on ES Radio (24.12.2012) [MP3|320 кб/с]<Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133762.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:3F69838096E25B723DBE84C9E0AC0A48ADCBF5AE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133766.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Firefox Browser 120.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133771.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ GPU-Z 2.56.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133779.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Adobe Photoshop Express 11.7.176 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133781.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Ultra GPS Logger 3.194u Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133793.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Affinity Designer 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133797.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lark Player - YouTube Music & Audio Player 5.65.10 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133808.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Glary Disk Cleaner 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133810.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Contre Jour [Игра] (Android)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133811.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Chromium 119.0.6045.200 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133812.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kaspersky CRYSTAL 13.0.2.558 RC [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133813.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Affinity Publisher 2 v.2.3.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133819.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Adobe Photoshop Express 11.7.176 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133829.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:A854A1299F9F375153FEEA9EA2A0F6D00B6C766C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133830.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Process Lasso Pro 12.4.3.14 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133835.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C56460B2F07A73194F9BA3F6532DB02815FA5CA1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133843.jpg" />
 </div>
 
 

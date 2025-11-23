@@ -1,3 +1,84 @@
+###  Публикация: 1760821   (103141) от 16.11.2024
+
+Дмитрий Райс - Я счастливчик (2013) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цунами (acoustic)
+02. Капли дождя
+03. Life-Кайф
+04. Не замерзай(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C0C9AA222C14650EC37125FF568E3E5E3EF0C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760880   (103142) от 16.11.2024
+
+Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ooh Yeah! (2:53)
+02. Whatcha Gonna Do Now? (4:28)
+03. Baby, I'm Your Man (2:24)
+04. Sailing With The Sunset (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760812   (103143) от 16.11.2024
+
+Анита Цой - Твоя_А (2011) CD+DVD [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Разбитая Любовь
+ 03. Твоя_А
+ 04. Ну И Пусть(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45B2509B4BB037370A12E0380C7160FEA639FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760888   (103144) от 16.11.2024
 
 MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +87,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103144.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:B52BF9B909408C3E1E1079DA33E67A80E1D7EFAF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103145.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103146.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103147.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103148.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103149.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103150.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Beast - Ancient Powers Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103151.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Rochelle & the Sidewinders - Soul Kiss (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103152.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ VA - Sahaliittoteoria Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103153.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103154.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ VA - Best of Celestial (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103155.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ magnet:?xt=urn:btih:776988599840400227D28726C98B3DD21905C98D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103156.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ Firefox Browser 132.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103157.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ Marshmello - The Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Riddim Dubstep, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103158.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ magnet:?xt=urn:btih:3076B3D44092ADF7FB05337F802A94C0068C4716
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103159.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ magnet:?xt=urn:btih:6B22616EA5E6BF847D4C2CF077449A0179609BA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103160.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ magnet:?xt=urn:btih:26C4ED81728ECB711F25E1CC8F4C720AA254BF9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103161.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ magnet:?xt=urn:btih:0C928450A94B347F19CF63D231E8D54652B18CD1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103162.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ Various Artists - Lullabies For Little People (Колыбельные для м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103163.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ magnet:?xt=urn:btih:1DE1A955B19F6318C80AA0619841B5A45F9BEED6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103164.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ magnet:?xt=urn:btih:51B01B6076416EBFEE25330BFED8F0F1E6DEF6AC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103165.jpg" />
 </div>
 
 
@@ -577,7 +658,7 @@ VA - D.Trance 108 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103166.jpg" />
 </div>
 
 
@@ -591,84 +672,6 @@ VA - D.Trance 108 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DCDE7C40B17CFBC6820C7D509EAE71B2145726B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760792   (103167) от 16.11.2024
-
-Поедем, поедим! Тверская область: медвежий угол, полеты на зиплайне, Селигер и пожарские котлеты (16.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди в Тверской области побывал в историческом имении генерала Куропаткина и научился готовить его любимые щучьи котлеты, посетил живописный монастырь на озере Селигер, полетал на зиплайне и даже забрался в медвежий угол. А еще ведущий продегустировал макароны от Гальяни и знаменитые пожарские котлеты.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5369627B7E4DB9E42F0378E2B2F2388063514E27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760624   (103168) от 15.11.2024
-
-Баскетбол. Суперкубок России 2024. Женщины. НИКА - УГМК (23.10.2024) WEBRip [35 FPS] [H.264]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ср, 23 окт. 19:30, Сыктывкар, КСК "Лузалес-Арена"
-Суперкубок России | Сыктывкар | 23.10.2024
-
-В Сыктывкаре состоялся матч за женский баскетбольный Суперкубок России. Обычно в нем встречаются победители Кубка России и чемпионата России прошлого сезона, но так как «УГМК» забрал оба трофея, в матче за Суперкубок «лисицам» противостоял финалист Премьер-лиги (   Читать дальше...   )Телекомпания: Мир баскетболаЖанр: спорт, баскетболЯзык озвучки: РусскийПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543BD1F536C4C38B881A66A957066597E66D3FC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760669   (103169) от 15.11.2024
-
-Letdown. - Be OK (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hate Myself [2:58]
-02 - Dead Right [2:44]
-03 - Raincoat [2:35]
-04 - Déjà Vu [2:48](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Rock, Indie RockПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA807B8E555F5BE84749D67B0D1453CE2B527AE
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16563.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAC32ABBDEA5C92FF8E67CF069C8C056D245F381
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16564.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ INDIGO | Фортуна дама переменчивая (Книга 11). На 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16565.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ INDIGO | Фортуна дама переменчивая (Книга 10). На 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16566.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ INDIGO | Фортуна дама переменчивая (Книга 9). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16567.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ INDIGO | Фортуна дама переменчивая (Книга 8). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16568.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ INDIGO | Фортуна дама переменчивая (Книга 7). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16569.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ INDIGO | Фортуна дама переменчивая (Книга 6). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16570.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ INDIGO | Фортуна дама переменчивая (Книга 5). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16571.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ INDIGO | Фортуна дама переменчивая (Книга 4). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16572.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:27D2E914CCBED59E031C065E9CD470FEBBD7D403
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16573.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:AF6E9D030D716645162823B0D0B3BC4BC340E2FB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16574.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16575.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:DE7F5A5F453B6FC6E9042C13C8D07BEFC81BF29D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16576.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DE7F5A5F453B6FC6E9042C13C8D07BEFC81BF29D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16577.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Dance Cover - The Best of 2025 (2025) [MP3|320 Kbps] <House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16578.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16579.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:5EA5ACDA14926BDBA8C01FE6E469E70CBB3C8A35
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16580.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D3757F8BED27789C9BB4A595AF66A1B0C30B9D4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16581.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16582.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D1C3E3FBACCDED995B012F9C321D0455C75F2733
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16583.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D1C3E3FBACCDED995B012F9C321D0455C75F2733
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16584.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:070A5785C6F5F1205DB3E0CE53251C181EFE3453
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16585.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Atlantis Word Processor 4.4.6.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16586.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:B520302FEF7978BF11F86773114A1CC6620FB211
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16587.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Internet Download Manager 6.42 Build 39 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16588.jpg" />
 </div>
 
 

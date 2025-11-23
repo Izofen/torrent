@@ -1,3 +1,100 @@
+###  Публикация: 1672003   (171079) от 26.10.2023
+
+CheckBook Pro 2.7.26 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171079.jpg" />
+</div>
+
+
+###  Подробнее
+
+CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B79A4F85D02E9271B8298E8C1F24F5DCCB74759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671913   (171082) от 26.10.2023
+
+MetaRename for Mac 1.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171082.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2012-2023 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC73A78EF9597795F4058A6C86A4F7793158F44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671762   (171087) от 26.10.2023
+
+Airtool 2 v.2.5.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2022 Intuitibits LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B5C217EA050942F12AAD512DEA8A09309ADA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672000   (171093) от 26.10.2023
+
+Author 9.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
+Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2007-2021 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA285B71E6A1168015A69621ECD3F62224CFE684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672007   (171096) от 26.10.2023
 
 Integrity Pro 12.8.0 [En]
@@ -6,7 +103,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171096.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ Cookie 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171097.jpg" />
 </div>
 
 
@@ -55,7 +152,7 @@ Adguard 7.15.1 (7.15.4386.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171127.jpg" />
 </div>
 
 
@@ -79,7 +176,7 @@ uTorrent Pro 3.6.0 Build 46904 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171131.jpg" />
 </div>
 
 
@@ -103,7 +200,7 @@ MiniTool Power Data Recovery 11.7 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171147.jpg" />
 </div>
 
 
@@ -127,7 +224,7 @@ R-Studio Network 9.3 Build 191251 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171149.jpg" />
 </div>
 
 
@@ -151,7 +248,7 @@ Google Chrome 118.0.5993.118 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171151.jpg" />
 </div>
 
 
@@ -175,7 +272,7 @@ XnConvert 1.99.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171153.jpg" />
 </div>
 
 
@@ -200,7 +297,7 @@ WinToHDD 6.2 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171155.jpg" />
 </div>
 
 
@@ -224,7 +321,7 @@ Google Chrome 118.0.5993.118 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171156.jpg" />
 </div>
 
 
@@ -248,7 +345,7 @@ Aiseesoft FoneLab for Android 5.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171157.jpg" />
 </div>
 
 
@@ -272,7 +369,7 @@ Capture One 23 Pro 16.3.0.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171159.jpg" />
 </div>
 
 
@@ -297,7 +394,7 @@ Opera One 104.0.4944.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171162.jpg" />
 </div>
 
 
@@ -321,7 +418,7 @@ Alt SwitchER 21.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171166.jpg" />
 </div>
 
 
@@ -345,7 +442,7 @@ ApowerREC 1.6.7.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171168.jpg" />
 </div>
 
 
@@ -369,7 +466,7 @@ DVDFab StreamFab 6.1.4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171169.jpg" />
 </div>
 
 
@@ -393,7 +490,7 @@ Topaz Video AI 4.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171170.jpg" />
 </div>
 
 
@@ -417,7 +514,7 @@ Microsoft .NET 6.0.24 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171171.jpg" />
 </div>
 
 
@@ -442,7 +539,7 @@ Microsoft .NET 7.0.13 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171174.jpg" />
 </div>
 
 
@@ -467,7 +564,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.41
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171177.jpg" />
 </div>
 
 
@@ -491,7 +588,7 @@ O&O Defrag Professional 27.0 Build 8046 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171180.jpg" />
 </div>
 
 
@@ -516,7 +613,7 @@ Duolingo: изучай языки 5.125.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171185.jpg" />
 </div>
 
 
@@ -527,106 +624,6 @@ Duolingo: изучай языки 5.125.4 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:891A119C4E519B644CFA391EEFCF29E0347130A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671661   (171187) от 25.10.2023
-
-DxO PureRAW 3 for Mac v.3.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
-С программным обеспечением DxO PureRAW легко и просто улучшить  файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C151C0C81DC2EBB2E770C237E69787833FF023D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671687   (171188) от 25.10.2023
-
-O&O Defrag Professional + Server 27.0 Build 8046 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171188.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого диска. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7701BEA5477B3D450895EE834061D70E53CB1DFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671710   (171192) от 25.10.2023
-
-R-Wipe & Clean 20.0.2427 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171192.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16D16D55FF9F822DE608D9D6D777B670BBD194A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671702   (171194) от 25.10.2023
-
-Alfred PowerPack 5.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A5807570EFD5117A4F6564C678AC5C3F853A7D
 ```
 
 

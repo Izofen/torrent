@@ -1,3 +1,78 @@
+###  Публикация: 1690370   (123942) от 07.01.2024
+
+Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shakin'_Shaken [00:03:20]
+02 - Light the Fuse [00:03:27]
+03 - Atomic [00:03:27]
+04 - When It All Goes Down [00:03:23](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690441   (123943) от 07.01.2024
+
+Журнал | Юный ученый №1 (75) (2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EBE86B2A4B9EB30718A15D232C3B05B16FE0A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690469   (123944) от 07.01.2024
+
+Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Фауст борется с монстрами вот уже 400 лет. Но он стар и немощен. Он посвящает свою магию мальчику по имени Акума-кун. Акума-кун вызывает волшебника Мефиста для истребления монстров.Производство: Студия Toei Animation / 東映アニメーションЖанр: приключения, фэнтезиРежиссер: Сато ДзюнъитиПеревод: hokuto_sanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7577AE1BB262C84C61676598EAF7C36267D1F014
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690393   (123945) от 07.01.2024
 
 Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
@@ -6,7 +81,7 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123945.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Vivaldi 6.5.3206.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123946.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Chromium 120.0.6099.200 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123947.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:374B50BAFF94FC7C889E22A1EAFFA2FD8B9B1498
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123948.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:3CAF602A0002746874D583010DA09E8D890F90C1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123949.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:D47294A35C25B0D8E0B82CC35EC1947550E0A714
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123950.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:96418B640751E6545642935DBDD64BB2AC20D461
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123951.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:90A333C108FD19CBBD4060DBE85FBA605B7FB578
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123952.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ Fates of Ort (2020) [En] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123953.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123954.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:18A904ADE92F0BDC9B2477C2CB8FE1B752F6D6D2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123955.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ magnet:?xt=urn:btih:50BE92E4BC36F7CFE473DE078A2C740EC7989C7B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123956.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ magnet:?xt=urn:btih:1BC0131557E8422D385114FB1C6C6B3E6B734FD6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123957.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ magnet:?xt=urn:btih:DC4218E0E565F1453224F8D2D4CDC4854C8A27B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123958.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ magnet:?xt=urn:btih:ECA951DC6EBFA1E750F1BEE33838948124C05446
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123959.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123960.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123961.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ OZI: Карта Нижегородской области ТОПО 20xx год [
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123962.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ magnet:?xt=urn:btih:46DAD939F69F91C580913DF65F920140E85EFFE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123963.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ Brave Browser 1.61.114 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123964.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:C6AB1C7D7A8EAD42BBD82D28D90658655B47171C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123965.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:B46B8942AB66458811CD3A8184BFA0DBC780649B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123966.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123967.jpg" />
 </div>
 
 
@@ -552,78 +627,6 @@ magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C45C24BF2A40802452D211360E4D3E96CBF238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690407   (123968) от 07.01.2024
-
-Ёлки 10 (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123968.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новогоднюю ночь всегда есть место чуду, даже если ты вдруг перестал в него верить. Геннадьич, коротающий свой век в доме престарелых под Санкт-Петербургом, обретёт свою настоящую семью. Начинающей блогерше Ларисе из Тюмени предстоит узнать, на что ради своих близких готов решиться её супруг. Марине из Татарстана — научиться любить то, что действительно важно для (   Читать дальше...   )Производство: Россия | Bazelevs, ООО «Кулик Продакшн», OkkoЖанр: комедияРежиссер: Дамир Мифтахов, Иван ЧеховАктеры: Елена Валюшкина, Галина Польских, Юрий Кузнецов, Борис Щербаков, Регина Тодоренко, Егор Корешков, Филипп Киркоров, Виталий Кищенко, Ольга Дибцева, Александр БашировСубтитры: русскиеПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E96B1752F8F7E3E2D2289259A10EBC6B5671D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596502   (123969) от 07.01.2024
-
-Вихри враждебные (1953) HDTV [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о первых годах становления советской власти, о жизни и деятельности Феликса Эдмундовича Дзержинского в 1918-1921 годах. Вышел на экраны в 1956 году с изъятыми сценами со Сталиным в исполнении Михаила Геловани.Производство: СССР / МосфильмЖанр: драма, биографияРежиссер: Михаил КалатозовАктеры: Владимир Емельянов, Михаил Кондратьев, Михаил Геловани, Леонид Любашевский, Владимир Соловьёв, Иван Любезнов, Алла Ларионова, Виктор Авдюшко, Георгий Юматов, Владимир БорискинПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B61B6C6185D4969D25A4FC97E90EAEC67ED489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690458   (123970) от 07.01.2024
-
-Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается вокруг миленьких и очень привлекательных ведьмочек, которые будут постоянно сражаться друг с другом в этой уникальной комбинированной игре-головоломке с ритмом! Здесь вы должны будете бросать блоки в ритме, дабы таким образом постараться победить и раздеть своих врагов.Тип издания: LicenseРазработчик: ForgimeЖанр: Action, Puzzle, ComedyЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 ```
 
 

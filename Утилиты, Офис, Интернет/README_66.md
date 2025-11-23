@@ -1,3 +1,76 @@
+###  Публикация: 1834706   (250506) от 
+
+OCCT 15.0.7 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B654F30CAB5624BBA0A3ABC44F2C9B5C1483ADBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835197   (250534) от 05.11.2025
+
+O&O Defrag Professional & Server 30.5 Build 1201 [En/De]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250534.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
+При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EBACFAB61DAF5A68588614B67EBB7A3C73BA39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835162   (250567) от 05.11.2025
+
+YT Downloader 9.17.17 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250567.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835103   (250577) от 05.11.2025
 
 3D Youtube Downloader - Batch 2.16.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +79,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250577.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250577.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/R
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250579.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250579.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ YT Downloader 9.17.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250596.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250596.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250640.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250640.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ AmoyShare AnyVid 10.9.5 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250728.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250728.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Flyoobe 1.51 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250729.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250729.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Social Media Downloader 7.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250742.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Google Chrome 142.0.7444.135 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250747.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ OBS Studio 32.0.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250796.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250796.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ Duplicate Cleaner Pro 5.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250803.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ MediaInfo 25.10 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250814.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250814.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Chromium 142.0.7444.135 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250815.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ OneCommander Pro 3.103.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250852.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ O&O Defrag Professional + Server 30.5 Build 1201 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250891.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 29.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251228.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ Process Lasso Pro 16.1.0.46 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251686.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Advanced Renamer 4.19 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251690.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251690.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ YT Downloader 9.18.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251692.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251710.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251711.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Process Lasso Pro 16.1.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251712.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Adobe Acrobat Pro 2025.001.20844 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251729.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251729.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ Quick Wallpaper Pro 1.0.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251740.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251740.jpg" />
 </div>
 
 
@@ -556,78 +629,6 @@ Quick Wallpaper — это программное обеспечение, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D79E26F2BD80128C55FF6D8553990F3FD956173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835945   (251779) от 08.11.2025
-
-Any Video Downloader Pro 9.7.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FB350CD2EEEEAFB1C4408B53CCD6A698BDF73B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835941   (251783) от 08.11.2025
-
-Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6036C849853FECE20CB7A47E1548E4333F0B31B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835937   (251785) от 08.11.2025
-
-Wise Care 365 Pro 7.3.2.716 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CA5DDFD62F1AA52E7445A4DA26EE7A294184C9
 ```
 
 

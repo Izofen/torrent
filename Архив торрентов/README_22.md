@@ -6,7 +6,7 @@ GPU-Z 2.67.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iTubeGo YouTube Downloader 10.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10517.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5A714D868D7ACDBA41C169939A8288C36619EDD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10523.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CCleaner 6.38.11537 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10524.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FF6720635363A8204AEEF0DF4B8C69E769292F4C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10527.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B1924634696FDC4198C8E0ECD82FA7F301CD1B86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10532.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A7CBFDCA8EC4BD8E9B0ECBC5A386734513D41185
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10538.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CCleaner 6.38.11537 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10560.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ TuneIn Radio Pro v39.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10564.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ YT Downloader 9.12.21 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10567.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MediaHuman YouTube Downloader 3.9.15 (2107) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10585.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ OCCT 14.2.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10593.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ LazyMedia Deluxe v3.395 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10604.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PDF-XChange PRO 10.6.1.397 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10608.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DxO PhotoLab Elite 8.7.1 build 633 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10610.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ NVIDIA GeForce Desktop Game Ready 577.00 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10611.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:18B98312CFF7541E6DB6399E2BA18B22BBE8B72E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10612.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ WinTools.net Premium 25.8.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10616.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Vanced Tube v5.4.80.182 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10622.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ jetAudio HD Music Player Plus v12.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10623.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:0A732C44F0CE4B163DC1D53E3CA39EA1D885EA2C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10634.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ PDF-XChange Editor Plus 10.6.1.397 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10640.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ FBReader Premium v3.8.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10648.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Wondershare UniConverter 16.5.7.315 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10651.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ PotPlayer 250625 (1.7.22570) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10653.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ocenaudio 3.15.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10667.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66502.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66503.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66504.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Th
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66505.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66506.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66507.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:397E6850FE3C451CDB425B07A4398DC6F07486FA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66509.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:FD18EE1F8209D9545165517B28537899993AB9B5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66510.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:CEABC40B778ED1B3E2782E39C5E6D5C31484E98D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66511.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:9DF96F6D1030528A747A1FBD810C95111A259F34
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66512.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66513.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66514.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66515.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66516.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66517.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66518.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66519.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66520.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66521.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B5EF18A3883A020FE45E408F24F7853FF14568FB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66522.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:30719CA1C2255348A340121F1908620EA052F707
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66523.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D71BAC6378679C8DF6A0F40A85822E088C77C918
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66524.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66525.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66526.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66527.jpg" />
 </div>
 
 

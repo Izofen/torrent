@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25828.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shazam v15.11.0-250225 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25829.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25830.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AB98FB780F10AADA2B7AD7CE3F0AFDB4215D8278
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25831.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:317BD7A408D4EA622A60C9807695FE35C174D2B3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25832.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0742AE22C60F99F2E94E0AB694A778C0E36D8D83
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25833.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25833.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5F59B17047B22234DD13E0222D131B281B04D853
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25834.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25834.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D27787C17D28BE54D08432D4637C5BFCC3B65B97
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25835.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:66D7B59F8C6025747F069ABFD425CF705D538BA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25836.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F750AEC0A431AFD74E6497762746247DF8C3D532
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25837.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:25E27667FD1E07F724B8ED573DD43BCB18FC85CE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25838.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25838.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dream Tactics (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25839.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25839.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F8A63893099468888294E841178CC625C058A52E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25840.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:4F73730722C75072011BBA9F2CB1C102FCA00F9E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25841.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A3EE3F99BE09102144E624352135DB4BEC83153A
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25842.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25842.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:BD301ECD11E48F89E03E17E5A388AEB0B428A1DD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25843.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25843.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wise Registry Cleaner Pro 11.1.10.725 RePack (& portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25844.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25844.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A4BFDAB6BB00128323D437FE21FBC37C280B117E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25845.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25845.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:A8B5CD19322D6A00C70D8F4C44D9811FC68E3B56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25846.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25846.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:879D244B3D3764AB655C50B0A3A4EB18A958E325
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25847.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25847.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:56DE91E67AB26282BB5D83B5478DF272410B2178
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25848.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C77E82FBF73E8BA6B46455A2AC2164720EEE7910
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25849.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D8192A861AA776432D82223485156BACC7A8F32F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25850.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:706206E1B7F5FA4BC0A10C2DA0412BBC24F108E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25851.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25851.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ HDCleaner 2.088 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25852.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wise Program Uninstaller 3.2.3.266 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25853.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25853.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48221.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48222.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0C3E3698E6DA1D4DD13CD5558A0072841CEA15E2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:08D5082BB62B181C06A3CE3955164EE08B7CDB2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48224.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B4B29BBDBB33C1AC0B41EC715301A8C1A40AADD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48225.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6A214A91DDA260F3200746CE9306B5DFA20548F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48226.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A1559392177F259564A53B71F7FB116544AF36C7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48227.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Youtube Downloader HD 5.8.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48228.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8E7234B24EA502277D4CE70A3D9A8DE5D72F3588
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48229.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48230.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4940F5DE812686D74C353C2CF9876496B8D0F93A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48231.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:29EA1DA267C717BD8379B4B4DB5FE6779188DF00
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48232.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48233.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:24B7E748286221F8D40627EE4D60FECC0C8ED505
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48234.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:AC38FC019D6DCDD8E33ECC4F1AFFF7F98F00EF8E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48235.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1EA88F80483E2206DB3588A38E0F92CDC36963B6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48236.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:54F0CB342FD4B01BA56E6B1F53465AE04E06169F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48237.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:FA024D2A5D72A32A73424A9545C41CAA1395E0C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48238.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Fallout: London (2024) [Ru/En] (2.31r2) Repack/Mod dixen18
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48239.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C7CA909B7368803A5133A5FFB05DC41BD72DD08F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48240.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CED9E1C4716923A0F416F0DE4A88CD7FDDE88BC2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48241.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48242.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Kaspersky Free 21.18.5.438 Repack by LcHNextGen (01.08.2024) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48243.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:603C72BE529F1E95F70259CAB5B05B1872174D69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48244.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0A9F02FDB6E474EFF1A7B8FEF5ACC11E924AF737
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48245.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:FC6E7812B4530AE9602694C3878D6BD0DCAA6CBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48246.jpg" />
 </div>
 
 

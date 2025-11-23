@@ -1,3 +1,84 @@
+###  Публикация: 478784   (98744) от 06.04.2012
+
+Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478711   (98745) от 06.04.2012
+
+[Wallpapers] Best HD Wallpapers (06.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478888   (98746) от 06.04.2012
+
+Новые Ворота - Не сезон (2012) [MP3|320 кб/с]<Folk Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Баян (3:40)
+02.  Детство (4:22)
+03.  У порога неба (5:02)
+04.  Июнь (3:47)
+05.  Усталость (4:04)
+06.  Ajde Jano (5:11)
+07.  Нездешние ветры (3:18)
+08.  Половодье (5:44)
+09.  Цветение (7:43)
+10.  Романс (3:28)Жанр: Folk RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE05B79FA5F02283B228AAB5E64EA1E16CEBD4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478750   (98749) от 06.04.2012
 
 VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
@@ -6,7 +87,7 @@ VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98749.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98750.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98751.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98753.jpg" />
 </div>
 
 
@@ -123,7 +204,7 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98763.jpg" />
 </div>
 
 
@@ -147,7 +228,7 @@ VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98768.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98769.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98770.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98771.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ VA - French Plaisir - compiled by Drenan (2008) [FLAC|Lossless]<Psychedelic / Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98772.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98772.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98773.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98773.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98774.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98782.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98787.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98790.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98793.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98793.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98795.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98795.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ LibreOffice 3.5.2 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98797.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98797.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ LibreOffice - новое имя пакета офисных приложений
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98798.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ magnet:?xt=urn:btih:13854D1DF1633D6D63537FC6F5C9363A40F7AF81
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98804.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98805.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98805.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Ple
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98806.jpg" />
 </div>
 
 
@@ -621,7 +702,7 @@ Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98811.jpg" />
 </div>
 
 
@@ -641,87 +722,6 @@ Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479579   (98812) от 07.04.2012
-
-Совершеннолетие Рунета: 7 апреля 2012 года доменной зоне .Ru исполнилось 18 лет
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98812.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-7 апреля домен .Ru празднует 18-летие. Именно в этот день в 1994 году состоялось официальное открытие национальной доменной зоны. Первый зарегистрированный ресурс 1-9-9-4.ru. До этого все отечественные сетевые ресурсы размещались на международных доменах и в зоне Советского союза .SU. В свое совершеннолетие домен продолжает удерживать позицию самого популярного в России, уверенно перешагнув отметку в 3,5 миллиона регистраций. В честь дня рождения Рунета ведущий аккредитованный регистратор доменных имен REG.Ru напомнил об основных этапах становления доменной зоны.Активная регистрация доменных имен коммерческого назначения началась еще в 1996 году, но сегодня старожилов почти не осталось – основную часть регистраций (почти 40%) составляют домены, зарегистрированные в зоне .RU менее года назад. Старейшим действующим доменом в национальной зоне .Ru признан сайт nostalgie.ru.С 2006 по 2008 год зона .Ru динамично развивалась: если в 2006 году число зарегистрированных доменов составляло чуть более 718 тысяч, то уже (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479732   (98814) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98814.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №11
-Название: Desktop Wallpapers №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479683   (98815) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98815.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №7
-Название: Desktop Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
 ```
 
 

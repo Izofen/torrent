@@ -6,7 +6,7 @@ Mini Racer Car Shop Simulator (2025) [Ru/Mjulti] (1.0-2025.19.5.1) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14118.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA1303CF26F0A108B041428920E0914FEC251862
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14119.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lil School, Lil School | Сборник видео из платных курс�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14120.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:69957851B6E3752B22975EA61EBAC35821D6ABC0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14121.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chill Town (2024) [Ru/Multi] (1.0.0 Build 63) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14122.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Musical kaleidoscope part 43 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14123.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:ABD31FC6D174C0311439B9DF3BDEEC3347E7FEF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14124.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D4E149BDCB13A92DD05C66D8C45C4EC869F1B152
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14125.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BCAB97228F74DF0F8D26AC9F4C9200A621B9D02A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14126.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:722BE657AD068E0C525541527B663AC812611CFE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14127.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:722BE657AD068E0C525541527B663AC812611CFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14128.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:BA466606605ECD26C0671904C744272CFD9BD5D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14129.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14130.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Illustrator 2025 29.6.0.207 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14131.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14132.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:BD20D584CFB0E01D16F850D40D5E5407879D7130
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14133.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14134.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:410295744FFA9A3435DBB0C605B9BE8307FE59AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14135.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:462142A0563877DA12A71E21EE3F0B021A09FEF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14136.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:462142A0563877DA12A71E21EE3F0B021A09FEF4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14137.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cortical Labs запустила CL1 — первую коммерческую �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14138.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe After Effects 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14139.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E364C5E56A7F4E5EC748C60DD271504BE1132ECA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14140.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Minecraft в кино / A Minecraft Movie (2025) BDRip [H.264/1080p]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14141.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ NVIDIA GeForce Desktop Game Ready 576.80 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14142.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:6109DECC9077706EC9DCD109A190B4846AC023BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14143.jpg" />
 </div>
 
 

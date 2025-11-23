@@ -1,3 +1,177 @@
+###  Публикация: 1519400   (147787) от 24.12.2021
+
+Растровый клипарт - Shutterstock - Stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 662x440-23325x3657
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03B1CD148EF920023BBA86812DCA71A1E5B8CBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086205   (147788) от 26.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story (Original Motion Picture Soundtrack) (2016) [FLAC 2.0|96/24|tracks|WEB-DL]<Soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF996B1E3735F6B5E78D6849D331E078F72471BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271903   (147789) от 25.12.2018
+
+Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in Honky-Tonk Town [2:01]
+02. Melancholy [2:23]
+03. Savoy Blues [2:49]
+04. I'll Never Be the Same [3:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7305A7AE71A030ED7794E258D03BE55C00711277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969473   (147791) от 27.12.2015
+
+Евгений Бывалов | На Потемкине (1927) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для среднего школьного возраста.Жанр: Детская остросюжетнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6BA09D75873073FF04BA03189162111BF1BB47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618135   (147792) от 24.12.2019
+
+Джентльмены, удачи! (2012) [1080p] Blu-Ray
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой аниматор детского центра Леша Трешкин — инфантильный и жизнерадостный «хипстер» — оказывается двойником опаснейшего вора и убийцы Смайлика (так его прозвали за привычку улыбаться перед тем, как убить). Смайлик похищает из музея Санкт-Петербурга национальный символ Казахстана — Доспех Золотого Воина. Молодая красивая лейтенант полиции Ирина Славина ловит Трешкина, (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: Комедия, КриминалРежиссер: Александр Баранов, Дмитрий КиселёвПеревод: ОригиналСубтитры: ОтсутствуютПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF9F2A7AA2AF60A25791BC138058B5D7A6FE43C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519445   (147794) от 24.12.2021
+
+Энканто / Encanto (2021) WEB-DL [H.264/1080p] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительная семья Мадригаль живет в спрятанном в горах Колумбии волшебном доме, расположенном в чудесном и очаровательном уголке под названием Энканто. Каждого ребёнка в семье Мадригаль магия этого места благословила уникальным даром — от суперсилы до способности исцелять. Увы, магия обошла стороной одну лишь юную Мирабель. Обнаружив, что магия Энканто находится (   Читать дальше...   )Производство: США, Колумбия / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, семейныйРежиссер: Джаред Буш, Байрон Ховард, Чариз Кастро СмитПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3A3322AEF1FA03BA38B915308B3660BBDC858B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579898   (147795) от 15.12.2012
+
+Икс икс эль / XXL (1997) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: ФранцияЖанр: Мелодрама, комедияРежиссер: Ариэль ЗейтунАктеры: Жерар Депардье, Мишель Бужена, Джина Лоллобриджида, Эльза Зильберштайн, Гад Эльмалех, Катрин Жакоб, Морис Шевит, Феликс Фибич, Женни Клев, Эмманюэль Рива...Перевод: Профессиональный (двухголосый закадровый)Субтитры: НетПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1852941FA18706D17F9681FD1C4FED1FFA9EE69E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347772   (147797) от 24.12.2019
 
 Того / Togo (2019) WEBRip [H.264/1080p-LQ] [DVO]
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147797.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:B9AAB42FC426F2C37BD6AACE2D53835014758A63
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147798.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:00507E50AE699ACC0605D555E2A89630FF3D6225
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147799.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147800.jpg" />
 </div>
 
 
@@ -108,7 +282,7 @@ VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147801.jpg" />
 </div>
 
 
@@ -135,7 +309,7 @@ magnet:?xt=urn:btih:4F21FD63C84DDE544CB1B3D000FDCE8DE08DE50F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147802.jpg" />
 </div>
 
 
@@ -159,7 +333,7 @@ magnet:?xt=urn:btih:1CEC719895352CB8D6351B7E0AFD5500CDA36B57
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147803.jpg" />
 </div>
 
 
@@ -184,7 +358,7 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147804.jpg" />
 </div>
 
 
@@ -211,7 +385,7 @@ magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147805.jpg" />
 </div>
 
 
@@ -235,7 +409,7 @@ Timewarp Records presents: Compilations Collection by Nova Fractal & Friends - 3
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147806.jpg" />
 </div>
 
 
@@ -262,7 +436,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147807.jpg" />
 </div>
 
 
@@ -287,7 +461,7 @@ magnet:?xt=urn:btih:A927F78D43C532A29E2CB767CD330EF5CA7E0221
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147808.jpg" />
 </div>
 
 
@@ -311,7 +485,7 @@ magnet:?xt=urn:btih:4A7532676AE4009A74F53C91D5348A293B673AAF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147809.jpg" />
 </div>
 
 
@@ -338,7 +512,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147810.jpg" />
 </div>
 
 
@@ -365,7 +539,7 @@ magnet:?xt=urn:btih:5E1C800F3409EA449E6AE4F5EFC945408701FF46
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147811.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ magnet:?xt=urn:btih:12CE8BDE68FA447996941E41B8CCF149E6AC478E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147812.jpg" />
 </div>
 
 
@@ -413,7 +587,7 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147813.jpg" />
 </div>
 
 
@@ -440,7 +614,7 @@ magnet:?xt=urn:btih:73E3C37D36F4CDE8F59379BD2A42397D2EFD335F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147814.jpg" />
 </div>
 
 
@@ -464,7 +638,7 @@ magnet:?xt=urn:btih:8184CF6FB53311391F2135F4960F4AF279DEE9F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147815.jpg" />
 </div>
 
 
@@ -475,179 +649,6 @@ magnet:?xt=urn:btih:8184CF6FB53311391F2135F4960F4AF279DEE9F1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351B64D0FEB3E29127FE81962EB2C6F6A5BAA17E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968855   (147816) от 26.12.2015
-
-Шеф Адам Джонс / Burnt (2015) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147816.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — история некогда знаменитого шеф-повара, который из-за своего пагубного пристрастия теряет собственный ресторан в Париже, пониженный в рейтинге до унизительных двух звезд. Решив не сдаваться, он вновь собирает свою команду, перестраивает лондонский ресторан и надеется получить три звезды.Производство: США, 3 Arts Entertainment, Double Feature Films, PeaPie FilmsЖанр: Драма, КомедияРежиссер: Джон УэллсАктеры: Брэдли Купер, Сиенна Миллер, Омар Си, Даниэль Брюль, Риккардо Скамарчио, Ума Турман, Эмма Томпсон, Сэм Кили, Генри Гоодман, Мэттью РизПеревод: Дублированный (Чистый звук)Продолжительность: 01:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0CFE4383F0FA3D32E781208DA0693ABDBA02306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347563   (147817) от 24.12.2019
-
-Неогранённые драгоценности / Uncut Gems (2019) WEBRip [H.264/1080p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говард Ратнер владеет ювелирным магазином. Чтобы сохранить бизнес, он влезает в долги, которые обязан погасить в короткие сроки.Производство: США / Elara Pictures, Scott Rudin Productions, Sikelia ProductionsЖанр: Триллер, драма, комедия, криминал, детективРежиссер: Бен Сэфди, Джошуа СэфдиАктеры: Адам Сэндлер, Джулия Фокс, Кевин Гарнетт, Идина Мензел, Джонатан Аранбаев, Якоб Игельски, Ноа Фишер, Палома Элсессер, Лакит СтэнфилдПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 02:14:50Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6565A430AF323C876E38612D08BECEFA2EB255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271748   (147818) от 25.12.2018
-
-Garden of Grief - Novembernebel (2010) [FLAC|Lossless|image + .cue] <Ambient Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novembernebel
-02. In dorso corvi divini
-03. Auf den Schwingen des Raben
-04. Of Mountainscapes and Sylvan Lakes(   Читать дальше...   )Жанр: Ambient Black MetalПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FE86986698C2F2E9F57D766E0E9E5ABE6E2227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589378   (147819) от 15.12.2012
-
-Оборотень: Зверь среди нас / Werewolf: The Beast Among Us (2012) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в небольшой деревушке девятнадцатого века. Молодой человек, изучающий врачебное дело под руководством местного доктора, решает вступить в ряды охотников за оборотнями, когда жители деревни начинают гибнуть один за другим от лап неведомого зверя. Кто он, этот монстр? Один из жителей деревни или нечто совершенно неведомое? Человек днём, чудовище ночью.Жанр: Ужасы, ТриллерРежиссер: Луи Морно / Louis MorneauАктеры: Стивен Бауэр, Эд Куинн, Ниа Пиплз, Стивен Ри, Золтан Бутуч, Рэйчел ДиПилло, Ана Улару, Адам Кроусделл, Гай Уилсон, Разван Георгиу и др.Перевод: Профессиональный |полное дублирование|Продолжительность: 01:33:23
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087026   (147820) от 26.12.2016
-
-AIMP 4.12 Build 1878 Final RePack (& Portable) by D!akov (with DFX Audio Enhancer) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147820.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B8B9C4A9840373FF2A1FA1F56D10B84DA180CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678111   (147821) от 20.11.2023
-
-Гастон Леру | Человек, который видел дьявола (2021) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
-
-Заветная мечта всех игроков – не знать проигрыша, на деле может оказаться настоящим проклятьем. Подтверждение (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистический рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B201C83B7FB7AFFB7689EAC8E0D12C529273F2CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434875   (147822) от 26.12.2020
-
-Street Racing Grand Tour v0.12.3756 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Racing Grand Tour - отличный гоночный проект от HeroCraft в котором игроки найдут всё необходимое для увлекательного и интересного времяпрепровождения с мобильным гаджетом в своих руках.Тип издания: Пиратка (Мод)Релиз состоялся: 18 декабря 2020 г.Разработчик: HeroCraft Ltd.Поддерживаемая ОС: Android 5.0 и вышеЖанр: ГонкаЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CA9B43C26E87CA9EF85588C4D2B3C2291192A0
 ```
 
 

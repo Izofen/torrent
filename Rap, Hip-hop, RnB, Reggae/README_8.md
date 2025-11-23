@@ -1,3 +1,30 @@
+###  Публикация: 1459751   (235307) от 04.04.2021
+
+Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. огонь по своим [03:21]
+02. роскошное захолустье [02:49]
+03. вопрос наизнанку [02:34]
+04. сомнительный опыт [03:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460060   (235342) от 04.04.2021
 
 Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +33,7 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235342.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235342.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238283.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238283.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ $uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Los
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238920.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238920.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239222.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239222.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240052.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240052.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240058.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240058.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240100.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240100.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241311.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241311.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241317.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241317.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ magnet:?xt=urn:btih:FE1A7F47827FA60EB0A72BB58044B6DCE813208D
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241342.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241342.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ magnet:?xt=urn:btih:D0B6BF13F7C745BE4A526F1E25C4BAE8DA1DC514
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241350.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241350.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ Rittz - MellowLOvation Music (2023) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241352.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241352.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241365.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241365.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ magnet:?xt=urn:btih:F36B123107E49B0074A0C7E99BC0A69C6F0D63DD
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241375.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241375.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241382.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241382.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ magnet:?xt=urn:btih:72777EE8F872C1C80A1F939E15BDD15AB7C9E330
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241391.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241391.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ magnet:?xt=urn:btih:A9C676B83F25D6310A1D652AB60368921DDECFF7
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241401.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241401.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241419.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241419.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241435.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241435.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ magnet:?xt=urn:btih:30198C7AA4525E6F352E4E57082EECEE7296FAAA
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241454.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241454.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ magnet:?xt=urn:btih:6682809F4D1FD5328298EAC41AE2BC7EC5465015
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241465.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241465.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241472.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241472.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ Booker - Выбери жизнь (2021) [MP3|320 Kbps] <Rap, Alternative, Punk>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241565.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ magnet:?xt=urn:btih:207BEBF6582961563444289E4DC96D2FED457742
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241733.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241733.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241737.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241737.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED243E994FB70E9D2106CB8A192C2C591B47F654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544516   (241976) от 16.04.2022
-
-Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-Hop, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Страшные сказки [00:02:07]
-02 - Крампус [00:04:07]
-03 - Доска Уиджи [00:03:33]
-04 - Метель [00:02:34](   Читать дальше...   )Жанр: Alternative, Hip-Hop, HorrorcoreПродолжительность: 00:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
 ```
 
 

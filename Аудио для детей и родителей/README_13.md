@@ -6,7 +6,7 @@ VA - Любимые песни для детей 3 (2012) [MP3|160-192 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86197.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6406EA0AB0EC52623ADB10D22C0A557AB38B1771
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86618.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:6755DA529CE55F9F620B768033E179FBB898D593
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87113.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ magnet:?xt=urn:btih:C29AA59B3D564C1D2BEFE831DBB99DA1399D4389
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87126.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:7814F40A4184EB3201A29E9A4050DCC359A7F086
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87556.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:4D8B8AC82516829E89401BE621A56175C770EECE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88561.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:20ACA1D8CCB8B58B785A181C36EEA0D70176834C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88573.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:1ADB19ED80862DF77131AB56B9E9DEE364C0516A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88597.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:28704AE020C7060C1AE3A3E3C0E5EAAD12F1D172
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88739.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Детские Песни (2006) [MP3|224 кб/с]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89053.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:DCDF015BB5C64CA400F965DF0C4EAD9242201A07
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89264.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89862.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:26ADA51A61A37926523DE2914C6DB5D66936BA99
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90410.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:8E41578C44F139773752DF0700EFA2EA16BEDD4F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90608.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Планета детства (1997) [MP3|320 кб/с]<Pop, песни дл
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90611.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:0AEFC95976E96C10B2F0A469E1B335F2F4AEFC3D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90616.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детска
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90652.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A418F0661453781EB5CAA0CFB6C0CB6697B8935C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90660.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90670.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90741.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90828.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:7EB78EDB647750CE73D70DDC3A6F1F3CFC95217B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90888.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:92EEE843C29A787E842A8A88EA2299106F347BF2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91164.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91165.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91173.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ magnet:?xt=urn:btih:F75323F69154C619FDE4464417A2481E48CC94BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91176.jpg" />
 </div>
 
 

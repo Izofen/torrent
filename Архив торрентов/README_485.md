@@ -6,7 +6,7 @@ USB Device Tree Viewer 4.2.7.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Celemony - Melodyne Studio 5.4.0.036 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108082.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinCatalog 2024.7.5.612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108084.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser ESR 115.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108085.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Material Pods: батарея AirPods v6.60 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108086.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Google Chrome 126.0.6478.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108088.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6B177D39045E03B487C7E93FBB4030DE475BEFD0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108185.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Speedtest от Ookla 5.4.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108189.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PrivaZer 4.0.86 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108197.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Newfangled Audio - Generate 1.6.3 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108199.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PowerDirector – Video Editor v14.1.0 b2406061 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108215.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FontViewOK 8.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108218.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:E9AA2F4ED09641140675EA7B09F3318BBB0F11F8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108222.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108227.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ SnapEdit - ИИ фоторедактор / SnapEdit - AI Photo Editor 6.4.4 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108231.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:4904F4D5E983797010EF62C58CB2217480365E9D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108234.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ StaxRip 2.40.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108235.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Telegram Desktop 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108237.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ R-Wipe & Clean 20.0.2459 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108245.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ OneCommander Pro 3.83.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108246.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Speedtest от Ookla 5.4.0 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108290.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ OneCommander Pro 3.81.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108353.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Speedtest от Ookla 5.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108362.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Lucky Patcher 11.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108431.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108449.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ventusky: Прогноз погоды v35.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108450.jpg" />
 </div>
 
 

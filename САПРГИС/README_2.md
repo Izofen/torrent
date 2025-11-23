@@ -6,7 +6,7 @@ QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195279.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195535.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Autodesk DWG TrueView 2024 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195595.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195595.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IronCAD 2023 v25.0 Product Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195924.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195924.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VectorWorks Design Suite 2023 SP4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198385.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198385.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200273.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200273.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Simulia Abaqus 6.13-1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200380.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200380.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200390.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Micro-Cap 12.2.0.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200496.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200496.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NI Circuit Design Suite 14.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200639.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200672.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pulsonix 10.5 build 7883 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200707.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200707.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200711.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200711.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ LeoCAD 23.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201035.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201035.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201603.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D8DA5F90719FEF2E6B1AFF578040B5DE44397C38
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202189.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mentor Graphics QuestaSim 2021.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206189.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206264.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Keysight Genesys 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207219.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207219.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207900.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208636.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209671.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211397.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214346.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219587.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230450.jpg" />
 </div>
 
 

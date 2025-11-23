@@ -1,3 +1,78 @@
+###  Публикация: 426672   (127899) от 15.12.2023
+
+Маргарет Митчелл | Унесённые ветром (2005) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Истории любви».
+«Говорящая книга» – явление для всех нас с детства знакомое, и, одновременно, совершенно новое. XXI век позволил на легком маленьком CD уместить толстый книжный том, на много часов чтения. Сберегая время и драгоценное зрение, теперь можно получать информацию самым простым и естественным способом. Именно на слух младенец начинает постигать (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПродолжительность: 28:25:12
+
+Проходят годы и годы, но «Унесенные ветром» не стареют, и теперь уже новым читателям и читательницам, а вернее для «Говорящей книги» – слушателям и слушательницам, предстоит смеяться и плакать, любить и страдать, бороться и надеяться вместе с великолепной Скарлетт О'Хара.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEA526CA8AEF3AEFCBD83A709E3162178722C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684290   (127900) от 15.12.2023
+
+Гардемарины 1787. Война (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители западных держав в очередной раз начинают свои козни против России, но возмужавшие гардемарины и их повзрослевшие дети снова встают на защиту Родины. Проделав рискованный путь с острова Мальта до Крыма, они неожиданно становятся участниками исторического сражения при Кинбурне под началом генерала Александра Суворова.Производство: Россия, Сагиттариус - ДЖанр: приключения, историяРежиссер: Светлана ДружининаАктеры: Дмитрий Харатьян, Александр Домогаров, Михаил Мамаев, Владимир Суровцев, Ольга Машная, Ника Здорик, Андрей Лаптев, Федор Гамалея, Даниил Зайцев, Фёдор ДобронравовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AB9B887F99BA9B33726D132C519DCE428FEB0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684430   (127901) от 15.12.2023
+
+Cookie Cutter (2023) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookie Cutter - жестокая постапокалиптическая 2D-Метроидвания. Бездна. Материя. Мегаструктура. Мир-антиутопия, где безумный лидер жаждет раскрыть секреты вселенной. Корпорация ИНФОНЕТ пообещала построить утопию на плечах без устали трудящихся андроидов, называемых Дензели. Это была ложь. 200 лет спустя: планета находится в упадке, а загадочное Красное семя украдено. (   Читать дальше...   )Тип издания: SceneРазработчик: Subcult Joint LTDЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683718   (127902) от 15.12.2023
 
 Пропавшие в ночи / Night of the Missing (2023) WEB-DLRip [H.264/1080p] [DVO]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127902.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127903.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:AECC77ED7D48CCD44F01423F92B5E7A7F53CEE9E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127904.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127905.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:69B4B25227A8A2FC8E2F075E19A0FE6BE6EED146
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127906.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ CCleaner 6.19.10858 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127907.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:831BFC4D72BBF9BE95A80E44C362CCDCA9C071BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127908.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ magnet:?xt=urn:btih:00990105EECE30E6CCDBE596897AB373F8E4EF5D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127909.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:641CECD0458F8C246305AB2A68642192D97878E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127910.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:432091860924EDB85CDAC32224A577F742EC11F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127911.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:B07012C40E0C3653FE75EB806F5C9E83B42B309C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127912.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:B4A83802AA81A0809081A0CD28CE6EBD8F6039B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127913.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:F23743CC30F07D90934B45C3391B099E5882D61A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127914.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ Chrome начнёт блокировать сторонние cookie с 4 янв
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127915.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ Chrome начнёт блокировать сторонние cookie с 4 янв
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127916.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:AB37A06E4B71CA3AFE3A7038E32313436D8DF39C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127917.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ magnet:?xt=urn:btih:2267377380D289C2E3FA32969772756189BFFBD6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127918.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ magnet:?xt=urn:btih:0AF14681F912E6375702B7F770ED5F2236FBE0DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127919.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ Videosmile, Михаил Бычков | Супер Cinema 4D (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127920.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127921.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127922.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127923.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:F82A4D26D21EC3C200A76600778CFED656024204
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127924.jpg" />
 </div>
 
 
@@ -552,78 +627,6 @@ magnet:?xt=urn:btih:F82A4D26D21EC3C200A76600778CFED656024204
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531365C9318BC610AD05B697CBA12B493E23908F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684142   (127925) от 15.12.2023
-
-Легенда о самбо (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московская спартакиада, 1936 год. Приглашена сильнейшая команда борцов. Решающий поединок: кто-то одержит победу, кого-то ждет поражение, а кого-то — неожиданный поворот судьбы… Два мастера боевых искусств. Один — с детства обучался искусству дзюдо в Японии — Василий Ощепков. Другой, прошедший русско-японскую войну, разрабатывающий приемы для самообороны — Виктор (   Читать дальше...   )Производство: Россия / АБС, Киностудия ХлебЖанр: Спорт, приключения, биография, драмаРежиссер: Андрей БогатыревАктеры: Вольфганг Черни, Дмитрий Павленко, Антон Вохмин, Алексей Шевченков, Ольга Сташкевич, Павел Абраменков, Вячеслав Шихалеев, Денис Кузнецов, Александр Давыдов, Георгий ПерадзеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990A36BDC08C5EC945FE41BDE0AA6D72F3A41872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126084   (127926) от 15.12.2023
-
-Непобедимый (1983) WEB-DLRip [H.264]
-
->>След.
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в конце 20-х - начале 30-х годов. Андрей Хромов, одержимый идеей создать новый вид борьбы, «самозащиту без оружия», едет на Кавказ и в Среднюю Азию, где знакомится с местными борцовскими системами. Поступая в ученики к известным мастерам, он берёт из каждой школы лучшее, оттачивая своё собственное искусство. Он ещё не знает, что оно вскоре (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Боевик, приключенияРежиссер: Юрий БорецкийАктеры: Андрей Ростоцкий, Хамза Умаров, Нурмухан Жантурин, Едгар Сагдиев, Гульнара Дусматова, Биродар Атабаев, Дильшот Исмаилов, Николай КарповПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382519C0A56251AAE44454992026BE8B3627FC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684305   (127927) от 15.12.2023
-
-Гардемарины 1787. Война (2023) WEBRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители западных держав в очередной раз начинают свои козни против России, но возмужавшие гардемарины и их повзрослевшие дети снова встают на защиту Родины. Проделав рискованный путь с острова Мальта до Крыма, они неожиданно становятся участниками исторического сражения при Кинбурне под началом генерала Александра Суворова.Производство: Россия / Сагиттариус - ДЖанр: Приключения, историяРежиссер: Светлана ДружининаАктеры: Дмитрий Харатьян, Александр Домогаров, Михаил Мамаев, Владимир Суровцев, Ольга Машная, Ника Здорик, Андрей Лаптев, Федор Гамалея, Даниил Зайцев, Фёдор ДобронравовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3950E54489F1B47251552EE0F4E357BFCAE1F432
 ```
 
 

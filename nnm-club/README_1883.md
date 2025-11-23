@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9FB2976475319A3470C7B2B6D85280439167DB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F97A0CA656E30CBAC60B9AFA8FF52B1046280DD3
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49315.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fancy - Greatest Hits & Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodisco,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49316.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Lingvotube - видео переводчик v3.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49317.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4EA9B11674CF02EB7E2BE85D21E24EE70D66BD9F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49318.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49319.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:A6C096AA734C67532795B1D35F7C0656F9246259
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49320.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:2596327140ADC9D4FF2D2934F26CDA290CC4B6C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49321.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:CC5D9525D15BCA28BCC84354D98260AD83350DDE
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49322.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E479405823370039219D38FA31130155F2EDF284
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49323.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6645CA6FF20B86F97369C7BD80C8D23F492E44E4
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49324.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:46C666932DA51CAFADC73465FB78BD4A1EFA8E0B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49325.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49326.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D0001FCBC3E98308165865ACB60B383224002B8D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49327.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A008B1583B0C71F6C1F46C828DB1BDF51404DD50
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49328.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4E5061975185F8836C9F4DE0E6D39A75F56A9C11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49329.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:984C693FBDE4FC8853E6E900F3B543B318E2ED52
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49330.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49331.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:9C280495040676AA4F76C23B9B8FD1FC3F352283
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49332.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:1BB8CD00A0FD80F3DAAD213B8162E778E7B6B0CF
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49333.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:1FD57CE5B6C3D55A59A5CDE82836000837E23259
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49334.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:FC5C9B44AD584B41B752C3C9DF3447CCD7A75F3A
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49335.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B12094F4A142C0E88971404B65378E92CB417674
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49336.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:3722149F46F736712BC46A5B9A8D30444FEE60CC
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49337.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BD849AFACA50449357BBE3131A9FA7FE06CDF709
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49338.jpg" />
 </div>
 
 

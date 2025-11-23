@@ -6,7 +6,7 @@
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40888.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40889.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Google Chrome 129.0.6668.101 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40890.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8540F2DC7C4C85081B5FABAB76BBD4D28DCEB96C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40891.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D0760B382B691C574DC59C7E1AC3FDE58F78E197
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40892.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D8223720987465B04EE7B5ACA029255AE6CA06F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40893.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3D3EBDF02CCB8B3C6EEAE68A2AF20B9BDFE2CD41
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40894.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Marilyn Monroe - Deluxe: I Wanna Be Loved By You (2012) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40895.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40896.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:51D16E77A96C84C49CFD000E936FC8AB9381C097
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40897.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40898.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:ABF17F2FCAC9837DB4970763598A75FFFC0302EF
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40899.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A0D682A9BF541217E49AC71FB3F310083276A54F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40900.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4698611245164E7CFD26510CAF5F7D4955048DBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40901.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40902.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:77C018D2EA6F426E70325F6BDCC87001C6C7731C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40903.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ DtcFix v3.50 Mod by vedserega [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40904.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ WPS Office + PDF v18.13.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40905.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40906.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ LazyMedia Deluxe v3.336 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40907.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:9F2901EB3BC1C016E2FBE8B0238144551FC2EF77
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40908.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40909.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:98FF5B91DE2B23518128D1411D055A621A879FB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40910.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Motivation Mix 6 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40911.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3AB61C53867849F03DDCD79C004CF9F11B58EA94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40912.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:2F8AD64D793B583F7D62BFE3EC3FB903D9B8929D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40913.jpg" />
 </div>
 
 

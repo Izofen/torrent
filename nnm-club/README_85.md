@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2248.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:14A8F607C4345C35BB733D1BE83369A2748364C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2249.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2250.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2251.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2252.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2253.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6BA1594DF508ADCCC6196BDF2A4FADBAA33A3879
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2254.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2255.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:18D27BD1DB1F69F8F4264D6799D8152DC11BED69
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2256.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Capture One Pro 16.6.6.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2257.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:68D49B604FCA615B87AE7C515F20690A89F4A0B4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2258.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Rising Lords (2020) [Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2259.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2260.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2261.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2262.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2263.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2264.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7F22235E10E12032C6DE24D3DA9E7B95B6492B64
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2265.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.53.0/dlc) License GOG [Definitiv
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2266.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ RoadCraft (2025) [Ru/Multi] (4.2/dlc) Repack Let'sРlay [Rebuild Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2267.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2268.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2269.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2270.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2271.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2272.jpg" />
 </div>
 
 

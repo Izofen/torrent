@@ -1,3 +1,84 @@
+###  Публикация: 1698909   (118092) от 11.02.2024
+
+Иксион - Последняя симфония (2024) [MP3|320 Kbps] <Heavy Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ночной горизонт [00:05:21]
+02 - Одинокий вой [00:06:30]
+03 - Возвращение джедая [00:06:07]
+04 - Тени замка [00:05:06](   Читать дальше...   )Жанр: Heavy Metal, Symphonic MetalПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF626E93A3D7E71EA67607C12425B3D5986962F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698778   (118093) от 11.02.2024
+
+My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Britpop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Running Out Of Heartbeats
+02 – I’m a God
+03 – Tits & Attitude
+04 – Numb Numb Numb (Album Version)(   Читать дальше...   )Жанр: Britpop, Pop RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698893   (118094) от 11.02.2024
+
+Heretic - Angelcunts And Devilcocks (2013) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Black Metal, Black 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail the Beast [00:03:14]
+02. Black Perversion [00:04:04]
+03. Crowned in Filth [00:05:00]
+04. Angelcunts and Devilcocks [00:04:24](   Читать дальше...   )Жанр: Hard Rock, Black Metal, Black 'n' RollПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9E958FC134A381D762A39E5514F9918465BB86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698931   (118095) от 11.02.2024
 
 Чингиз Абдуллаев | Дронго (Книга 55). Ангел боли - Путешествие по Апеннинам (2024) [MP3, Святой]
@@ -6,7 +87,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118095.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:B9EAC8CBB86687FE7ED8C42C679C8AB25B5ACEA0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118096.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Autumn's Child - Tellus Timeline (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118097.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:9EE17A654800456CC2E65B3FA04D86E4824F5122
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118098.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|image + .cue] <Melodic Rock / AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118099.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Heart Line - Original Seeds (2023) EP [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118100.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:AFD11ECBC7BEB9132CDADE1C730BCCF1C6E90C5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118101.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ magnet:?xt=urn:btih:BED3F14F408F0A51456F53B0CDF167DC83EA09C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118102.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ Wisborg - Wisborg (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118103.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ magnet:?xt=urn:btih:68650D5A4EB0B136EBD2563722B0C30A576E1EA5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118104.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ magnet:?xt=urn:btih:11F949FCBEC7BE5A67A2126D84E30C7012E266C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118105.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ Everrime - One (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118106.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ Distorted Reflection - Doom Rules Eternally (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118107.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ magnet:?xt=urn:btih:919748174C51D66374A09F2500060FAE26871092
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118108.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ magnet:?xt=urn:btih:6A41A3E81EF5644339B9FB8F1AE213F10FB3B151
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118109.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ magnet:?xt=urn:btih:A30521C819195F42B248C1C541BEE11E6042CBA1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118110.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ magnet:?xt=urn:btih:9535177A09844E0E1F9D561994AD49364FF025AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118111.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ CudaText 1.209.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118112.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ magnet:?xt=urn:btih:80830D09BEE91F590E5104ADE7A7BC80BB885C58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118113.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ magnet:?xt=urn:btih:2B50AED4C9A4CBDD4514F49B4E71AA50115CB30D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118114.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ magnet:?xt=urn:btih:96EA6628845B6D08AC99D06425EB02F8007AA9A7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118115.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118116.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118117.jpg" />
 </div>
 
 
@@ -574,85 +655,6 @@ magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC1B722C0D45E0CAFEBCEE661286F19CBE645FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699067   (118118) от 11.02.2024
-
-А.К. Толстой, Николай Лесков, Сергей Аксаков | Рассказы (2009) [MP3, Георгий Корольчук]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из фонда радио «Град Петров».
-1.Жанр: Русская литература, классика, рассказИздательство: Град ПетровПродолжительность: 05:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EF61DA048588F0705A10DC7A8BF6397B2DB2AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698995   (118119) от 11.02.2024
-
-Norah Jones - Visionary Jones (Curated by Don Was) (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running
-02. After The Fall
-03. Hurts To Be Alone
-04. It Was You(   Читать дальше...   )Жанр: Contemporary Jazz, PopПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66ADE9F3024A7341C3D477700C6628CF3FBA06F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699013   (118120) от 11.02.2024
-
-группа Американка - Медвежонок (2002) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Централка
-02. Котенок и паровоз
-03. Тишина немая, только ветер свищет
-04. Океан(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2E28016CE7E5145058CAE6DF71B8DA4501929F
 ```
 
 

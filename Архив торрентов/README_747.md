@@ -1,3 +1,77 @@
+###  Публикация: 549469   (155120) от 27.12.2014
+
+Emika - Сборник 16 Релизов (2 LP, 14 EP) (2009-2014) [MP3|320 кб/с]<Electronic, Trip-Hop, House, Dubstep, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Э́ма Джо́лли (Ema Jolly), более известная как Э́мика (Emika) — английская певица и электронный музыкант чешского происхождения, в настоящее время проживающая в Берлине. Её дебютный эпонимический альбом вышел в октябре 2011 года на Ninja Tune и привлёк внимание музыкальной прессы. (c)WikiЖанр: Electronic, TechnoПродолжительность: 00:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5163FF8DFC55A26E2FD3043C75DD94E0CC8C2DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433944   (155122) от 22.12.2020
+
+Downie 4 v4.1.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CBC2E8ED73234B32516A4B425CC384D9D83342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085803   (155127) от 22.12.2016
+
+Инферно / Inferno (2016) WEB-DLRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некий миллиардер в порыве искреннего человеколюбия решает убить половину населения планеты. В своей уютной лаборантской он выводит особый штамм смертельного вируса, способного заразить 95 процентов людей за пару суток. Будучи не в силах упустить красоту момента, он зашифровывает точные координаты пакета с адским варевом в "Инферно" - первой части "Божественной (   Читать дальше...   )Производство: США, Япония, Турция, Венгрия, Columbia Pictures, Imagine Entertainment, LStar CapitalЖанр: Боевик, Триллер, Драма, Криминал, ДетективРежиссер: Рон ХовардАктеры: Том Хэнкс, Бен Фостер, Сидсе Бабетт Кнудсен, Фелисити Джонс, Ирфан Кхан, Омар Си, Ана Улару, Ката Сарбо, Ида Дарвиш, Вольфганг ШтегеманПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4700868810A7ADB4F75B08612B2B8EDA4BF8145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518388   (155133) от 19.12.2021
 
 Google Chrome 96.0.4664.110 Portable by Cento8 [Ru/En]
@@ -6,7 +80,7 @@ Google Chrome 96.0.4664.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155133.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Airtool 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155139.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Net Radar 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155145.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Duplicate File Finder Pro 6.12  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155152.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Freemake Video Converter 4.1.13.112 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155160.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Ashampoo Burning Studio 21.3.0.42 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155161.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ AutoRuns 14.07 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155167.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Arturia - Pigments 1.0.0.473 VSTi, VSTi3, AAX (x86/x64) RePack by R2R (19.12.201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155171.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ Posterino 3 v3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155175.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ VA - One Night in Aspen (Pure Progressive Clubsounds) (2012) [MP3|320 кб/с]<P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155176.jpg" />
 </div>
 
 
@@ -259,7 +333,7 @@ Keep It 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155189.jpg" />
 </div>
 
 
@@ -283,7 +357,7 @@ PDF Search 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155195.jpg" />
 </div>
 
 
@@ -307,7 +381,7 @@ magnet:?xt=urn:btih:8DC125315EE63342FDD4164EFE96379E68162733
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155198.jpg" />
 </div>
 
 
@@ -331,7 +405,7 @@ Total Commander 11.02 MAX-Pack 2023.11.11 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155201.jpg" />
 </div>
 
 
@@ -355,7 +429,7 @@ PrefEdit 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155208.jpg" />
 </div>
 
 
@@ -380,7 +454,7 @@ Gilrs Wallpaper (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155216.jpg" />
 </div>
 
 
@@ -404,7 +478,7 @@ Middle 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155220.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ K-Lite Codec Pack 11.8.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155221.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.2 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155225.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ The Bat! Professional Edition 9.0.14 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155226.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ GrandTotal 7 v7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155233.jpg" />
 </div>
 
 
@@ -526,7 +600,7 @@ DriverPack Solution 16.12 DVD-9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155237.jpg" />
 </div>
 
 
@@ -550,7 +624,7 @@ Sketch 61.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155239.jpg" />
 </div>
 
 
@@ -562,79 +636,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB36E4B08CDEC0EB4A80D8B789E6222A64D078E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588924   (155241) от 14.12.2012
-
-Sexy Girls Wallpapers (13.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E54472025BBDB8D0A51F73891AE4530DC4DC1D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587083   (155244) от 14.12.2012
-
-Sexy Girls Pack Wallpapers (09.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A240BA5790CB20A251CB134D23BD77998139BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433861   (155248) от 22.12.2020
-
-EagleFiler 1.9.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155248.jpg" />
-</div>
-
-
-###  Подробнее
-
-EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
-EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: C-Command Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6199F326757BAA2D6A394797C68215E2C05CDD63
 ```
 
 

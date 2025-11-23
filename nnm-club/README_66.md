@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B48F6B0083ED8A435C58D1AE1F2BEE93A9F880A5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1754.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7F94BF2AFDB39039642A9AF1E20FB7FE6FFDB879
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1755.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:80357DE8C6F29CEF76518A67505E65410D76802F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1756.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:01E4A3E9404057BCF86BA4F239A822CED6A48DAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1757.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ New Panty and Stocking with Garterbelt | Труська, Чулко и прес�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1758.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F5879AC8A2B46200B3BFD3532DCB8849B78E82C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1759.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:554005BA691749BA3B332FBF9F99385738308197
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1760.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1761.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1762.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1763.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1764.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1765.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1766.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1767.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1768.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1769.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1770.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1771.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1772.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1773.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1774.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1775.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1776.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1777.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1778.jpg" />
 </div>
 
 

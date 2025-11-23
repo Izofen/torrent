@@ -1,3 +1,180 @@
+###  Публикация: 968397   (156441) от 23.12.2015
+
+iMazing 1.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156441.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing – это многоцелевое программное обеспечение для управления iOS: управляйте данными на устройстве в расширенном режиме без взлома. Благодаря iMazing, вы сможете легко просматривать и управлять резервными копиями, извлекать и распечатывать текстовые сообщения или копировать музыку на iPhone. Простыми словами, iMazing позволяет делать больше, чем предлагает iTunes. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9B857507B3889078E0A090C6B5FAAC9BB0F904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194292   (156442) от 24.12.2017
+
+Роман Прокофьев | Игра Кота. Книга третья (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга цикла «Один из семи».
+
+В «Сфере Миров» все измеряется в числах.
+Ведется счет прогрессу персонажей, характеристикам вещей, убийствам и смертям, заработанным деньгам.(   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5C1C631B27ADE6AF20D28281F10F336EBB7F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433740   (156443) от 21.12.2020
+
+О.В. Пичугина | Приготовление сладких блюд и напитков (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156443.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дана классификация холодных и горячих сладких блюд, рассмотрены технология их приготовления, виды технологического оборудования и производственного инвентаря, используемого при приготовлении блюд, описаны способы сервировки и варианты оформления холодных и горячих сладких блюд, условия и сроки их хранения, а также требования к качеству.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E80EBFEBE0489497E7B807E2D857B99A6DBE679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738108   (156445) от 24.12.2013
+
+VA - Top 40 Ambient Tracks (2013) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psybient, Ambient, Downtempo, Progressive Trance •Продолжительность: 05:43:43 • Источник: Bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195D5CA918C3AFA1E7E37334459B639FBB7AECE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600235   (156446) от 27.12.2022
+
+Обложки для AIMP (Магнитофоны) 2023 RePack by BELOFF  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обложки в стиле "Магнитофоны" для аудиоплеера AIMP.
+
+63 скина для AIMP5 и выше (.acs5),
+34 скина для AIMP4 и выше (.acs4),(   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D449D99CE68DAB1A272914498ECF99CA92F13BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966805   (156447) от 23.12.2015
+
+Александр Якшин - Возвращение Орфея (2013) [FLAC|Lossless|tracks] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инферно
+02. Память
+03. Крылатый троллейбус
+04. Агапэ(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B847EE5FD39815C1C749F65313FCB225F7D309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346340   (156448) от 20.12.2019
+
+Преступление в маленьком городе / Small Town Crime (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной полицейский, злоупотребляющий выпивкой, находит тело убитой девушки. Он берется за расследование как за последний шанс на реабилитацию, однако рьяные поиски убийцы заводят героя в столь темные дебри, что под угрозой оказываются все его близкие…Производство: США, 6 Foot FilmsЖанр: Триллер, криминал, детективРежиссер: Йен НелмсАктеры: Джон Хоукс, Энтони Андерсон, Октавия Спенсер, Роберт Форстер, Клифтон Коллинз мл., Джереми Рэчфорд, Джеймс Лэфферти, Майкл Вартан, Дэниел Сунджата, Дон ХарвиПеревод: Многоголосый закадровый (Jaskier), Одноголосый закадровый (Ю. Немахов)Субтитры: Английские (Full)Продолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6881201E82F7D4E7436F16851F689448FE6B5F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588859   (156449) от 13.12.2012
 
 Павел Астахов | Сборник произведений (7 книг) [2010 – 2012] [FB2]
@@ -6,7 +183,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156449.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:BB6738FDD58099A769759905B72555536857B192
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156450.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ Smarty Uninstaller 4.9.6 (SharewareOnSale) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156451.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ magnet:?xt=urn:btih:2C214CC65F6D455E254D9263BC9BB90957AB2494
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156452.jpg" />
 </div>
 
 
@@ -104,7 +281,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156454.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ Wise Care 365 Pro 4.51.423 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156456.jpg" />
 </div>
 
 
@@ -177,7 +354,7 @@ VA - Empire Records - Guitar Pro (2016) [MP3|320 Kbps] <Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156458.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ magnet:?xt=urn:btih:D1E04CD51FA10201FC2FA660BA762556BECDAAE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156459.jpg" />
 </div>
 
 
@@ -228,7 +405,7 @@ magnet:?xt=urn:btih:FD8FE686D83B376EA6B41ED22103D2955632D300
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156460.jpg" />
 </div>
 
 
@@ -252,7 +429,7 @@ Spiral Timer 1.1 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156461.jpg" />
 </div>
 
 
@@ -276,7 +453,7 @@ IObit Driver Booster Pro 7.2.0.580 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156462.jpg" />
 </div>
 
 
@@ -300,7 +477,7 @@ DxO PureRAW 3.7.0 Build 28 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156463.jpg" />
 </div>
 
 
@@ -325,7 +502,7 @@ HTML Academy | Git и GitHub (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156464.jpg" />
 </div>
 
 
@@ -352,7 +529,7 @@ Slimjet 12.0.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156465.jpg" />
 </div>
 
 
@@ -376,7 +553,7 @@ Lunistice (2022) [Multi] (1.05a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156466.jpg" />
 </div>
 
 
@@ -400,7 +577,7 @@ Tixati 2.78 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156468.jpg" />
 </div>
 
 
@@ -424,7 +601,7 @@ Endzone - A World Apart (2020) [Ru] (1.1.8019.42692/dlc) License GOG [Save the W
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156469.jpg" />
 </div>
 
 
@@ -448,7 +625,7 @@ magnet:?xt=urn:btih:58A732298AD137A348B028F7E30AF80A2DA1D522
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156471.jpg" />
 </div>
 
 
@@ -462,185 +639,6 @@ magnet:?xt=urn:btih:58A732298AD137A348B028F7E30AF80A2DA1D522
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:911A2048810D8A79F79F9F87C8E1F519BF01509A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085785   (156472) от 22.12.2016
-
-Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Rocked [4:57]
-02. Only After Dark [4:02]
-03. Women (Live) [6:32]Жанр: Hard RockПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DEBC73AC1C032EA197B26BBB72C1A52A371CD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194327   (156473) от 24.12.2017
-
-Хранители дверей / Xiao men shen / The Guardian Brothers (2016) WEBRip [H.264/1080p-LQ] [EN / EN, GER, NLD, FRA, SPА, ITA, TUR, POL Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156473.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире китайских божеств кризис. Люди больше не верят в Богов. Один из Богов-хранителей дверей спускается в людской мир, чтобы доказать, что он ещё чего-то стоит. Но это приводит к непредсказуемым последствиям.Производство: Китай, Light Chaser Animation StudiosЖанр: Мультфильм, Комедия, СемейныйРежиссер: Гэри ВанПерсонажи: Гао Сяосун, И Сяосин, Бай Кэ, Цзи Гуаньлинь, Ивонн ЧжаоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Немецкие, Голландские, Французские, Испанские, Итальянские, Турецкие, ПольскиеПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875A9C0FEC8725EC95EBDC025687F278CA01DD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344968   (156474) от 20.12.2019
-
-Код 8 / Code 8 (2019) WEB-DLRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156474.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced) - отдельным файломПродолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A549B914D7E7F04F6BE59F0390A3A9B0DFFCD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433665   (156476) от 21.12.2020
-
-Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Collection) (2020) [FLAC 24/48.0|Lossless|WEB-DL|tracks] <Ambient, New Age, Easy Listening>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in Royal David's City (Live) (5:14)
-02. A Maiden Most Gentle (Live) (3:03)
-03. There is No Rose of Such Virtue (Live) (1:57)
-04. Herefordshire Carol (This is the Truth Sent from Above)Жанр: Ambient, New Age, Easy ListeningПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 107507   (156477) от 19.12.2018
-
-Сумасшедшие за стеклом / Drawn Together (2004 - 2007) DVDRip (Сезон 1-3, серий 36)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь нарисованных психопатов в одном доме борются за свою жизнь, за ними день и ночь следят мультипликаторы и фиксируют все на миллион камер. У каждого героя свои проблемы, но никто не придет на помощь. Дальше все будет только хуже. Первое и единственное мультреалити в мире.Жанр: реальное ТВРежиссер: Рич Мур, Stephen Sandoval, Ray ClaffeyАктеры: Билл Фрейбергер, Эрик Соммерс, Рид ЭгньюПеревод: Канал 2х2Формат: AVIПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC122B65571A198C491B11DB69C6754D6A3F7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600320   (156478) от 27.12.2022
-
-Voitixler, Екатерина Векслер | Практический онлайн-курс по API и Postman для будущих и действующих IT-специалистов (2021-2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156478.jpg" />
-</div>
-
-
-###  Подробнее
-
-После курса
-Вы сможете уверенно работать с API
-Вы сможете понимать и анализировать документацию по API
-Поднимете свою востребованность на рынке труда(   Читать дальше...   )Производство: voitixlerЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968077   (156480) от 23.12.2015
-
-Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Pop Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joys of Christmas (5:15)
-02. I Can't Dance to That (4:19)
-03. Windy Town (4:25)
-04. Gonna Buy a Hat (4:25)(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, Country RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
 ```
 
 

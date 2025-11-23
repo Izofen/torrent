@@ -6,7 +6,7 @@ Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65020.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65021.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65022.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jawbone - Jawbone II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65023.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bleeding Hands - Lost Integrity (2015) [MP3|320 Kbps] <Melodic Thrash, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65024.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2430E869481D67120CB59F34BA6DF7F6DF271059
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65025.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - La Hora Azul, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65026.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Serpent Crusher - Armored Saints (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65027.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Christophe Deschamps, Philippe Almosnino - Go Cats Go Rockabilly (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65028.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A21EF06A8B2ED29DEABBFB19F67E9476956A323F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65029.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65030.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65031.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Oleg Stalker - Star Wanderer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65032.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7A14990C90DDF5EAF765EC42FAE0C01BAA5F8CFB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65033.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65034.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65035.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Carl Craig - Desire: The Carl Craig Story (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65036.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Grant Green - Four Classic Albums (1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65037.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Harry Newcock - My Unexamined Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65038.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gazzara - Criminal Sounds (A Musical Journey Into 1960_70s Cop and Spy Movies) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65039.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Harem Scarem - Chasing Euphoria (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65040.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Galactic & Irma Thomas - Audience With the Queen (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65041.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Florian Grey - Beautiful Nightmares (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65042.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65043.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65044.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65045.jpg" />
 </div>
 
 

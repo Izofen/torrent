@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52390.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52391.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BE2FF5C22D0237FB63CA2F7C8E1B0E63ABDDF67B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52392.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jetbrains WebStorm 2024.1.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52393.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D7540BE978A13302F3D2594047BE698A484AF4B7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52394.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52395.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52396.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52397.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52398.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:EC093DE08521701761E4372AEA3644EDEA027A83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52399.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:D3188BB576E9076297DF935D870DD49A912BB686
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52400.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52401.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52402.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VНУК (2022) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52403.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Speccy 1.33.075 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52404.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:70909BBDF4981AA02FAE335708FA50CF0602A86B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52405.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:881D6330E24294F1B05EFB1FC6E035A4D8E2EE68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52406.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52407.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52408.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:945E49E6193D9A9740A7E251D27FADCE3EC6546A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52409.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Zedge™ Wallpapers & Ringtones 8.48.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52410.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52411.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52412.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ SpaceX показала компактную спутниковую антенн
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52413.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52414.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52415.jpg" />
 </div>
 
 

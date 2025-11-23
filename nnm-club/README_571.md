@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4486386104371511D604DBD12E653A49A04DCC4D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AFA5AFE107639346323FF099C21A6FFAFAE85466
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15157.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:48582294ED02F435E18D6C4485E1B71A1E9A6C83
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15158.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:58E706F23E3F9AB973239154598C8F68FF15F310
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15159.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15160.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15161.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8BDA0BE2D976DDD564158B24809E6427C43EE79F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15162.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:4A6D3F11AE4BF19F3131F8619F9C0488F44615B9
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15163.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15164.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15165.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15166.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15167.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15168.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15169.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:5354A383CE73EE4C9E690D8DD6EDB682FEDC1107
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15170.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B96699F785685016D925E38A4BE45B2B5DB18F08
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15171.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:8ED6AC05A4A4E899EE5A8E621AE8A6F93F7FF8C4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15172.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C48746B0CA27C925EA3F8DE7A6328D0FBF63AA14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15173.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D319F1B6122206D8EACE7ED91766D9D5E58915D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15174.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15175.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15177.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15178.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:EAA0025324120174D5CABFC3D09DFE6D1336085F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15179.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E2F15917C605E794D4A35F86DB40CD74F1BE2E9D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15180.jpg" />
 </div>
 
 

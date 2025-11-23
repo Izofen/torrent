@@ -1,3 +1,75 @@
+###  Публикация: 1822054   (94609) от 05.10.2025
+
+Список смертников: Тёмный волк / The Terminal List: Dark Wolf (2025) WEB-DL [H.264/720p] (сезон 1, серии 1-7 из 7) TVShows, LostFilm, Red Head Sound
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен Эдвардс, элитный «морской котик», сталкивается с переломным моментом в своей карьере. После роковой операции он теряет статус в SEAL и вынужден стать оперативником теневого подразделения ЦРУ.Производство: США / Amazon Studios, Civic Center Media, Fuqua FilmsЖанр: боевик, триллер, драмаРежиссер: Пол Кэмерон, Фред Туа, Лиз ФридлендерАктеры: Тейлор Китч, Том Хоппер, Дар Салим, Джаред Шоу, Люк Хемсворт, Джай Кортни, Джинн Трипплхорн, Райли Кио, Патрик Шварценеггер, Констанс ВуПеревод: Многоголосый (TVShows, LostFilm, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: ~00:56:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AF6A919F24677C93A0A916E5799162A0B5EF76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822002   (94611) от 05.10.2025
+
+Плохие парни 2 / The Bad Guys 2 (2025) UHD BDRemux [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 7.6, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плохие парни пытаются адаптироваться к новой жизни, когда их просят вернуться к криминальной жизни и выполнить последнее задание.Производство: США / Universal Pictures, DreamWorks Animation, Scholastic EntertainmentЖанр: мультфильм, боевик, комедия, криминал, детектив, приключения, семейныйРежиссер: Пьер Перифел, Джейпи СансАктеры: Сэм Рокуэлл, Марк Мэрон, Аквафина, Крэйг Робинсон, Энтони Рамос, Зази Битц, Даниэль Брукс, Наташа Лионн, Мария Бакалова, Алекс Борштейн, Ричард АйоадиПеревод: Дублированный (Продубляж)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7C13BC5E6B792D2CA9957276FEAF0813898D11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584830   (94613) от 05.10.2025
+
+Мулен Руж / Moulin Rouge! (2001) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, 1899 год. Знаменитый ночной клуб «Мулен Руж» — это не только дискотека и шикарный бордель, но и место, где, повинуясь неудержимому желанию прочувствовать атмосферу праздника, собираются страждущие приобщиться к красоте, свободе, любви и готовые платить за это наличными. За любовь самой известной куртизанки Парижа, блистательной Сатин, борются двое мужчин, (   Читать дальше...   )Производство: Австралия, США / 20th Century Fox Film Corporation, Angel Studios, Bazmark FilmsЖанр: мьюзикл, мелодрама, драмаРежиссер: Баз ЛурманАктеры: Николь Кидман, Юэн Макгрегор, Джон Легуизамо, Джим Бродбент, Ричард Роксбург, Гарри МакДональд, Яцек Коман, Мэттью Уиттэт, Керри Уокер, Кэролайн О’КоннорПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английскиеПродолжительность: 02:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5924F496A1DBED69D26D1A213EB67EDC4566EAD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822094   (94615) от 05.10.2025
 
 Большой потенциал / High Potential (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-3 из 13) LostFilm, HDRezka, RHS, 1win Studio, LE-Production (обновляемая)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94615.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Firefox Browser 143.0.4 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94617.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:AC6E4A76E8AD180F27DE4150F8E8AB3E1839BA95
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94618.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Firefox Browser 143.0.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94619.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Perfectly Clear WorkBench 4.8.0.2857 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94621.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Calibre 8.12.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94623.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ By Click Downloader Premium 2.4.26 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94625.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94626.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94627.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94628.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:BF026F10025F4775E9E89C2ECE5F295FE231DB5E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94629.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94629.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94631.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:825897A05508CE13197AC3F007B9F4DB42DA4700
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94632.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94633.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94634.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94635.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_94637.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ JetBrains CLion 2025.2.3 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94639.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ magnet:?xt=urn:btih:DF995FDA56AFCCA1D9169F2BEBD5B8535982524B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94641.jpg" />
 </div>
 
 
@@ -479,7 +551,7 @@ magnet:?xt=urn:btih:DF995FDA56AFCCA1D9169F2BEBD5B8535982524B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94643.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ magnet:?xt=urn:btih:32085539765A40E2F1D351968EA9AEF3D3E32EDF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94645.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ magnet:?xt=urn:btih:D0F89A0B80B0146B7934899240D6F57F108A3A6D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94647.jpg" />
 </div>
 
 
@@ -554,7 +626,7 @@ magnet:?xt=urn:btih:35D4CB4469EB8B3EC8ABED662C8E9CF28A5FF084
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94648.jpg" />
 </div>
 
 
@@ -566,79 +638,6 @@ magnet:?xt=urn:btih:35D4CB4469EB8B3EC8ABED662C8E9CF28A5FF084
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D536CC6894830230BFB76E7E62EC73B2C0630BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822055   (94649) от 05.10.2025
-
-Золушка / Cinderella (2015) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец молодой девушки по имени Элла, овдовев, женится во второй раз, и вскоре Элла оказывается один на один с жадными и завистливыми новыми родственницами — мачехой Леди Тремэйн и ее дочерьми — Анастасией и Дризеллой. Из хозяйки дома она превращается в служанку, вечно испачканную золой, за что и получает от своих сварливых сводных сестриц прозвище — Золушка.
-Несмотря (   Читать дальше...   )Производство: США, Великобритания / Allison Shearmur Productions, Beagle Pug FilmsЖанр: Фэнтези, Драма, Мелодрама, СемейныйРежиссер: Кеннет БранаАктеры: Лили Джеймс, Кейт Бланшетт, Ричард Мэдден, Хелена Бонем Картер, Нонсо Анози, Стеллан Скарсгард, Софи МакШера, Холлидей Грейнджер, Дерек Джекоби, Бен ЧаплинПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A328D1F4397331988402CF445DDABB99F20C79C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822048   (94651) от 05.10.2025
-
-Евгений Сухов | Воля цвета крови (2024) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1947 год. В Казанском НИИ ограблены и убиты бухгалтер и кассир, доставившие зарплату сотрудникам. Свидетелям запомнился щеголеватый вид налетчика: яркая одежда, приметный желтый берет… Начальник отдела по борьбе с бандитизмом майор Виталий Щелкунов с помощью осведомителей устанавливает кличку преступника – Пижон. Когда-то этот тип начинал с подделки документов, а (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 05:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10508F50230299E270EEC589C8D37F8B35C5A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822053   (94653) от 05.10.2025
-
-Adobe Photoshop 2025 26.11.0.18 Light Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63307E2016E5CE9FC139E8632176830DCA3A0B
 ```
 
 

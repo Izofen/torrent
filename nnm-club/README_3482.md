@@ -1,3 +1,81 @@
+###  Публикация: 1720747   (110214) от 04.05.2024
+
+Missio - I Am Cinco (2024) [FLAC|Lossless|WEB-DL|tracks] <electropop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall into a Blackhole [00:02:59]
+02. The Higher You Climb [00:03:06]
+03. Pulled Down Low [00:04:06]
+04. Time [00:03:14]Жанр: electropopПродолжительность: 5 CD, 01:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6070EA6ED65E21BF77D3B4256CC39A90432E71DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720616   (110215) от 04.05.2024
+
+PhotoDirector v19.1.8 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110215.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98DDB02B4A24777BDA4998966485AB8F175AD78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720723   (110216) от 04.05.2024
+
+Имбирный DED - Час пик (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Две белых полосы [00:03:55]
+02. Час пик [00:04:06]
+03. Капитан [00:03:41]
+04. Когда [00:04:27](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731B64829B7633958B19FFB1C73F3AB1D65C50A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720610   (110217) от 04.05.2024
 
 Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
@@ -6,7 +84,7 @@ Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celti
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110217.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110218.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110219.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Kevin Ito - 000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110220.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:B0EC59C70542891E36018621B9EC8F1499E4B256
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110221.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Coffee Shop Vibes - Possibilities (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110222.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Alicate - Heaven Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110223.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Ava Rane - Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110224.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ magnet:?xt=urn:btih:72F1302722F2F37456033D648717ED1FB4A3046F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110225.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110226.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ Raff Ranieri - Flows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110227.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110228.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ Benke Bunker Band - Rulla Hatt (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110229.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:71C5A6DFF8C69B14C62B8A40790F1940632B0FA2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110230.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ magnet:?xt=urn:btih:837E389943C8BCD02A90A89319E253A15FBDED95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110231.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ magnet:?xt=urn:btih:14AEF2E14AC36081E18A12424510C7A6AEB8D201
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110232.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ magnet:?xt=urn:btih:483AA826A08F08100D67647F78386BD788865398
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110233.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ magnet:?xt=urn:btih:5303168FE672C75C3A55BD683207470231CBFDE9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110234.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Speedtest от Ookla 5.3.6 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110235.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110236.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ FireAlpaca 2.11.20 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110237.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ magnet:?xt=urn:btih:8DA00CECBA54418840DCA00791076361B9AAEB3D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110238.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ FastCopy Pro 5.7.8 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110239.jpg" />
 </div>
 
 
@@ -589,81 +667,6 @@ FastCopy - инструмент для быстрого копирования/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C07040D55E24C08D8B78C0857C64C85F1991D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720636   (110240) от 04.05.2024
-
-Поедем, поедим! Красная Поляна: кулинарные вершины, скоростные склоны и музей друзей  (04.05.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» снова отправились на самый популярный курорт в России. Что еще они не видели в Сочи? Оказалось, что очень многое! Итальянец прокатился на самых скоростных склонах и изучил «медленный туризм», зашел в музей друзей и узнал, где греки зимуют. И покорил еще и кулинарные вершины: попробовал горную уху и раклет, приготовил кинзмари (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DBCECA9956D591458DD206A085AC6B68261995
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720703   (110241) от 04.05.2024
-
-Журнал | Юный ученый №4 (78) (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB07861B1B61EC1F32015910AE6A3E877AFA7CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720656   (110242) от 04.05.2024
-
-VA - New Music Friday (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N & Dellahouse - No More (original mix) (05:34)
-02. Abee Sash - When I First Saw You (Mant Deep Remix) (04:44)
-03. Deepsan - Beating Heart (original mix) (03:09)
-04. Cristian Ferrer & Deep Strips - Cristian Ferrer & DEnd Of The Night (radio edit) (03:42)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA419E41DA5651A0851BEF344E1156A83F05EC5
 ```
 
 

@@ -6,7 +6,7 @@ Google могут разделить: Минюст США думает, как �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google могут разделить: Минюст США думает, как �
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46662.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:314213388CBB9F58E564B6B6D580394D468F9262
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46663.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8A5D977ECF795AEEF004D33B06A2CC6052E6DBB3
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46664.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:97A13DE6BB8B741A099A446E755A8A09CFD3A493
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46665.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Diodov.net, Дмитрий Забарило | Электроника для на
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46666.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8B6174DFEA8F47977DDA67FA69A4802CDFC721E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46667.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:483C49B3569C8CF9918FB156AA0AF5EE27970A48
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46668.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ OpenVPN 2.6.12 (11.08.2024) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46670.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:766A24A3FE4772FFD9BF52F962ED5D6FFCB4F2E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46671.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:9E6498946AB911085256C632D29A77C1A3E05AC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46672.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:02A500FA910AF75B1EC002F7DADE41B16C413C19
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46673.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2D940B65880A4D7164C9C8363991A7CE6DB029E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46674.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:2D940B65880A4D7164C9C8363991A7CE6DB029E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46675.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:79FCC774864EC99DCFA3F396E7FC53985EC46416
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46676.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4BD1F570803827CE5FD8B5FC4BCCB06B5F9AA892
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46677.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46679.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4F92ED8AF793EC9C17DF7B44994174E8372F1000
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46680.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Network for Everyone (NFE, N4E) | Dynamic Multipoint VPN (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46681.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Wondershare Filmora 13.6.6.8453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46682.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A4F730CF700B1928BC9B20AC4C2AB27CEB4A56E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46683.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Christopher Schwarz | Изготовление стульев без страх�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46686.jpg" />
 </div>
 
 

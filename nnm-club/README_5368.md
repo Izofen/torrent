@@ -1,3 +1,178 @@
+###  Публикация: 1673398   (165061) от 01.11.2023
+
+Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тексте читатели знакомятся со всеми концепциями, техниками, артефактами и методами, которые можно найти в ведущих справочниках по управлению проектами и современных методологиях разработки (agile, гибридной и традиционной), а также получают практические знания, которые могут быть немедленно применены в реальных условиях. В отличие от других книг в этой области, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Purdue University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2744E0C690224BA290DF9723CFEF374469EF13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673417   (165062) от 01.11.2023
+
+Bonnie Tyler - 7 Albums (1983 - 2019) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Battle Of The Sexes ( Duet with Rod Stewart )
+03. Slow Walk
+04. Seven Waves Away(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 05:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CCE3BF95C6FE80D4600A9FABE6B2848597EF9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430942   (165063) от 16.12.2020
+
+Ная Геярова | Драконья традиция (2020) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлюсь. Тиана Фат – ведьма. К тому же артефактор высшей категории. Я подписала договор на преподавание артефакторики в государстве за гранью. Мне обещали умопомрачительную карьеру, сногсшибательную оплату и собственное жилье. Вот только никто не предупредил, что мне придется работать с драконами. А в драконьей академии есть негласная, но обязательная традиция. (   Читать дальше...   )Жанр: любовное фэнтези, магические академии, фэнтези про драконовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52415139EF1204C468253C074BB877FA57356B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345937   (165064) от 17.12.2019
+
+VA - Christmas Dance Party 2019-2020 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
+02. Brazyleros - We Are Free (Derek Armstrong Radio Edit) 3:43
+03. Paul Panait feat. Nicolle - Touch Me (DJ Magnum Radio Edit) 3:17
+04. A-Mase & Sharliz - Lend Me Your Love (Radio Edit) 3:52(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD316BEC8586B9227BB2D0DD08613574F2094CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346070   (165065) от 17.12.2019
+
+Д. Оливер, М. Райан | Х-планы: Секретные самолеты и тайные миссии (2003) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165065.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "Х-планы" дается анализ таинственной истории самолетов-шпионов, новейших авиационных разработок и так называемых "черных программ" ВВС США. Авторы рассказывают о том, что происходило на самом деле в этом мире государственных секретов. Они поднимают завесу таинственности, окружающую мир авиации, начиная с последних дней Второй мировой войны, (   Читать дальше...   )Жанр: Военная историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C04B58846ECD74AF27C5292D70071ED5B1F738B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432178   (165066) от 16.12.2020
+
+Movavi Video Suite for Mac 2021 v21.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2021 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EE02A97DDD38F773848D9AC004DD072B62ED48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432176   (165067) от 16.12.2020
+
+Книжная серия | Кинотексты [10 книг] (2017-2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательский дом «Новое литературное обозрение» (НЛО) является одним из лидеров рынка интеллектуальной литературы. Книги и периодические издания, выпускаемые под маркой «НЛО», прочно заняли свое место на книжных полках как специалистов-гуманитариев, так и просто любителей хорошего чтения...
+Серия «Кинотексты» — это не только монографии, посвященные жизни и творчеству (   Читать дальше...   )Жанр: Биографии и мемуары, Культура и искусство, Кинематограф, театрФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176A600968D137041F19A734163AA7AB93BCDFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597706   (165068) от 16.12.2022
 
 Firefox Browser 108.0 Portable by PortableApps [Ru]
@@ -6,7 +181,7 @@ Firefox Browser 108.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165068.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ AJ Plug - Killer King (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165069.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ Tony Spinner - Love Is The Answer (2020) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165070.jpg" />
 </div>
 
 
@@ -84,7 +259,7 @@ Dimmu Borgir - Alive In Torment (2001) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165071.jpg" />
 </div>
 
 
@@ -111,7 +286,7 @@ magnet:?xt=urn:btih:2F6BB991053D8BB927944C9782BA850AA240019B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165072.jpg" />
 </div>
 
 
@@ -138,7 +313,7 @@ magnet:?xt=urn:btih:F8C02E0B74FFC1DB3B4A2CDD6FDE2574DB086F20
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165073.jpg" />
 </div>
 
 
@@ -162,7 +337,7 @@ magnet:?xt=urn:btih:8C3FCA6B95B54201DBBDDD9887E5471ADC29791D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165074.jpg" />
 </div>
 
 
@@ -187,7 +362,7 @@ Lee Aaron - Almost Christmas (2020) Reissue, 2021, Big Sister Records [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165075.jpg" />
 </div>
 
 
@@ -214,7 +389,7 @@ Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165076.jpg" />
 </div>
 
 
@@ -241,7 +416,7 @@ Rename Expert 5.31.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165077.jpg" />
 </div>
 
 
@@ -265,7 +440,7 @@ magnet:?xt=urn:btih:2ADEB5044824A7C35F7FE2BC622BD84CA7E58A8A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165078.jpg" />
 </div>
 
 
@@ -289,7 +464,7 @@ Nova 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165079.jpg" />
 </div>
 
 
@@ -314,7 +489,7 @@ Mozilla Thunderbird 68.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165080.jpg" />
 </div>
 
 
@@ -338,7 +513,7 @@ CyberLink PowerDirector Ultimate 22.0.2213.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165081.jpg" />
 </div>
 
 
@@ -362,7 +537,7 @@ Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165082.jpg" />
 </div>
 
 
@@ -389,7 +564,7 @@ Coronatus - 10 Albums (2007-2021) [FLAC, WavPack|Lossless|image + .cue, tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165083.jpg" />
 </div>
 
 
@@ -416,7 +591,7 @@ magnet:?xt=urn:btih:6E4951358D7E77FAD18C7DAD4C0E66810B721577
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165084.jpg" />
 </div>
 
 
@@ -441,7 +616,7 @@ WinTools.net Premium 23.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165085.jpg" />
 </div>
 
 
@@ -465,7 +640,7 @@ magnet:?xt=urn:btih:54F2F35DA6FF8864A304AF114C04B42D41EAC7C5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165086.jpg" />
 </div>
 
 
@@ -476,181 +651,6 @@ magnet:?xt=urn:btih:54F2F35DA6FF8864A304AF114C04B42D41EAC7C5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:357C16E3B0014C823238BE7A21C76FEF57898575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597941   (165087) от 16.12.2022
-
-Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165087.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B04C35B0D5CCD931C6492974B15A6A2772D50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345991   (165088) от 17.12.2019
-
-JRiver Media Center 26.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165088.jpg" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B420C73AB0CE405EC42A82F35389EBB4EDD678CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597787   (165089) от 16.12.2022
-
-Вдовец / Il vedovo (1959) WEBRip [H.264/1080p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альберто Нарди - молодой человек, полный энтузиазма, стремится к большому бизнесу, но не имеет возможностей, необходимых для его успешного осуществления. В результате своего опасного желания, Альберто часто попадает в серьезные неприятности и вынужден прибегать к помощи своей жены Эльвиры, богатой и мудрой женщины. Но однажды Эльвира, устав от безумства мужа, отказывает (   Читать дальше...   )Производство: Италия / Cino del Duca, PaneuropaЖанр: КомедияРежиссер: Дино РизиАктеры: Альберто Сорди, Франка Валери, Ливио Лоренцон, Нандо Бруно, Руджеро Марчини, Марио Пассанте, Энцо Петито, Нанда Примавера, Розита ПисаноПеревод: Многоголосый профессиональный (СВ-Дубль)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FEB5AAD0F463AEDAA50989EF291A0B64EB0332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516821   (165090) от 12.12.2021
-
-CloudBeats: Cloud Music Player 1.8.3 PRO [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нет нужды качать и хранить аудио-контент на телефон и забивать объём памяти.
-CloudBeats - облачный музыкальный проигрыватель. Скачали в облако и прямо оттуда слушайте он-лайн и офф-лайн.
-Если вам нужен автономный облачный проигрыватель и одновременно инструмент для синхронизации всех ваших музыкальных альбомов и загрузки песен на несколько устройств, этот облачный (   Читать дальше...   )Тип издания: Пиратка (Pro)Разработчик: CloudBeatsПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF92B35C6587E8192A19D8855494F6EDDC76907F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673506   (165091) от 01.11.2023
-
-MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SEX
-2. Шишки (Колбасный Цех 3)
-3. Колбасный Цех 2
-4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345194   (165092) от 17.12.2019
-
-Ирвин Уэлш | Эйсид-хаус [сборник] (2019) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безумный. Волнующий. Возмутительный. Все это – о сборнике короткой прозы Ирвина Уэлша, одного из самых скандальных британских писателей конца XX – начала XXI века, автора культового контркультурного романа «На игле». Издание содержит двадцать два рассказа. По трем из них в 1998 году был снят фильм «Кислотный дом».
-
-Используя диаметрально противоположные подходы – (   Читать дальше...   )Жанр: Современная зарубежная проза, контркультураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14DB282EC1412A247CB44A82BEB48FAA52FE72D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432195   (165093) от 16.12.2020
-
-Ирина Френк | Английский язык. Прописи (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом пособии вы найдете задания на отработку написания различных элементов письма, букв и простых слов английского языка. В книге даются правила написания как печатных букв, так и прописных. К каждому звуку даны правила чтения. В процессе обучения помогут занимательные головоломки и дидактические упражнения, направленные на запоминание букв английского алфавита (   Читать дальше...   )Жанр: Прописи для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60A4FA82EB9CF65C8787A9B57D4A6B7D7DB050D
 ```
 
 

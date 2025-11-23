@@ -6,7 +6,7 @@ Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120952.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120954.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mastercastle - The Phoenix (2009) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120960.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Omega - Az Omega koncertek legnagyobb sikerei eredeti felvételeken (1994) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120974.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120979.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lucifer - Lucifer V (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Heavy Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120980.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ John Wetton - Caught In The Crossfire (1980) Expanded Edition, 2024, Spirit Of U
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120997.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:F3F811318A3EBE56F7C3A4FAF495DE882F8C8DA6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121023.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|image + .cue] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121090.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Electric Wizard - Wizard Bloody Wizard (2017) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121096.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Askon - Sacred Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121098.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aberratio - Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121099.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121112.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A9809B407B863489809573F06111AFBE7AC4178E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121140.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121245.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121250.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121254.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121255.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Abysmal Grief - Feretri (2013) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121256.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jack Russell & Tracii Guns - Medusa (2024) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121260.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121265.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dark Oath - Ages of Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121271.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121272.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Abysmal Grief - Reveal Nothing (2016) Compilation [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121274.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121277.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121280.jpg" />
 </div>
 
 

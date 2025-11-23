@@ -6,7 +6,7 @@ TuneIn Radio Pro v38.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18610.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vanced Tube v5.3.81.185 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18626.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B45F0DBC1A8C28CE7D3383140020B5A7669490EC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18633.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2C67547E97B1BD182B337E898D457CCE6410F027
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18636.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Speedtest от Ookla v6.1.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18637.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ USB Device Tree Viewer 4.5.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18643.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows Manager 2.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18649.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.11.6 Stab
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18650.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Nik Collection by DxO 8.0.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18666.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Total Commander 11.55 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18672.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LibreOffice 25.2.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18679.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Balabolka 2.15.0.895 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18703.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18709.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Music Collection 3.9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18710.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ R-Wipe & Clean 20.0.2507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18712.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ XYplorer 27.00.0500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18713.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A489F07CD901C714A1E7CC2695E793629DADD932
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18715.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Genius Art: Image AI Generator v1.3.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18723.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:6327E297E41A1882BD0BC0F65F8BBFE40D252BCB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18727.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 04.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18730.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ KiCad 9.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18733.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Xplorer2 Ultimate 6.1.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18736.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18740.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows Manager 2.1.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18742.jpg" />
 </div>
 
 

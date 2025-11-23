@@ -1,3 +1,75 @@
+###  Публикация: 1702006   (116142) от 23.02.2024
+
+Malwarebytes Premium 5.0.17.99 RePack by xetrin [Multi/Ru]
+
+>>След.
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Premium – это антивирусное приложение, которое может полностью удалить даже самые передовые вредоносные программы. Продукты Malwarebytes доказали свою эффективность в защите компьютеров путем полного удаления всех видов вредоносных программ, включая вирусы, трояны, шпионское ПО, рекламное ПО и руткиты. Когда дело доходит до безопасности вашего компьютера, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9A18B29EA7B16C8E849877F9EE3F3A24AA24FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694099   (116143) от 23.02.2024
+
+Шутки ангелов / The Bystanders (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116143.jpg" />
+</div>
+
+
+###  Подробнее
+
+За каждым человеком в течение всей его жизни приглядывают бессмертные существа — ангелы. В особенно критические моменты они даже могут вмешиваются в жизни людей. Но не каждому из них нравится такая работа и доставшийся подопечный. Поэтому иногда, чтобы немного развлечься, они не прочь пошутить, а заодно поиграть человеческими судьбами.Производство: Великобритания / Waggon & Horses ProductionsЖанр: комедияРежиссер: Гэбриел Фостер ПрайорАктеры: Эмили Уайатт, Фрэнк Харпер, Люси Пиндер, Дэвид Шааль, Ник Хельм, Шонн Уолш, Стефан Боэм, Марек Ларвуд, Лорен Даглин, Рэй КаллехаПеревод: Многоголосый профессиональный (KION)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83C18150D8AEBAE01A67533A2AC10E001DB5182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694106   (116144) от 23.02.2024
+
+Девушка в поезде / The Girl on the Train (2016) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день поезд проносит Рэйчел мимо очаровательного коттеджа, где живёт идеальная на первый взгляд пара. Но однажды идиллия разрушится – прекрасная незнакомка бесследно исчезнет. Рэйчел окажется втянута в весьма запутанную историю, ведь только она видела из окна то, что было скрыто ото всех.Производство: США / Amblin Entertainment, DreamWorks SKG, Marc Platt Productions, Reliance Entertainment, Storyteller DistributionЖанр: триллер, детектив, драма, криминалРежиссер: Тейт ТейлорАктеры: Эмили Блант, Хейли Беннетт, Ребекка Фергюсон, Джастин Теру, Люк Эванс, Эдгар Рамирес, Лора Припон, Эллисон Дженни, Даррен Голдштейн, Лиза КудроуПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английские (SDH)Продолжительность: 01:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A1EA907707240A7F26B4424EA3F17107C2393D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701915   (116145) от 23.02.2024
 
 Одна жизнь / One Life (2023) WEB-DLRip [H.264] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116145.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:FCFB6EDD164DEE1E2A9CA653A0253433650C3597
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116146.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B325F5C8551DAF3D23E77508ED569DE7B6CEB84F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116147.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:26A48183D04BC58BF9089ED9E9A1E3D97B99107F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116148.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:047BCAEF14058FEEDBAC2596949C9A47A7F622A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116149.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:690B9B292774E71A9DE6A891ABA7DC893609C84F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116150.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Stepik, Аватар пользователя Руслан Клуб дедов-�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116151.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Wallpaper Engine 2.4.70 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116152.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:D5AA1AF480E1E2185442A93EB9BDE873D1415A74
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116153.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:6B40F3AEDE53B9E0E75141BD75B24099A9F0A943
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116154.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:77C4D7A797AC45A226D4E177A269BEC03E3DC547
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116155.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116156.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116157.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116158.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:BD703D9898995923F10E33633AEDB4338AC4FBB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116159.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:971DAF4117A22767DA2D4FB4DBF9B65D1F39723D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116160.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116161.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:655514BA0DEAE3A421792408E2FAC23BDE84DB74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116162.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116163.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116164.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116165.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116166.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116167.jpg" />
 </div>
 
 
@@ -571,87 +643,6 @@ Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0011C5E859651CAC52F42C82905A051A628AB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701745   (116168) от 22.02.2024
-
-Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me High (3:55)
-02. Stop in the Middle (5:29)
-03. Bad Boy (3:58)
-04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701600   (116169) от 22.02.2024
-
-Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presages (02:07)
-02. The Bell That Constantly Sounds (08:31)
-03. Decline (05:44)
-04. Visions of Absence (05:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701478   (116170) от 22.02.2024
-
-Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme for Malcolm [7:42]
-02. That's All There Is to Love [5:45]
-03. Pomponio [10:21]
-04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
 ```
 
 

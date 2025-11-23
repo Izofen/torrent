@@ -1,3 +1,79 @@
+###  Публикация: 1700370   (117286) от 16.02.2024
+
+Цыганская невеста / La novia gitana / The Gypsy Bride (2022) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного романа Кармен Мола.
+Инспектор спец бригады расследует ритуальное убийство молодой цыганки, которое полностью воспроизводит смерть её сестры 6 лет назад. Загвоздка в том, что виновный уже отбывает наказание в тюрьме.Производство: Испания / Diagonal TV, ViacomCBS International StudiosЖанр: драма, криминалРежиссер: Пако Кабесас, Хуан Мигель дель КастильоАктеры: Нереа Баррос, Висенте Ромеро, Игнасио Монтес, Лусия Мартин Абельо, Мона Мартинес, Франсеск Гарридо, Хинес Гарсия Мильян, Дарио Грандинетти, Моника Эстарреадо, Морено Борха и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9CB3D6EB59FCAC8D1BE3E13670A80E480A6573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700243   (117287) от 16.02.2024
+
+Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo Heroes (Part I)
+02. Resonance
+03. Ninive
+04. Time Bridges(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54C07245E7F81D30F7408F21EB282526CB7B19F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700347   (117288) от 16.02.2024
+
+Мария Орунья | Валентина Редондо и Оливер Гордон (Книга 1). Скрытая бухта (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой лондонец Оливер Гордон получает в наследство колониальный особняк, виллу “Марина” в прибрежном городке Суансес в Кантабрии – области на севере Испании. Во время ремонтных работ в подвале обнаруживается замурованное тельце младенца, а рядом – странный предмет, уродливая статуэтка, изображающая какого-то экзотического идола. Страшная находка словно открывает (   Читать дальше...   )Жанр: Исторический детектив, Полицейский детективПеревод: Марина КетлероваИздательство: Фантом Пресс, МоскваФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02C1A208050B63443CDAB8594FDEB3DA409463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700433   (117289) от 16.02.2024
 
 WonderFox HD Video Converter Factory Pro 26.9 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +82,7 @@ WonderFox HD Video Converter Factory Pro 26.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117289.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Windows Firewall Control 6.9.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117290.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ MSI Kombustor 4.1.28.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117291.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:1271541C48D9ACC68200403768764125F4C94FA3
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117292.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:2BA31BB343B445F6467A6820EA7DF88F46668179
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117293.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ magnet:?xt=urn:btih:CB56254737AB286B8DEDCA16257591725F39B149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117294.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ magnet:?xt=urn:btih:B9A25AE97A5D9C831D8DA82BDDDFDABBB4C7E15E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117295.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ magnet:?xt=urn:btih:4BB1A8B761F0168763A738C7CE5408A53FB63815
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117296.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ magnet:?xt=urn:btih:2A8484855ACCECEAA4BEFBDE5379B10802905388
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117297.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ Stand Up (2024.02.16) SATRip (сезон 11, выпуск 14)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117298.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117299.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117300.jpg" />
 </div>
 
 
@@ -299,7 +375,7 @@ magnet:?xt=urn:btih:C7400ED18213085961C81818B88B9C0589216BBD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117301.jpg" />
 </div>
 
 
@@ -323,7 +399,7 @@ Microsoft .Net Packages AIO 13.02.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117302.jpg" />
 </div>
 
 
@@ -347,7 +423,7 @@ VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117303.jpg" />
 </div>
 
 
@@ -374,7 +450,7 @@ CrystalDiskInfo 9.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117304.jpg" />
 </div>
 
 
@@ -398,7 +474,7 @@ FurMark 1.38.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117305.jpg" />
 </div>
 
 
@@ -422,7 +498,7 @@ magnet:?xt=urn:btih:106BCBBA7FCC22923CEDB40D573AA05B0948AEDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117306.jpg" />
 </div>
 
 
@@ -446,7 +522,7 @@ magnet:?xt=urn:btih:106BCBBA7FCC22923CEDB40D573AA05B0948AEDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117307.jpg" />
 </div>
 
 
@@ -470,7 +546,7 @@ magnet:?xt=urn:btih:3A43EB144D81302EB4F955AF85C3A17752DBD6C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117308.jpg" />
 </div>
 
 
@@ -494,7 +570,7 @@ VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117309.jpg" />
 </div>
 
 
@@ -521,7 +597,7 @@ magnet:?xt=urn:btih:9A61F92C19B9B04CBABC52A6C851E7F656D6BAD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117310.jpg" />
 </div>
 
 
@@ -545,7 +621,7 @@ magnet:?xt=urn:btih:C753C35F25F67204C16ED748940688859C1A3849
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117311.jpg" />
 </div>
 
 
@@ -557,78 +633,6 @@ magnet:?xt=urn:btih:C753C35F25F67204C16ED748940688859C1A3849
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D51F2B95755B66A21A1224A147305D1FC4DFCE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699398   (117312) от 16.02.2024
-
-Стальная хватка / The Iron Claw (2023) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их жизнь — изнурительные тренировки перед грядущим сражением. Каждый раз, выходя на арену, они рискуют остаться здесь навсегда. Толпа приветствует могучих юношей, готовых развлекать их ради мимолетной славы. Но они — не гладиаторы в Древнем Риме. А дети некогда знаменитого бойца, который теперь полностью сконцентрирован на карьере своих четырёх сыновей. Рано или (   Читать дальше...   )Производство: США, Великобритания / A24, Access Entertainment, BBC FilmЖанр: биография, спорт, драмаРежиссер: Шон ДуркинАктеры: Зак Эфрон, Джереми Аллен Уайт, Харрис Дикинсон, Мора Тирни, Стэнли Саймонс, Лили Джеймс, Холт Маккэллани, Челси Эдмундсон, Грейди Уилсон, Валентайн НьюкомерПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), Английские (Full, SDH)Продолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50C58E2FB6594E1B78AFBD7B24AC7AF393387A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699656   (117313) от 16.02.2024
-
-Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Scene Rune [Deluxe Edition]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4FBD8CAA8C61D03B9C076C7B3A2B7E620CE6E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699862   (117314) от 16.02.2024
-
-Тот, кто смотрит / Stranger in the Woods (2024) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США, WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: русскийСубтитры: Русские (Forced, full)Продолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A355E87AF31DEC87FAE1DE085EC9E9F130CBCC4
 ```
 
 

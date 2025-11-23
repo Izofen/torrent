@@ -1,3 +1,75 @@
+###  Публикация: 1569950   (241254) от 15.08.2022
+
+Overloud Gem studio plug-ins 08.2022 Standalone, VST, VST3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Overloud Gem studio plug-ins предлагает вам полный набор плагинов для микширования и мастеринга Gem, включая Gem Comp76, Gem EQ495, Gem Tapedesk, Gem EQ84 и Gem Dopamine. Пакет предоставляет инженерам и продюсерам аутентичные эмуляции старинных эквалайзеров, магнитофонов и микшерных консолей, а также включает в себя легендарный динамический процессор, обогащенный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBA33D5B415CDB7593388C795CFD2B784DE35B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624907   (241779) от 07.04.2023
+
+Aiseesoft DVD Creator 5.2.58 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft DVD Creator - это одна из лучших профессиональных программ для создания DVD дисков. Она легко конвертирует в DVD или ISO практически любые популярные видеоформаты, включая AVI, MPEG, DivX, TS, MTS, DV, VOB, WMV и MP4. Кроме того, Aiseesoft DVD Creator позволяет создавать замечательные пользовательские меню DVD, которые можно выбрать из предлагаемых шаблонов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC919066CBCF7D18AE5B22B80A50BBDE41EA7B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569190   (242159) от 11.08.2022
+
+Acoustica MixCraft Pro Studio 9 9.0 Build 470 (x86/x64) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mixcraft, созданный музыкантами для музыкантов, не имеет себе равных в отрасли благодаря простоте использования и необузданной мощности. Записывайте и микшируйте свои треки до совершенства в рекордно короткие сроки с невероятно интуитивно понятным интерфейсом Mixcraft, молниеносным звуковым движком, бросающей вызов реальности технологией смещения высоты тона и растяжения (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541678   (242601) от 03.04.2022
 
 Native Instruments - Replika 1.5.3 VST, VST3, AAX (x64) [En]
@@ -6,7 +78,7 @@ Native Instruments - Replika 1.5.3 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242601.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Native Instruments - Effects Series Mod Pack 1.2.1 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242623.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Erica Synths - Zen Delay Virtual 1.0.0 Standalone, VST, VST 3 (x64) RePack by R2
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242863.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242863.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Unfiltered Audio - TRIAD 1.3.5 VST, VST3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243118.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243118.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ DxO ViewPoint 3.2.0 Build 254 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243501.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243501.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ XLN Audio - RC-20 Retro Color 1.2.6.2 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244019.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244019.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ W.A Production - KSHMR Essentials 1.2.0 VST, VST 3, AAX (x64) RePack by AstroNom
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244159.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244159.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Sonible - smart:EQ live 1.0.5 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244166.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244166.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Spotify 1.1.90.859 Portable by JolyAnderson [En/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244518.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244518.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Output FX Plug-ins 03.2023 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244879.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244879.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ PSPaudioware - PSP 285 1.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245704.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245704.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:61B0BF45BFE66CA47D637013D3A4D861FFC2E493
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246032.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246032.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Steinberg - SpectraLayers Pro 12 12.0.30.431 (x64) Update Only [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246125.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.5.0 RePack (& Portable) by KpoJIuK
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246150.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246150.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Lese - Sweep (Infinity Filter) 1.3.8 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246155.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246155.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Excite Audio - Bloom Bundle 2025.10 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246160.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246160.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Apulsoft - splitS 1.1.2 VST 3, AAX (x64) RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246184.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246184.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Modartt - Pianoteq 9.0.2 Pro STANDALONE, VSTi, VSTi 3 RePack (& Portable) by vkD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246191.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246191.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Darktable 5.2.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246197.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246197.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ KORG Collection 6 6.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246204.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246204.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ RapidRAW 1.4.3 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246210.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246210.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ K-Lite Codec Pack 19.3.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246229.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Novation - Bass Station v.1.7[VSTi][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248292.jpg" />
 </div>
 
 
@@ -558,78 +630,6 @@ Novation - Bass Station v.1.7[VSTi][английский]
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492716   (248330) от 06.05.2012
-
-FXpansion - BFD Eco v.1.0.1.27+(BFD Eco Data v 1.1.5) by ASSIGN[BIN|ISO][английский]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248330.jpg" />
-</div>
-
-
-###  Подробнее
-
-BFD Eco - изящный, функциональный и доступный программный инструмент для создания партий акустических барабанов, основанный на движке BFD2. Оптимизированный для максимальной гибкости и функциональности, в то же время оставаясь простым в использовании, BFD Eco предоставляет большую библиотеку звуков ударных и паттернов, а также обеспечивает совместимость с широким спектром дополнительных расширений от FXpansion и сторонних разработчиков. BFD Eco предоставляет доступ к лучшим звукам из библиотеки BFD2, которые были записаны в Лондоне на студии Air Studios. Инструмент включает множество пресетов для того, чтобы показать всю мощь секции микширования. Эквализация, динамическая обработка и эффекты позволяют формировать звук и стерео пространство для любых ситуаций. Основанные на технологии DCAM компрессия, фильтрация и драйв обеспечивают тембр аппаратных устройств, в то время, как интегрированная версия пластинного алгоритма Overloud Breverb может использоваться для эффектов реверберации. Также BFD Eco содержит секцию (   Читать дальше...   )Название программы: FXpansion - BFD Eco v.1.0.1.27Язык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834303   (248546) от 03.11.2025
-
-VidCoder 12.11 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248546.jpg" />
-</div>
-
-
-###  Подробнее
-
-VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake. Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC073D6FE0A7F7B86297AEE4F26F858153DCE04E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834099   (248614) от 02.11.2025
-
-Fast Video Cutter Joiner 6.9.2.0 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
 ```
 
 

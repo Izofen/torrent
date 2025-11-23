@@ -6,7 +6,7 @@ Ashampoo UnInstaller 11.00.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130171.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130184.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Anthropics Portrait Professional Studio v10.9.3 RePack by wadimus [2012,ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130186.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PowerCMD Pro 2011 2.2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130194.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Photoshop 2021 22.5.5.691 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130195.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:9DA6B82C0A7039B18A557FB9F759AA59BDBC77DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130198.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Adobe Acrobat Reader для PDF 21.11.1.20710 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130202.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:FEFEF3D035D062E41606D93B65E6F2AA557238F3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130207.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VirtualBox 6.1.32 Build 149290 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130208.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Hard Disk Sentinel PRO 5.70.10 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130219.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:755DE9C5590B2A5BAE9A1731CB2262E26EFA08A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130220.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Legends of Valour [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130225.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Legends of Valour [En] (RePack) 1992 | Pilotus
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130250.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ HitmanPro 3.8.28 Build 324 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130254.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130256.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130261.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130262.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130263.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130265.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130266.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130270.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130274.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ FSNotes 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130275.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Downie 4 v4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130280.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ DeepChord Presents Echospace - [LIVE] (2010) [MP3|320 кб/с]<Dub Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130283.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ TunesKit Video Cutter 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130284.jpg" />
 </div>
 
 

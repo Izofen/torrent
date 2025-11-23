@@ -1,3 +1,81 @@
+###  Публикация: 1718957   (110734) от 27.04.2024
+
+Wavesequencer - Hyperion 1.52 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неограниченная игровая площадка для звукового дизайна, вдохновленная легендами 80-х, такими как Вангелис, Жан-Мишель Жарр и Брайан Ино, Hyperion — это современный цифровой модульный шедевр. С момента запуска было выпущено более 40 обновлений, Hyperion эволюционировал и продолжает совершенствовать свои звуковые возможности, функционал и графический интерфейс, многие (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D4E7F139BD4C937A28FAC4ED5D22EDE3A304EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719049   (110735) от 27.04.2024
+
+VA - Anjunabeats presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Melting Warning (Mixed) (01:20)
+02. Aname – Beautiful World (Mixed) (07:37)
+03. ARTY – Around The World (Mixed) (05:34)
+04. Alpha 9 – Before The Dawn (Grum Remix Mixed) (06:36)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2680BC7F219190E17809EF8051DB03F74BBBBB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719065   (110736) от 27.04.2024
+
+Plotnik82 - Мои барды (2024) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110736.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Листопад
+2. Бусина
+3. Меняй свою осень
+4. Родня(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7110625741BF3F9B6E1C4A0AEB1652710F82F656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718996   (110737) от 27.04.2024
 
 Нечего терять / Rien a perdre (2023) WEB-DLRip [DVO] [AD]
@@ -6,7 +84,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110737.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ VA - Luxury Lifestyle Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110738.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Wavesequencer - Theia 1.09 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110739.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:2A3BE5D38B460AE0BBB8A36D49C3AC52A3A42AE8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110740.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:CECC329965DCCA352264A8C20E206A34A46EA72B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110741.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ VA - Rock no Volante (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110742.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ VA - The Rock Alternative (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110743.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ magnet:?xt=urn:btih:A58573BE81B4BDAC2F5CFE1AB0032A57CA033545
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110744.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ magnet:?xt=urn:btih:9B1C0E4875E387C2BC3FCFA4B2FCF36A6D1E32A6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110745.jpg" />
 </div>
 
 
@@ -237,7 +315,7 @@ Perfectly Clear WorkBench 4.6.1.2656 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110746.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ Eric Clapton - To Save a Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110747.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ TweakNow WinSecret Plus! 5.3.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110748.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ magnet:?xt=urn:btih:128CDF54488C35DF254CDD71794B4E0516E19177
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110749.jpg" />
 </div>
 
 
@@ -338,7 +416,7 @@ VA - Armin van Buuren - A State Of Trance 1170 (Top 1000 2024: Top 50) (2024) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110750.jpg" />
 </div>
 
 
@@ -365,7 +443,7 @@ R-Wipe & Clean 20.0.2453 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110751.jpg" />
 </div>
 
 
@@ -389,7 +467,7 @@ magnet:?xt=urn:btih:95F38EA6C29845378178C5E1E8961C8D70E1908C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110752.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ Diary Of Dreams & Philharmonie Leipzig - Under a timeless spell (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110753.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ magnet:?xt=urn:btih:F54661796A4C4419D7855C591120FC6D5E22EFE3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110754.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Google Chrome 124.0.6367.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110755.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ VA - 11 Years Of Suanda Music (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110756.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ magnet:?xt=urn:btih:A28AFEF3520CC3965B7732271A424E12AA1A81B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110757.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ magnet:?xt=urn:btih:D25304A1475F4B36AB763104EEF166798E2458AF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110758.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ CudaText 1.214.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110759.jpg" />
 </div>
 
 
@@ -575,78 +653,6 @@ CudaText — абсолютно бесплатный мультиплатфор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5709BBD3468CCC5D856504B6270325C0EA81F410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719034   (110760) от 27.04.2024
-
-MotoGP. Этап 04 из 21. Гран-при Испании. Спринт (27.04.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110760.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 апреля 2024, суббота. 16:00 МСК. Этап 4, Херес. Гран-при Испании. Спринт (12 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2796CEBDD836746432DC27AABAC92F4D6E08045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718942   (110761) от 27.04.2024
-
-Журнал | Частная территория №9 (110) (сентябрь 2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110761.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Частная территория» – профильный журнал и сайт о строительстве, архитектуре и дизайне интерьеров. Здесь профессиональные строители, проектировщики, отделочники, дизайнеры, декораторы и заказчики находят друг друга. Здесь становится известно о проектах, услугах, интерьерных, технических и мебельных новинках, которые благодаря «Частной территории» обретают популярность (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: ООО Издательство "Альфа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7F91A41E10AE95319E27AF6855318396142904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718866   (110762) от 27.04.2024
-
-Radiant Photo 1.3.1.435 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44CAFCA1D3B1280B5A16B5A9F2D5390384C578F
 ```
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1739529   (106028) от 28.07.2024
+
+VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпуск Лето 2003 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Kristine Blond - Love Shy
+02. London Underground - Freeze Frame
+03. Pied Pipper - Slip & Slide(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739510   (106029) от 28.07.2024
+
+Photo Studio Premium v2.7.8.3067 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: PremiumРелиз состоялся: 27.07.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EA764B170880E52CA333CA298D3ACEE68C4E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739032   (106030) от 28.07.2024
+
+Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eye Of The Tiger
+ 02. The Heat Is On
+ 03. Feel So Real
+ 04. The Power Of Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BC8237747C126F6C80B22AE26FE657B9A453BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739481   (106031) от 28.07.2024
 
 Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы Ареса [2018, TV, 26] HDTVRip 720p HS
@@ -6,7 +84,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106031.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106032.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:40DAEFE5F167DEAA49809192F19913C6171AF76B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106033.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ HY-Plugins - HY-Filter4 1.1.62 VST, VST 3 (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106034.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ DVDFab StreamFab 6.1.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106035.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Radiant Photo 1.4.1.501 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106036.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ Firefox Browser 128.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106037.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106038.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106039.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106040.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106041.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106042.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ Darktable 4.8.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106043.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ WinMerge 2.16.42.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106044.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106045.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106046.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106047.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ VA - Warm Melodies And Rhythms (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106048.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ magnet:?xt=urn:btih:7C3A1704B5E093EC4709E4B2AFF1D97133A7DD46
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106049.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ Sumatra PDF 3.6.16506 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106050.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:74E90E2DDE3E5D1E106D3DDA46B08E58ED1453E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106051.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Tablacus Explorer 24.7.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106052.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ magnet:?xt=urn:btih:5E139AEF6D41BF92D41C12E8E4AE3A4CAE4E6048
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106053.jpg" />
 </div>
 
 
@@ -569,85 +647,6 @@ magnet:?xt=urn:btih:5E139AEF6D41BF92D41C12E8E4AE3A4CAE4E6048
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707C3D851B117333BE22D6A4A49C0229E5B54F66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738417   (106054) от 28.07.2024
-
-VA - RnB Soulful Collection (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aliah - Tease
-002. Arin Ray - Above The Rim Freestyle
-003. Inayah - Glory
-004. Ashanti - Thank You(   Читать дальше...   )Жанр: Rhythm And Blues, SoulПродолжительность: 11:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0334406D31CCD7A00E9C2E21655A267D67808F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737750   (106055) от 28.07.2024
-
-VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbps] <New Age, Mantra, Meditative>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Malia - Hare Krishna [07:44]
-02. Galt MacDermot, Tom Pierson - Hare Krishna [03:21]
-03. Baird Hersey & Prana, Krishna Das - Hare Krishna [06:40]
-04. Aria - Hare Krishna [04:56](   Читать дальше...   )Жанр: New Age, Mantra, MeditativeПродолжительность: 08:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D4C3E8A9C338F4616F9C7B780C83F3F1A264DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739470   (106056) от 28.07.2024
-
-Darktable 4.8.1 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106056.jpg" />
-</div>
-
-
-###  Подробнее
-
-darktable — фоторедактор, предназначенный для организации всего рабочего процесса обработки фотоснимков (в том числе, в формате RAW) — от импорта фотографий с камеры и их всесторонней обработки до экспорта с поддержкой обычного сохранения на диск, экспорта в облачные хранилища и отправки снимков по почте.
-Полноэкранный, масштабируемый пользовательский интерфейс darktable (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E49A33223AD6B222CFAD7F208CFD2B1C1B31E7
 ```
 
 

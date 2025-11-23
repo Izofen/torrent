@@ -1,3 +1,99 @@
+###  Публикация: 1679252   (138735) от 24.11.2023
+
+UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы испытать удачу? Отправляйтесь в погоню за собственным наследием и оставьте свой след на карте в игре UNCHARTED: Наследие воров. Коллекция. Насладитесь захватывающими кинематографическими сюжетами и популярнейшими играми культовой серии UNCHARTED вместе с обаятельными и хитрыми ворами – всеми любимыми Натаном Дрейком и Хлоей Фрейзер.Тип издания: LicenseРазработчик: Naughty Dog LLC, Iron Galaxy StudiosЖанр: Action, AdventureЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436195   (138737) от 30.12.2020
+
+SamDrivers 20.12 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590838   (138739) от 18.12.2012
+
+Синдром дракона (12 серий из 12) (2012) 2хDVD9
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма основан на реальных фактах, связанных с обнаружением в 1993 году в небольшом украинском городе Кировограде огромной коллекции древностей, стоимостью около миллиарда долларов, принадлежавшей обычному электрику Александру Ильину, а также на материалах расследований, гипотезах и домыслах, появившихся по этому поводу за пятнадцать лет.Жанр: Детектив, психологический триллерРежиссер: Николай ХомерикиАктеры: Дмитрий Муляр, Андрей Мерзликин, Лев Борисов, Екатерина Климова, Леонид Бичевин, Кристина Асмус, Карина Андоленко, Елена Шевченко, Алексей Гуськов, Юрий Цурило, Алексей Серебряков, Карэн Бадалов, Даниил Спиваковский, Борис Каморзин, Александр Ивашкевич, Людмила Чурсина, Ольга Чурсина, Александр Семчев, Алексей Кравченко, Никита Емшанов, Артём Ткаченко, Даниил Белых, Юрий Беляев, Владимир Капустин (II), Сергей Романюк, Павел Майков, Наталья Романычева, Владимир Ямненко, Иван Иванов (V), Олеся Железняк, Александр Феклистов, Маргарита Шубина, Инна Королёва, Ольга Аросева, Владимир Зельдин, Юрий Яковлев-Суханов, Николай Пономаренко, Юрий НазаровПродолжительность: 12 х ~ 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349075   (138740) от 30.12.2019
+
+Человек-паук 2 / Spider-Man 2 (2004) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихоня Питер Паркер балансирует на грани двух своих жизней: супергероя Человека-паука и обычного студента колледжа. Его отношения со всеми, кто ему дорог, в опасности или зашли в тупик. А жизнь приготовила ему новое испытание. Он должен использовать все свои суперспособности, чтобы одолеть жестокого безумца доктора Отто Октавиуса.Производство: США / Columbia Pictures, Marvel Enterprises, Laura Ziskin ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Сэм РэймиАктеры: Тоби Магуайр, Кирстен Данст, Джеймс Франко, Альфред Молина, Розмари Харрис, Дж.К. Симмонс, Донна Мерфи, Дэниэл Гиллис, Дилан Бейкер, Билл НаннПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9864CE736676EA399FF829FE5D3EC5F3618AE9A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088511   (138741) от 31.12.2016
 
 Укуренный в Бруклине / Baked in Brooklyn  (2016) BDRip [H.264/1080p] [EN / EN Sub]
@@ -6,7 +102,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138741.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:030932F35276928B5150B077906FEB27DEA12C3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138742.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ magnet:?xt=urn:btih:84C1EC15803684A5B455F85B8502DB8F8CF59F02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138743.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ magnet:?xt=urn:btih:BAD70980BBD00DF32F9513189A89CADBE9CCB230
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138746.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ magnet:?xt=urn:btih:11EE85E5A7B1AC281268B79553E4F24C290B26F2
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138747.jpg" />
 </div>
 
 
@@ -127,7 +223,7 @@ magnet:?xt=urn:btih:DE47B683A6A0A468BCC7338AE8A115137E23ABE8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138748.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ magnet:?xt=urn:btih:E84200D62C0D7DD55664B1D2A3B78B64930796E3
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138749.jpg" />
 </div>
 
 
@@ -175,7 +271,7 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138751.jpg" />
 </div>
 
 
@@ -202,7 +298,7 @@ Tor Bridges Updater 0.1.5 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138752.jpg" />
 </div>
 
 
@@ -228,7 +324,7 @@ MediaInfo 0.7.81 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138755.jpg" />
 </div>
 
 
@@ -252,7 +348,7 @@ magnet:?xt=urn:btih:486869584F3C5BB276961705BA641FBC1CCE1233
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138756.jpg" />
 </div>
 
 
@@ -276,7 +372,7 @@ magnet:?xt=urn:btih:ADC9C96D23C885925F78C97EA88D5AD3E8BD7717
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138757.jpg" />
 </div>
 
 
@@ -300,7 +396,7 @@ magnet:?xt=urn:btih:4D31869725BDF01B6CFC06B726CF8C7697C348DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138758.jpg" />
 </div>
 
 
@@ -324,7 +420,7 @@ SolidWorks 2024 SP0.1 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138759.jpg" />
 </div>
 
 
@@ -349,7 +445,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138760.jpg" />
 </div>
 
 
@@ -376,7 +472,7 @@ magnet:?xt=urn:btih:DE440350F753647BCF83C2E750B803CB04128B2D
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138761.jpg" />
 </div>
 
 
@@ -401,7 +497,7 @@ magnet:?xt=urn:btih:FD4E68B413F7339A1A13E73C9BD3DD82CDA6B27F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138762.jpg" />
 </div>
 
 
@@ -425,7 +521,7 @@ magnet:?xt=urn:btih:FF572D7570E343954B7841B01ACC6DF589A52119
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138763.jpg" />
 </div>
 
 
@@ -450,7 +546,7 @@ magnet:?xt=urn:btih:663E52C6C962D0E2B5E9C5D1E71476936A23E882
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138764.jpg" />
 </div>
 
 
@@ -474,7 +570,7 @@ magnet:?xt=urn:btih:553C65BBAAA730AB8FEF11CC497F815FFA1B136C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138765.jpg" />
 </div>
 
 
@@ -498,7 +594,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138766.jpg" />
 </div>
 
 
@@ -524,7 +620,7 @@ magnet:?xt=urn:btih:FA5093DE74F5EAF617E3DDDA05B21D7714551A7B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138768.jpg" />
 </div>
 
 
@@ -535,102 +631,6 @@ magnet:?xt=urn:btih:FA5093DE74F5EAF617E3DDDA05B21D7714551A7B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3D84D0419B087225F0AB9831011DBE3FBF305D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087231   (138769) от 31.12.2016
-
-Майкл Муркок | Спящая волшебница (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элрик Мелнибонийский тоскует по своей Симорил. И вот однажды он находит замок, в котором спит прекрасная незнакомка, как две капли воды похожая на его утраченную возлюбленную... Как знать — не дала ли ему судьба «второй шанс»? Но коварный колдун Телеб К'аарна тоже не дремлет... И вновь Элрику придётся защищать не только себя...Жанр: Героическое фэнтезиПродолжительность: 05:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08881E74F50CF3A68CF8831C571C1EE65E97F518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970894   (138770) от 31.12.2015
-
-Журнал | РадиоЛоцман №12 (55) (Декабрь 2015) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Радиолоцман» будет интересен всем, кто интересуется электроникой. Разнообразная тематика статей охватывает области, интересные как для широкой аудитории, так и для профессионалов и любителей в области электроники.Жанр: Журнал для радиолюбителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681CB9B0BF9126C1BF926DF16828E95F7524DD4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349007   (138771) от 30.12.2019
-
-Перспектива / Prospect (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138771.jpg" />
-</div>
-
-
-###  Подробнее
-
-В надежде разбогатеть отец с дочерью отправляются на отдалённую луну, где планируют добывать драгоценные камни, сокрытые в глубине опасных лесов. Быстро выясняется, что на луне есть и другие люди, желающие поправить собственное финансовое положение. В итоге вся операция превращается в попытку выжить и сохранить свои жизни. Вынужденная сражаться не только с внешними (   Читать дальше...   )Производство: Канада, США / Depth of Field, Ground Control, BRON StudiosЖанр: Фантастика, триллер, драмаРежиссер: Кристофер Колдуэлл, Зик ЭрлАктеры: Софи Тэтчер, Джей Дюпласс, Педро Паскаль, Люк Питцрик, Артур Деранло, Андре Ройо, Алекс МакКоли, Даг Доусон, Криста Джонсон, Брайан ГантерПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8600F92A1DCFDE070F0C094393994DEBA3A764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520777   (138772) от 30.12.2021
-
-Когда часы двенадцать бьют (2020) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда часы двеннадцать бьют, все ждут исполнения желаний и новогодних чудес.. О том же мечтал и менеджер Гришенька, опоздав к бою курантов и возвращаясь к жене Настеньке далеко за полночь. Но чудо случилось совсем другого толка...Производство: РоссияЖанр: Короткометражный, комедия, мелодрамаРежиссер: Ника АббасоваАктеры: Станислав Бондаренко, Елена Саар, Юрий СазоновСубтитры: ОтсутствуютПродолжительность: 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB13D547EA4BCC9FD8B2B1EA9BD6F3932A9F411
 ```
 
 

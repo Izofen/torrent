@@ -6,7 +6,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232433.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232433.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232717.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233407.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243344.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243344.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246080.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246080.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246099.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246099.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249388.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249388.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:21466F3966983DCBFB14D938126B0F6C5F209E03
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249987.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249987.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250752.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250752.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250994.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250994.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252436.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254997.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254997.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256714.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256714.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257521.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257521.jpg" />
 </div>
 
 

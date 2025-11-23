@@ -1,3 +1,153 @@
+###  Публикация: 1348758   (141926) от 29.12.2019
+
+Oliver Koletzki - Fire In The Jungle (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Afro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melting Into the Surroundings  (6:16)
+ 02. Lenny in the Sea with Dolphins  (5:30)
+ 03. Rainbow Serpent  (6:32)
+ 04. Fire in the Jungle  (7:10)(   Читать дальше...   )Жанр: Progressive House, Tech House, Afro HouseПродолжительность: 01:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C6B8818EBAE27D0A3CF20F3B8979C4598B6DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520463   (141927) от 28.12.2021
+
+Макабро / Macabre (1980) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн Бейкер, живущая в Новом Орлеане, заводит роман с мужчиной, Фредом, за спиной своего мужа и детей. Её дочь-подросток Люси подозревает, что её мать изменяет отцу. Джейн встречается с Фредом в комнате, которую она снимает в пансионе, принадлежащем миссис Дюваль, чей слепой взрослый сын Роберт также живёт в этом доме. Пока Джейн встречается с Фредом, Люси топит (   Читать дальше...   )Производство: Италия, A.M.A. Film, Medusa DistribuzioneЖанр: ужасыРежиссер: Ламберто БаваАктеры: Бернис Стиджерс, Станко Мольнар, Вероника Дзинни, Роберто Поссе, Фердинандо Орланди, Фернандо Паннулло, Элиза Кадиджа БовеПеревод: авторский (Сергей Визгунов)Субтитры: английскиеПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75426ED40382719126E7E7771936253393C139BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678844   (141928) от 23.11.2023
+
+Pauline Anna Strom - Echoes, Spaces, Lines (2023) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, New Age, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Trans-Millenia Consort:
+01. Emerald Pool (03:24)
+02. The Unveiling (05:32)
+03. Cult of Isis (07:42)(   Читать дальше...   )Жанр: Ambient, New Age, ExperimentalПродолжительность: 03:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B580B4397DD58EF54B6D6E901B08190E1F5FE294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195513   (141929) от 29.12.2017
+
+Маршалл / Marshall  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о яркой странице в биографии Тергуда Маршалла, первого афроамериканца в рядах Верховного суда США. На заре карьеры ему достаётся спорное дело о чернокожем шофёре, обвинённом своей богатой работодательницей в сексуальном нападении. Молодой Маршалл объединяется с начинающим адвокатом-евреем, чтобы в эпоху расизма и антисемитизма сделать сенсационное (   Читать дальше...   )Производство: США / Chestnut Ridge Productions, China Wit Media, Starlight Media, Super Hero FilmsЖанр: драма, биографияРежиссер: Реджинальд ХадлинАктеры: Чедвик Боузман, Джош Гад, Кейт Хадсон, Стерлинг К. Браун, Дэн Стивенс, Джеймс Кромуэлл, Киша Шарп, Роджер Гуэнвёр Смит, Деррик Баскин, Барретт Досс, Джон МагароПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721983E7669ADF7BF651052DE6563BC7F333A268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970383   (141930) от 30.12.2015
+
+Хоккей. Кубок Шпенглера 2015. 1/4 финала. Йокерит (Финляндия) - Давос (Швейцария). (29.12.2015) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Шпенглера — старейший в мире международный хоккейный турнир. Турнир проходит в швейцарском городе Давосе ежегодно в промежуток между католическим Рождеством и Новым годом. В турнире традиционно принимает участие местная команда ХК «Давос» (усиленная лучшими игроками чемпионата Швейцарии) и сборная Канады (обычно составляющаяся из канадских игроков, выступающих (   Читать дальше...   )Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1638D2B2301FA827FB91FF2700C381BC01CAD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272554   (141931) от 28.12.2018
+
+IObit Driver Booster Pro 6.2.0.198 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05506A2C1B146F23EAD28A48F26C58A0966E9E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272640   (141934) от 28.12.2018
 
 The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
@@ -6,7 +156,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141934.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ iCompta 6 v6.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141935.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ magnet:?xt=urn:btih:27B7FDECA3EE93271E8218277C6E3943161ADA6F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141936.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ magnet:?xt=urn:btih:EDC33C25C408BCC7F14A1C4591C77A24C3A674A0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141939.jpg" />
 </div>
 
 
@@ -103,7 +253,7 @@ magnet:?xt=urn:btih:8A19FC61BE342ED821F95D04AA9FC949089C3DE0
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141940.jpg" />
 </div>
 
 
@@ -127,7 +277,7 @@ RegCool 1.302 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141943.jpg" />
 </div>
 
 
@@ -151,7 +301,7 @@ magnet:?xt=urn:btih:855A7EA7E5FEA442067479B7B0D3C67E238D373E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141944.jpg" />
 </div>
 
 
@@ -176,7 +326,7 @@ ScreenFlow 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141945.jpg" />
 </div>
 
 
@@ -203,7 +353,7 @@ magnet:?xt=urn:btih:9047A0C0AD1B3A256CE9D49B0C5B32B3698EB40C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141948.jpg" />
 </div>
 
 
@@ -227,7 +377,7 @@ magnet:?xt=urn:btih:3EC8F9E03184E879E95E2B41F3334D4FD673B9F7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141949.jpg" />
 </div>
 
 
@@ -253,7 +403,7 @@ SamDrivers 18.19 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141951.jpg" />
 </div>
 
 
@@ -277,7 +427,7 @@ Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141953.jpg" />
 </div>
 
 
@@ -304,7 +454,7 @@ magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141954.jpg" />
 </div>
 
 
@@ -328,7 +478,7 @@ Internet Download Manager 6.32 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141955.jpg" />
 </div>
 
 
@@ -352,7 +502,7 @@ magnet:?xt=urn:btih:2D8F11C942F3082C129D0259F2D6A5C976A75A43
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141956.jpg" />
 </div>
 
 
@@ -376,7 +526,7 @@ VA - Schneeweiss 11 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141957.jpg" />
 </div>
 
 
@@ -403,7 +553,7 @@ The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141960.jpg" />
 </div>
 
 
@@ -430,7 +580,7 @@ magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141961.jpg" />
 </div>
 
 
@@ -454,7 +604,7 @@ magnet:?xt=urn:btih:DED4B036F358E2E3F88B7B3BA23E97D64D308FBE
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141962.jpg" />
 </div>
 
 
@@ -478,7 +628,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141963.jpg" />
 </div>
 
 
@@ -489,155 +639,6 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511F547BBE093825EF3B25BEBFB4FD60CA616DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435655   (141964) от 29.12.2020
-
-Unclutter 2.1.24d [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8800D398B153BE7D43A8E3BD99EFA5D5EC1EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272596   (141965) от 28.12.2018
-
-VA - Лучшая Дискотека 80/90. (Зарубежный выпуск) (2018) [MP3|320 Kbps] <Диско, Итало-диско, Евродэнс>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Sound - Your Love Is My Energy
-002. Mike Oldfield - Moonlight Shadow
-003. E-Rotic - Get Away
-004. The La's - There She Goes(   Читать дальше...   )Жанр: Диско, Итало-диско, ЕвродэнсПродолжительность: 06:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30F613146E8E72CC7A59238173FA3A48AA280B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435859   (141967) от 29.12.2020
-
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №77 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3396x4440-5616x3438
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96016382C9555CB9013A535A64F06B3809B3C171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853854   (141968) от 29.12.2014
-
-Книга жизни / The Book of Life (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая история любви на фоне празднования Дня мертвых в Мексике.
-Тореадор Маноло разрываясь между  ожиданиями его семьи и  зовом сердца, пускается в приключение, которое охватывает три фантастических мирах, где он должен встретиться со своими страхамиПроизводство: США |  Reel FX Animation Studios, Twentieth Century Fox, ChatroneЖанр: мультфильм, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4497C7CB8E4437D2E93D113013B5CE7B1D0FDFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678823   (141969) от 23.11.2023
-
-Журнал | Elektronika Praktyczna №11 (ноябрь 2023) [PDF][Pl]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elektronika Praktyczna (Практическая электроника) - журнал для радиолюбителей и профессионалов на польском языке. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. Приводится полное описание проектов, со схемами и печатными платами. На более чем 100 страницах: (   Читать дальше...   )Жанр: ЭлектроникаЯзык: ПольскийИздательство: AVT-KoorporacjaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE7C10231837C7715E6E47AD8F75007ED45E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087940   (141970) от 29.12.2016
-
-Проекты - VideoHive - 120 Animated Emojis - Christmas Pack - 19155211 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141970.jpg" />
-</div>
-
-
-###  Подробнее
-
-120 Animated Emojis - Christmas Pack - набор новогодних анимированных иконок с выражениями эмоций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18E8A295C745A018B429A02C250FD00B01B3571
 ```
 
 

@@ -6,7 +6,7 @@
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28429.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:823978C8FB05F67473F4C6BE438FB34CA0AFD2EA
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28430.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:823978C8FB05F67473F4C6BE438FB34CA0AFD2EA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28431.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:78D5F9358578D64AECCAAA8C6636BC81F413E747
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28432.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:78D5F9358578D64AECCAAA8C6636BC81F413E747
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28433.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:72D6A38697E8B5D791B44CA1A2D892A65E5685B8
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28434.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28435.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4577C8E999C786E92FC9323992C58E3B56046310
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28436.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28437.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28438.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28438.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:61B87D0A476BCBF3E026135682A9A25F33CD9768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28439.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:61B87D0A476BCBF3E026135682A9A25F33CD9768
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28440.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28440.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28441.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28442.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28443.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F411C674C945D5B9E2717099DFCEDCBA2147A387
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28444.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28444.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:3A4239CCFFFB2F4AAF4300CA2704BECE17C5B44A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28445.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8EFE80BF41FA30DD0AEDA5E4C16CB487A034E857
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28446.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:DBF621B2C861BAE4367F3A825A33FB7314F433C1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28447.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28448.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28448.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Topaz Video AI Pro 6.1.0 (x64) Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28449.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28449.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:BC7E559AE30D99C0A2CC500C782676BCBBE5D64F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28450.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28450.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:91573862621A8355D305100BB22FD93A046EA207
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28451.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:CAC5FE8BAE18E19546B30E1DAA9EEA8F4C6BAD05
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28452.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F54F53769E5E8AF663DDD299483B1E7B66A3D564
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28453.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:0B3A9D6515DDFBA802B6C41F01D4CAE592B8C57B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28454.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ StaxRip 2.37.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113171.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Photo Studio PRO v2.7.3.2413 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113174.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ DesktopOK 11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113187.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Subtitle Edit 4.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113196.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Picsart AI Photo Editor, Video v24.5.4 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113211.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser 124.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113214.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Firefox Browser ESR 115.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113217.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ CudaText 1.211.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113258.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AIDA64 2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113280.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Photo Studio PRO 2.7.3.2413 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113297.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DigiKam 8.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113299.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ LibreWolf 123.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113303.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Emurasoft EmEditor Professional 24.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113308.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ TuneIn Radio 33.6.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113309.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113317.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113330.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PowerPhotos 2.5.7 beta3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113332.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sandboxie 5.68.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113348.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Sandboxie plus 1.13.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113356.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AI Transcription 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113366.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Emurasoft EmEditor Professional 24.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113368.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Text Workflow 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113379.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Monkey's Audio 10.55 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113380.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ AirMail Pro 5 v.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113384.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ RAW Power 3.4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113398.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Topaz Photo AI 2 for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113402.jpg" />
 </div>
 
 

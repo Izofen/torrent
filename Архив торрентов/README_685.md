@@ -1,3 +1,52 @@
+###  Публикация: 1678586   (144352) от 22.11.2023
+
+Dash 7.1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © 2023 Bogdan PopescuПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D842A4819F955482C8A306DD1810CBE804E3271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678677   (144362) от 22.11.2023
+
+Nevercenter CameraBag Photo 2024.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144362.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28FBAE5E68790E582B7F7BB201AC398DA824B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678605   (144374) от 22.11.2023
 
 WonderPen 2.4.0 [Multi]
@@ -6,7 +55,7 @@ WonderPen 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144374.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:DB95921FED9DA8FFA0AD4F32636B63E90D796C1F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144376.jpg" />
 </div>
 
 
@@ -55,7 +104,7 @@ EdgeView 4.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144383.jpg" />
 </div>
 
 
@@ -79,7 +128,7 @@ Flight Simulator Screensaver 1.1 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144384.jpg" />
 </div>
 
 
@@ -103,7 +152,7 @@ Flight Simulator Screensaver - этот трехмерный скринсейв�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144389.jpg" />
 </div>
 
 
@@ -127,7 +176,7 @@ Yaporigami - One Sound Extinguisher (2017) Kaer'Uiks [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144396.jpg" />
 </div>
 
 
@@ -154,7 +203,7 @@ WinToUSB Technician 5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144402.jpg" />
 </div>
 
 
@@ -179,7 +228,7 @@ magnet:?xt=urn:btih:513E6DB05A6CEF646F784EE14610392B378B75CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144404.jpg" />
 </div>
 
 
@@ -203,7 +252,7 @@ magnet:?xt=urn:btih:7C5F2FE8F32B18FA198D758E4DBEDD143B59BF86
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144411.jpg" />
 </div>
 
 
@@ -230,7 +279,7 @@ magnet:?xt=urn:btih:0175C1B9D54E9A23FF4A6999FCC6BCE7B6E304BE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144414.jpg" />
 </div>
 
 
@@ -257,7 +306,7 @@ BurnAware Professional 11.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144419.jpg" />
 </div>
 
 
@@ -281,7 +330,7 @@ magnet:?xt=urn:btih:4DE2575190DBCA4E61697BF7DB540C96B2F4F284
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144445.jpg" />
 </div>
 
 
@@ -305,7 +354,7 @@ Phase One Capture One Pro 9.0.1 Build 13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144453.jpg" />
 </div>
 
 
@@ -329,7 +378,7 @@ Macgo Windows Blu-ray Player 2.16.9.2163 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144461.jpg" />
 </div>
 
 
@@ -353,7 +402,7 @@ Do Your Data Recovery Professional 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144468.jpg" />
 </div>
 
 
@@ -379,7 +428,7 @@ Dism++ 10.1.21.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144473.jpg" />
 </div>
 
 
@@ -403,7 +452,7 @@ Aurora Blu-ray Media Player 2.18.9.2163 RePack (& Portable) by AlekseyPopovv [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144474.jpg" />
 </div>
 
 
@@ -427,7 +476,7 @@ SZMC - Alien Invasion (The Album) (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144475.jpg" />
 </div>
 
 
@@ -454,7 +503,7 @@ magnet:?xt=urn:btih:82DC6469557906AA550E1B2E325A9ABEB1EF1C35
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144487.jpg" />
 </div>
 
 
@@ -478,7 +527,7 @@ Swing Monkey 1.1 [Игра] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144491.jpg" />
 </div>
 
 
@@ -508,7 +557,7 @@ NIUBI Partition Editor 7.2.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144497.jpg" />
 </div>
 
 
@@ -533,7 +582,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.2) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144498.jpg" />
 </div>
 
 
@@ -557,7 +606,7 @@ Mozilla Thunderbird 60.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144507.jpg" />
 </div>
 
 
@@ -581,7 +630,7 @@ magnet:?xt=urn:btih:73DA94232DE1B2610183E3D1741A8A408BC7C7DD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144511.jpg" />
 </div>
 
 
@@ -592,56 +641,6 @@ magnet:?xt=urn:btih:73DA94232DE1B2610183E3D1741A8A408BC7C7DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08BC044DCD4160FDE65901C76FA5BE0EFC19580E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969976   (144519) от 28.12.2015
-
-Марсианин / The Martian (2015) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
-Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, Украинские, Английские (полные, отключаемые)Продолжительность: 2:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8639FC690DBFD03EA9C7D951325FA7688DE0370E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087551   (144520) от 28.12.2016
-
-Универ. Новая общага. Новогодняя серия (2016.12.27) WEB-DLRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера! Специальная новогодняя серия. Любимые герои перевоплотятся в легендарных персонажей советского кино. Сможешь ли ты узнать актеров в новых неожиданных образах и костюмах из прошлого века? Смотри, ностальгируй, заряжайся нашим новым годом!
-Новый год уже на пороге, и традиционная серия к празднику уже вышла! Пародии на Иронию судьбы, Ивана Васильевича и даже (   Читать дальше...   )Производство: Россия / ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим ЗыковАктеры: Арарат Кещян, Станислав Ярушин, Анна Кузина, Настасья Самбурская, Анна Хилькевич, Ашот Кещян, Сергей Пиоро и др.Продолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAF7EC0568DAB40C75F7732B7B09A1A7F635D78
 ```
 
 

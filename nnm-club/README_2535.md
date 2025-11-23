@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7446DB940F8035BE2EA728D6A079D592015219A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66660.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66661.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66662.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:38548283445FDF45FE28EE913887B7129B476864
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66663.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:994C6E186187AAE843322C124386DA55D72C6309
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66664.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:B53365F43E50906548CFFAE5B0AE2237BD06A5D7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66665.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:797FA42462B068C0A33BE66514EFD3D8FDCC88C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66666.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66667.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66668.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7414E5E655F53006FBECB627F24CB041B898CAC8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66669.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:DD49800CBF7B8D035E4882ABE4C26816A898466D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66670.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:FCD46479272E460B7CCC27C6E0A9773A6E9FEA8F
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66671.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:13BBCBA8FD6DA1815B0508970EA80E5C4E7D2C66
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66672.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66673.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Giant - Stand And Deliver (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66674.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1D473ABE42F95058CF640F1F4A232EFABAF85E78
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66675.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ballet Mecanico - Primera Secuencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66676.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:C5F7A70D5B1698C56083561634F3805F89F9B8EC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66677.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:B2164277A25EBBBFE94B1CE41BCCFE21BF11A884
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66678.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Aretha Franklin - Respect And Other Hits (1997) CD, Compilation [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66679.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:C7AB43C44BA187AE90689AC5CCE3B5EEFBF77486
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66680.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7C71B387662AD647E73432F065A59E37D3702651
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66681.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sheila E. - Bailar (2024) Deluxe, 2025, Sony Music Latin [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66682.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:75EA372F47E56586238AD520305A8CCDE3564DFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66683.jpg" />
 </div>
 
 

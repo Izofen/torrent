@@ -1,3 +1,76 @@
+###  Публикация: 1524708   (129892) от 20.01.2022
+
+Флирт с дьяволом / Shattered (2021) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатый и разведенный Крис влюбляется в таинственную женщину по имени Скай. Вскоре после этого он, его бывшая жена и их ребёнок оказываются в ловушке — им предстоит отчаянная борьба за выживание.Производство: США / Construction Film, Silver ReelЖанр: ТриллерРежиссер: Луис ПриетоАктеры: Камерон Монахэн, Саша Лусс, Ridely Asha Bateman, Лилли Круг, Джеймс С. Бёрнс, Дат Фан, David Madison, Фрэнк Грилло, Джон Малкович, Эш СантосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E11849169A1DC7DFD858E589294376DCFF91C14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525385   (129893) от 20.01.2022
+
+Blackwind (2022) [Multi] (1.0.1.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackwind - это фантастический экшен с видом сверху, в котором вы ощутите себя подростком, сражающимся с пришельцами в экспериментальном бронекостюме. Врывайтесь в ряды захватчиков и используйте последний шанс остановить межпланетное вторжение!Тип издания: LicenseРазработчик: Drakkar DevЖанр: Экшн, Аркада, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683079   (129894) от 09.12.2023
+
+Ева / Eva (1962) DVDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Тайвен Джонс не мог предположить, чем для него обернется мимолетная, как казалось, связь с некоей Евой Оливье. Кто она, эта роковая красавица, без которой Тайвен не может прожить и дня? Почему он не может выкинуть ее из головы, несмотря на то, что она постоянно издевается над ним, вместе с тем, не хочет отпустить его?
+Почему ради нее он готов на все - потерять (   Читать дальше...   )Производство: Италия, Франция / Interopa Film, Paris Film ProductionsЖанр: драма, мелодрамаРежиссер: Джозеф ЛоузиАктеры: Жанна Моро, Стенли Бейкер, Вирна Лизи, Джеймс Виллерс, Риккардо Гарроне, Лиза Гастони, Кекко Риззоне, Энцо Фьермонте, Нона Медичи, Роберто ПаолеттиПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8C133631D1021B466F02C6ECC67B273C7A7D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670755   (129895) от 09.12.2023
 
 Жан Кокто, ложь и правда / Jean Cocteau, mensonges et verites (1997) DVDRip
@@ -6,7 +79,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129895.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Soul Browser v1.2.93 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129896.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Kaspersky Security Cloud 21.3.10.391 (f) Repack by LcHNextGen (17.01.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129897.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:E49356A7AB188F85B3DC06A8CB3C542EF5007B96
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129898.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129899.jpg" />
 </div>
 
 
@@ -133,7 +206,7 @@ magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129900.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129901.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ magnet:?xt=urn:btih:CA4D6F6179805C52555EFA41FCEBA43AC0124544
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129902.jpg" />
 </div>
 
 
@@ -206,7 +279,7 @@ magnet:?xt=urn:btih:BFEDE110D6BC35FC6E68BE50904D4133BA9B104E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129903.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129903.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ magnet:?xt=urn:btih:BFEDE110D6BC35FC6E68BE50904D4133BA9B104E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129905.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ magnet:?xt=urn:btih:A13B8AFA15073B69DAF5D10D13A65A33D4CBB60C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129906.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ magnet:?xt=urn:btih:4B044351DE694BB81185BEB96278F51105EA5DC6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129907.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ magnet:?xt=urn:btih:C7E32C8907C6E75E1FB81AFAF1F3B39A79C6113A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129908.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:BBD626B4DC99A3B608C2527617BD50A7034E301A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129909.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129911.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ magnet:?xt=urn:btih:5D5A25312A6C5E1AE98A97CABC1713BA464492B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129912.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ Hanging Doll - The Sacred and Profane (2012) [MP3|320 кб/с]<Symphonic / Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129914.jpg" />
 </div>
 
 
@@ -436,7 +509,7 @@ magnet:?xt=urn:btih:43F3380D92606279C26AF82E6CFEA0D011D5C3D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129915.jpg" />
 </div>
 
 
@@ -460,7 +533,7 @@ magnet:?xt=urn:btih:A6EC1EE3ABC10B94D8C48DD11EB3E6E420FEFF36
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129917.jpg" />
 </div>
 
 
@@ -484,7 +557,7 @@ VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129919.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129921.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:73275F1E5B67932D34F26A535313312AF12B1250
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129922.jpg" />
 </div>
 
 
@@ -577,7 +650,7 @@ VA - Anjunabeats Worldwide04 mixed by Maor Levi & Nitrous Oxide (2012) [MP3|~245
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129923.jpg" />
 </div>
 
 
@@ -597,86 +670,6 @@ CD1: mixed by Maor Levi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158B2C7B9D01CEE6BE7CC6A6DC69D077EE720C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683008   (129924) от 09.12.2023
-
-VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Irina Поворознюк - Не Ной (02:49)
- 002. 84 - Люди Хотят В Космос (02:48)
- 003. 84 feat. Lookbuffalo - Магия (02:31)
- 004. 84 feat. Rekudo - Руки в Потолок (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490710   (129925) от 01.05.2012
-
-Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Norrøn Kraft
-2. Naglfar
-3. Alu Alu Laukar
-4. Varden Brenne
-5. Atter På Malmtings Blodige Voll
-6. Balladen om Bifrost2011Жанр: Viking MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683056   (129926) от 09.12.2023
-
-Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prepare for an explosive journey through a blistering setlist with Duran Duran's 'A Hollywood High' on Blu-ray and DVD. Visually stunning, this electrifying high-rise rooftop performance was filmed in Los Angeles at The Aster, framed against an iconic LA skyline and the Capitol Records building. Experience the pulsating energy of the band's timeless music in crystal-clear (   Читать дальше...   )Производство: Last Man MusicЖанр: Rock, New WaveПеревод: ОтсутствуетПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 ```
 
 

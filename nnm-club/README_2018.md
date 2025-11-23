@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B3FB20D6EA860D979F019377DE1A160671E6B7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:741C9F5EBF2678E52A3B14647C483AD695EB6F59
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52835.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52836.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:52DEF0B7E825F8AB391085BCF5AEF623145E8C80
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52837.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1AC2F2F514C7CD80BD6B1B5167CD62BE0E660CCF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNI
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52839.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4993D89772A86D1546D19C0298BF14D3148E4072
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52840.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft Windows 11 [10.0.26100.863], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52841.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:42553C4626441EB69C3BE722F6E5DB7C1169B64C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52842.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:728F9F6A0CF260941ED96A4DB53165150050C0DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52843.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ O Launcher 12.3 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52844.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IPTV Pro v8.0.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52845.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:952EC18CED4DD6B936FA7F6A41329E1F2092E4BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52846.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A8CD7F89DE039FAE15F67542EAB9D9CBBE0C7FCE
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52847.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:88143DAA633E1B0E5BE91710AAAEEE04AC38CBC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52848.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52849.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:5469B47C92028363A6DFFAF0B3FF149183F46401
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52850.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:53E6D5DEEC8C61553E0CAB2AFC816B2BABFAC035
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52851.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3DB5306ED6C4F913A85AFE2B0DF9BE55836FB7CF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52852.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E490A434BB5FAF26BB65E46485676EF8304997A4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52853.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe After Effects 2024 24.5.0.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52854.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Microsoft Windows 11 [10.0.26100.863], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52855.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Microsoft Windows 10 [10.0.19045.4529], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52856.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:8D884E47AAB1775242E969C8233A1B6CAEF962D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52857.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:AC72A5FEFD43581FDD4FCD41B9101A3AD0C9B2C0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52858.jpg" />
 </div>
 
 

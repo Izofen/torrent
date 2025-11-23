@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2ED33E971DCC721C5EFC49742D4BD10795E3EC3B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F611B0D90E6CF324540E929329B5B7474BCEF73C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C9A5CA7EFAAF9C84B72A62A06DB92277E3A09A7
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31972.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AAF Family DCH Audio Realtek 10.11.9768.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31973.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2137C0C83FC0E1CF122B697ED717BB564BE2BB66
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31974.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DCCC42147FABDCEDA268B6C2C68DFD6B3D5ABF61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31976.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:94BCC0DBAFBA160F1330D9A087AA88732B774077
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31977.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1560BBC274B7A4D19C6148BE02B9AC01C37B9765
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31978.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - The Best Of Italo Disco Vol. 12 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31979.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Armin van Buuren - A State of Trance Episode 1206 (2025) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31980.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kaizen - Любим делать красиво (2011) [FLAC|Lossless|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31981.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:7D3BF12FBF843376996847EFC23373F9CAB329B5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31982.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:C9C3BF05BD779336CE88B1864F188D0D1051655F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31983.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F820306CCC0D1F6EE8602ED509E5EFA9AD88A946
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31984.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Levitated Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31985.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Silent Shore Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31986.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Vismut - 13 (2012) [FLAC|Lossless|image + .cue] <Metal, Progressive hardcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31987.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31988.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Dorgmooth - Бездна (2009) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31989.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31990.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4ADA4F3F98B29E32E4E5B83085BB58F2122B4A6C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31991.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Pool Party Lounge Summertime Mix (2015) [MP3|320 кб/с]<Downtempo, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31992.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3803CF30B6212DC65751507B1B7ADC426F572170
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31993.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Chillout for Travel (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31994.jpg" />
 </div>
 
 

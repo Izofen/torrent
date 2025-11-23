@@ -1,3 +1,80 @@
+###  Публикация: 1764487   (101528) от 07.12.2024
+
+НХЛ 2023-2024. Питтсбург Пингвинз - Нью-Йорк Рейнджерс (06.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101528.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 октября 2024, четверг. 02:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 190 зрителей (97% при вместимости 18 673)
+Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0309F63055A76E19AC722DF3546F863A6BA48F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764505   (101529) от 07.12.2024
+
+Живая еда с Сергеем Малозёмовым (07.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашняя паста и лапша — итальянская, китайская, узбекская и японская: правда ли сделанная своими руками лучше магазинной? Шеф-повар из Италии раскрыл секреты идеальной пасты и рассказал о тонкостях приготовления в комбайне и руками.
+  Действительно ли пальмовое масло опасно, что говорят о нем диетологи и правда ли, что в Россию привозят грязное техническое пальмовое (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA7CDC2F1FC17EE7CE8BBD8C22E4490E6C18DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764477   (101530) от 07.12.2024
+
+Scarred For Life - Scarred For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Mutha Fucka 03:53
+02. Hung Like Jesus 04:39
+03. Good Question 04:25
+04. 9 Times Out Of 10 03:34(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1E8CC8BE6FB3A41DA8DD0674A9D4C8B260C3CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764453   (101531) от 07.12.2024
 
 Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +83,7 @@ Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101531.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ VA - Pretty Little Deep-House Friends, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101532.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101533.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ magnet:?xt=urn:btih:66C52C7C2C61D2B8E5DFB547D9D20E7488CBE2F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101534.jpg" />
 </div>
 
 
@@ -113,7 +190,7 @@ magnet:?xt=urn:btih:158E13EA3D1CDDCA830F75966AAB8498DF669A07
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101535.jpg" />
 </div>
 
 
@@ -140,7 +217,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024 Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101536.jpg" />
 </div>
 
 
@@ -167,7 +244,7 @@ ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101537.jpg" />
 </div>
 
 
@@ -194,7 +271,7 @@ Seefeel - Squared Roots (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, S
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101538.jpg" />
 </div>
 
 
@@ -221,7 +298,7 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101539.jpg" />
 </div>
 
 
@@ -248,7 +325,7 @@ magnet:?xt=urn:btih:D8551C2E2A6FD79D414D21CDEBF993A1BDEA31AD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101540.jpg" />
 </div>
 
 
@@ -273,7 +350,7 @@ Babbba - Witty affair (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101541.jpg" />
 </div>
 
 
@@ -300,7 +377,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Stereo Mont
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101542.jpg" />
 </div>
 
 
@@ -327,7 +404,7 @@ India.Arie - Acoustic Soul (2001) CD, Album, Club Edition [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101543.jpg" />
 </div>
 
 
@@ -354,7 +431,7 @@ Laufey - A Night At The Symphony: Hollywood Bowl (Live at the Hollywood Bowl) (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101544.jpg" />
 </div>
 
 
@@ -381,7 +458,7 @@ magnet:?xt=urn:btih:B634893E8A465BCC0B5C2B9AD0BFA19B3297F973
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101545.jpg" />
 </div>
 
 
@@ -408,7 +485,7 @@ magnet:?xt=urn:btih:6ACB4D2582E30DF2FF09764363D216EC13803E4C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101546.jpg" />
 </div>
 
 
@@ -432,7 +509,7 @@ Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101547.jpg" />
 </div>
 
 
@@ -458,7 +535,7 @@ Saltatio Mortis - Finsterwacht (Feuer und Erz Edition) (2024) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101548.jpg" />
 </div>
 
 
@@ -485,7 +562,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101549.jpg" />
 </div>
 
 
@@ -509,7 +586,7 @@ AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101550.jpg" />
 </div>
 
 
@@ -536,7 +613,7 @@ magnet:?xt=urn:btih:9D203BBEEE87686C3B97BB47486B24457A222CE9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101551.jpg" />
 </div>
 
 
@@ -560,7 +637,7 @@ magnet:?xt=urn:btih:E134D63DAF47C833636C82C863A33B56282EA929
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101552.jpg" />
 </div>
 
 
@@ -584,7 +661,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101553.jpg" />
 </div>
 
 
@@ -595,78 +672,6 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720424EEBF3036DF26D44C657B1F00C65400A3C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764424   (101554) от 07.12.2024
-
-Photo Lab PRO v3.13.39 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 05.12.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1413BBC885EEB507D3D99BA591C7EB3E58E0E876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764389   (101555) от 07.12.2024
-
-B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Airplanes» — второй сингл рэпера B.o.B из его дебютного студийного альбома B.o.B Presents: The Adventures of Bobby Ray, исполненный в дуэте с вокалисткой группы Paramore Хэйли Уильямс. Премьера видео состоялась 15 июня 2010 года. Режиссёром клипа стал Хиро Мураи.Жанр: альтернативный хип-хопПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C31B9C4BF69BCE0C12F9DFD2A9009A7D3256C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764499   (101556) от 07.12.2024
-
-Призрак дома на холме / The Haunting (1963) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам романа Ширли Джексон 1959 года «Призрак дома на холме»... Доктор Джон Марквей, исследователь паранормальных явлений, приглашает нескольких человек с экстрасенсорными способностями провести несколько дней в огромном и зловещем доме на холме, где, по слухам, обитают призраки. Его предложение принимают две девушки — Элеонор Лэнс и Теодора, а также Люк (   Читать дальше...   )Производство: Великобритания, США / Argyle EnterprisesЖанр: ужасы, триллерРежиссер: Роберт УайзАктеры: Джули Харрис, Клер Блум, Ричард Джонсон, Расс Тэмблин, Фэй Комптон, Розали Кратчли, Лоис Максвелл, Валентайн Дайалл, Дайан Клер, Рональд Адам, Памела Бакли, Эми Далби, Клод Джонс, Фреда Кнорр, Ховард ЛэнгПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD50B73F5E8882128B4BB91132113B6CF89F561E
 ```
 
 

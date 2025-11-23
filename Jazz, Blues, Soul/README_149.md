@@ -6,7 +6,7 @@ Robert Conti - The Jazz Quintet (1981) 2000, Pinnacle Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171595.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sir Roland Hanna & George Mraz - Ancestral Light (1995) 2CD, 1999, Red Earth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171599.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clare Fischer - Memento (1992) Discovery Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171601.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Incognito - Into You (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171761.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171769.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171770.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171774.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171776.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171777.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171779.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Anita O'Day - In a Mellow Tone (1989) DRG Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171780.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ George Van Eps & Howard Alden - Keepin' Time (1994) 1996, Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171781.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Julius Hemphill - Big Band (1988) Elektra Musician [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171782.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171951.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171953.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171954.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171955.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171956.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171958.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171961.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172124.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - 30 Sophisticated, Elegant, Inviting and Harmonious Tunes to Relax (2023) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172128.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kenny Drew Trio - At The Brewhouse (1992) Storyville [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172145.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Erroll Garner - Now Playing: A Night at the Movies (1964) 2019, Mack Avenue [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172147.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Erroll Garner - The Complete Savoy Master Takes (1945 - 1949) 2CD, 1998, Savoy J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172148.jpg" />
 </div>
 
 

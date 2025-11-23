@@ -1,3 +1,30 @@
+###  Публикация: 1544516   (241976) от 16.04.2022
+
+Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-Hop, Horrorcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Страшные сказки [00:02:07]
+02 - Крампус [00:04:07]
+03 - Доска Уиджи [00:03:33]
+04 - Метель [00:02:34](   Читать дальше...   )Жанр: Alternative, Hip-Hop, HorrorcoreПродолжительность: 00:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372032   (242064) от 03.04.2020
 
 ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +33,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242064.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242092.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242092.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243261.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243261.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244471.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244471.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245817.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245817.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246001.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246001.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249461.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249461.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Yopt - 404 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250141.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250141.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ VA - Рэп для любимых женщин (2023) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250224.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250224.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250424.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250424.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ magnet:?xt=urn:btih:843FC7474C2E6C261D19D316E53FFAD3605DEE4B
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255051.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255051.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255508.jpg" />
 </div>
 
 
@@ -317,6 +344,111 @@ magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ED8716A66F0D85C10DC91677603EC9D0ABA40A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838167   (258032) от 21.11.2025
+
+Anacondaz - Ночь с астраханцем (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258032.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кроме любви
+2. Хорошая сторона
+3. Рэп и деградация
+4. Зомби(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786E605546B0A6E0A7BB349E2C12C5B63FFAE6FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838166   (258034) от 21.11.2025
+
+Anacondaz - Ночь с астраханцем (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кроме любви
+2. Хорошая сторона
+3. Рэп и деградация
+4. Зомби(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B282A671B67996828A27ED0894DCCE46DBC79811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500050   (258556) от 26.05.2012
+
+Outkast - Stankonia (2000) [MP3|320 kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Gasoline Dreams
+03 - I'm Cool
+04 - So Fresh, So Clean(   Читать дальше...   )Жанр: RapПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB946049C727A6616B00D275DF51FFB99574D32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503043   (260006) от 31.05.2012
+
+Rihanna - Magic (2012) [MP3|320 Kbps] <R&B, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&B, PopПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB82E56A03616495C5D188DC091A75B99C44810
 ```
 
 

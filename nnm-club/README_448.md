@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11888.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11889.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED06C92065D4D4C97526AEAE1E661E7CB47884D0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11890.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ED06C92065D4D4C97526AEAE1E661E7CB47884D0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11891.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:84E67C0D77EBC7DF69EBF598862FBD7521191BEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11892.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2B5FB8590BC6D89C0AF7E036AB671EB74CF9F348
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11893.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DE2D2932F9FC881A10E7F93C5A95CA230279CA00
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11894.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11895.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11896.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DF83CE57D042CA2C7622156B2B43721DAAF722F9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11897.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:DF83CE57D042CA2C7622156B2B43721DAAF722F9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11898.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:90F2CA5AC16221205DAF332B1A099257DD857962
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11899.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:84F853DC7050288AFAAE6775C814E2A1D189676A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11900.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:580C4A6A60DBCC00AB8F04F483EB61BD10EAAE62
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11901.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:65CCB29274A9B7F65E9FB35E07EC0F7D5411A12C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11902.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Polyverse Music - Filterverse 1.2.1 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11903.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:58791202223536321E849F5E49CFF7B9503FC2CD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11904.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0BA3817FB47DDF9CB6ABE9CE775238D0CFFB0C48
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11905.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Alveda Top 20 Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11906.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:28BAD8E33296487058CD0F2507120AA620336644
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11907.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:112377F73712F0AD334541105A7C77106AA69C38
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11908.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jethro Tull - Still Living In The Past (1970-1971) Reissue, Remastered, Remix, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11909.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - 25 Years Of Anjuna Mixed By Croquet Club (2025) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11910.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Steve Hackett - The Lamb Stands Up Live At The Royal Albert Hall (2024)(2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11911.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:D8928F9C0443869AF5757D1D41D59034485707C6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11912.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Deep Reflections (2025 Edition) (2025) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11913.jpg" />
 </div>
 
 

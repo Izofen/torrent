@@ -6,7 +6,7 @@ Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103179.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103180.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103181.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103183.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103184.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103185.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103193.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103236.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103237.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Frank Sinatra & Bing Crosby - The Golden Era Of Jazz Vol. 1 (2006) 2CD [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103243.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103272.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103321.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103334.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103336.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103337.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103339.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103403.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103415.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103445.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Charles Mingus - Incarnations (1960) 2024, Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103476.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103478.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103483.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103502.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103503.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103504.jpg" />
 </div>
 
 

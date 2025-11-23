@@ -1,3 +1,80 @@
+###  Публикация: 284597   (125502) от 27.12.2023
+
+Николай Лесков | На ножах (2007) [MP3, Максим Доронин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека «Клуба любителей аудиокниг»
+Николай Семёнович Лесков (1831–1895) вошел в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+«На ножах» – роман Николая Лескова. Впервые опубликован в журнале «Русский (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Деймос, ДВД КлассикаПродолжительность: 26:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8999BEE5BCAD6759BE416426734EDC69BD7957EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 429512   (125503) от 27.12.2023
+
+Николай Лесков | Очарованный странник (2008) [MP3, Ефим Каменецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная библиотека.
+Николай Семёнович Лесков (1831–1895) –  русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+Как много в жизни удивительного! (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АудиокнигаПродолжительность: 07:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB0238F64B7BF68DC8D1CC04B3968F48D9D2DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284486   (125504) от 27.12.2023
+
+Николай Лесков | Праведники (2007) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+История создания цикла «Праведники» такова. Однажды Н. С. Лескова обвинили в том, что он во всех соотечественниках видит лишь одни гадости и мерзости. Тогда писатель дал обет: найти среди «грешных» мира сего кристально чистого человека, праведника, показать величие русской души. И стал Лесков «искать праведных» по всей земле русской: (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 08:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4859D3E10E0CFAFC06C8692AD86FAC0D8DB3BFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687842   (125505) от 27.12.2023
 
 Елена Левашова | Простой и эффективный способ создания чертежей - RemPlanner (2023) WEB-DL [AD] [RU]
@@ -6,7 +83,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125505.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:F0AF87D507F68A77413EF0BBA993D111892ACB4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125506.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ FastStone Capture 10.4 + Portable (DC-2023-12-26) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125507.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ Zoom Player MAX 18.0 Build 1800 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125508.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ magnet:?xt=urn:btih:F88EFD544C942D34BD1272166A60341E6C3EA79D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125509.jpg" />
 </div>
 
 
@@ -126,7 +203,7 @@ magnet:?xt=urn:btih:8DFAB10A1E7A10C0172C6F600D5889BEA713A4AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125510.jpg" />
 </div>
 
 
@@ -150,7 +227,7 @@ magnet:?xt=urn:btih:CF5815A226920687006613B60C11022CAA10931C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125511.jpg" />
 </div>
 
 
@@ -174,7 +251,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125512.jpg" />
 </div>
 
 
@@ -198,7 +275,7 @@ magnet:?xt=urn:btih:3FBC1C67B91675E44CF9D7ACA1C8ED327DA52239
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125513.jpg" />
 </div>
 
 
@@ -223,7 +300,7 @@ JetBrains CLion 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125514.jpg" />
 </div>
 
 
@@ -247,7 +324,7 @@ magnet:?xt=urn:btih:E37CFD505293E016F5788BED9B2B777E0130CD1D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125515.jpg" />
 </div>
 
 
@@ -271,7 +348,7 @@ magnet:?xt=urn:btih:5C9AE8F4BD9727E37AF4A76E8E14E59FB2EDD09B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125516.jpg" />
 </div>
 
 
@@ -295,7 +372,7 @@ magnet:?xt=urn:btih:A0610EAD0D1CB538D2D4818A93251134F5E4D0BC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125517.jpg" />
 </div>
 
 
@@ -319,7 +396,7 @@ VRadio - Online Radio App v2.5.10 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125518.jpg" />
 </div>
 
 
@@ -343,7 +420,7 @@ magnet:?xt=urn:btih:CAE1E15EAE3820C6FD801B4C23331BA3970FAE65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125519.jpg" />
 </div>
 
 
@@ -367,7 +444,7 @@ magnet:?xt=urn:btih:7DAC1BF262C7EF710897EA85078D5C9B3CBDE912
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125520.jpg" />
 </div>
 
 
@@ -391,7 +468,7 @@ Adobe Photoshop 2024 25.3.1.241 Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125521.jpg" />
 </div>
 
 
@@ -415,7 +492,7 @@ magnet:?xt=urn:btih:5EB6ADFE4CB3785C468F7D04BE863C1FFE8EAC09
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125522.jpg" />
 </div>
 
 
@@ -439,7 +516,7 @@ magnet:?xt=urn:btih:6932EB7A048E4EA16C76C8EEAC049B0F86AF68F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125523.jpg" />
 </div>
 
 
@@ -463,7 +540,7 @@ magnet:?xt=urn:btih:938009ED0A46A5BA093E68CB12763D53459DD2E9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125524.jpg" />
 </div>
 
 
@@ -487,7 +564,7 @@ magnet:?xt=urn:btih:938009ED0A46A5BA093E68CB12763D53459DD2E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125525.jpg" />
 </div>
 
 
@@ -511,7 +588,7 @@ magnet:?xt=urn:btih:BD5F8209EEB04A6A213F9191F320EA02BFA3072A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125526.jpg" />
 </div>
 
 
@@ -536,7 +613,7 @@ magnet:?xt=urn:btih:AFEEA94E90FC8F7DB0DC1952F89B24873214E7AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125527.jpg" />
 </div>
 
 
@@ -548,78 +625,6 @@ magnet:?xt=urn:btih:AFEEA94E90FC8F7DB0DC1952F89B24873214E7AD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BF95FAE6244EEDCCC9CCE99780693F1E2A2FEB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532941   (125528) от 27.12.2023
-
-Корабль-призрак / Ghost Ship (2002) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отдаленной области Берингова моря команда спасателей обнаруживает останки огромного пассажирского лайнера, который считался погибшим более 40 лет назад. Оказавшись на борту судна, спасатели сталкиваются с жутким прошлым корабля и вынуждены вступить в смертельную схватку…Производство: США, Австралия / Warner Bros.Жанр: Ужасы, триллерРежиссер: Стив БекАктеры: Гэбриел Бирн, Джулианна Маргулис, Рон Элдард, Десмонд Харрингтон, Айзэйя Вашингтон, Алекс Димитриадес, Карл Урбан, Эмили Браунинг, Франческа Реттондини, Борис БркичПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D9F17074BE638D799092FA05441BCBF382BD4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686815   (125529) от 27.12.2023
-
-Квантовый коллапс: США и Китай вступили в гонку с высокими ставками
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125529.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере приближения зловещего «Дня Q» между США и Китаем разворачивается глобальная борьба за безопасность цифрового будущего. Канадская компания Quantum Defen5e (QD5), специализирующаяся на кибербезопасности, предупреждает, что к 2025 году квантовые компьютеры могут сделать нынешние методы шифрования устаревшими и раскрыть все мировые секреты. В тайной борьбе страны (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687878   (125530) от 27.12.2023
-
-Сестра Смерть / Hermana muerte (2023) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1949 год. Молодая послушница Нарсиса, в прошлом — творившая чудеса девочка, приезжает в монастырь и по совместительству женскую школу, чтобы заменить сестру-учительницу. В своей комнате девушка находит посмертную фотографию одной из сестёр, и после этого её начинают мучать кошмары во сне и мерещиться всякое наяву, и кроме того, её маленькие ученицы явно чего-то боятся.Производство: Испания / El Estudio, NetflixЖанр: ужасыРежиссер: Пако ПласаАктеры: Ария Бедмар, Альмудена Амор, Мару Вальдивьельсо, Луиза Мерелас, Чело Виварес, Адриана Камарена, Марсело Карвахал, Даниэла Касас, Марина Дельгадо, Клаудия Фернандес АрройоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, Испанский, АнглийскиСубтитры: Английские (Full, SDH, Forced), Испанские (Full, SDH), УкраинскиеПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2D75ECCAB1DEC9E48915F17C501AAEA4A56AFB
 ```
 
 

@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Audacity 3.6.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7C13D0CE7BC5CE95A628BA06F8F09D23572EFFB6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49089.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Winxvideo AI 3.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2024) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49090.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ R-Studio Network / Technician 9.4 Build 191346 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49091.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OBS Studio 30.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49092.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ IObit Driver Booster Pro 11.6.0.128 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49099.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Freemake Video Converter 4.1.13.180 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49100.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49106.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Veeam Backup & Replication 12.1.2.172 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49116.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adobe Illustrator 2024 28.6.0.709 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49146.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Illustrator 2024 28.6.0.709 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49166.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HDCleaner 2.077 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49174.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ TweakPower 2.057 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49176.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ DLNow Video Downloader 1.54.2024.07.19 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49179.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Blender 3.6.14 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49185.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NoMachine 8.12.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49186.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Audacity 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49188.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Benvista PhotoZoom Pro 9.0.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49189.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Balabolka 2.15.0.875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49192.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Sigil 2.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49194.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ RegCool 2.010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49195.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ IceCream Ebook Reader Pro 6.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49200.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Enigma Virtual Box 10.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49208.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Topaz Video AI 5.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49211.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Icecream Screen Recorder PRO 7.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49213.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Songs of Silence (2024) [Ru/Multi] (1.2.0-d.8104) Repack FitGirl [Deluxe Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26933.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26936.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27004.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27014.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27025.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27026.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27032.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27040.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27042.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27049.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27064.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27065.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27079.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27090.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27135.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27155.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Galactic Simulator (2025) [Ru/Multi] (0.2.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27159.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27174.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27186.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27186.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27206.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27206.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.28.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27217.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27220.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27243.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27245.jpg" />
 </div>
 
 

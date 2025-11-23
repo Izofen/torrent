@@ -1,3 +1,153 @@
+###  Публикация: 1272302   (142519) от 28.12.2018
+
+Пегги Сью вышла замуж / Peggy Sue Got Married (1986) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда очень хочется прожить жизнь заново. Во всяком случае — кое-что подправить. У Пегги Сью всё хорошо — есть милые дети, есть работа. Вот только брак трещит по швам. Сразу после развода Пегги отправляется на бал выпускников школы, где ее с восторгом выбирают королевой.
+Это дает ей шанс вернуться в конец 1950-х, когда «Бич Бойз» пели песенку «Красотка Пегги Сью», (   Читать дальше...   )Производство: США / TriStar Pictures, Rastar Pictures, Zoetrope StudiosЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Френсис Форд КопполаАктеры: Кэтлин Тёрнер, Николас Кейдж, Бэрри Миллер, Кэтрин Хикс, Джоан Аллен, Кевин Дж. О’Коннор, Джим Керри, Лиза Джейн Перски, Люсинда Дженни, Уил Шрайнер, Барбара Харрис, Дон Мюррэй, София Коппола, Морин О’Салливан, Леон Эймс, Рэнди Борн, Хелен Хант, Дон Старк, Маршалл Креншоу, Крис Донато, Роберт Креншоу, Том Тили, Кен Грэнтхем, Джинджер ТейлорПеревод: Многоголосый закадровый (Первый канал), Двуголосый закадровый (Кармен Видео), Одноголосый закадровый (Алексей Михалёв)Субтитры: русские, английскиеПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202F2E16091F5596862344F4AD5DFB0DA59DBEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087653   (142520) от 29.12.2016
+
+История «Eagles» / History of the Eagles (2013) BDRemux [H.264/1080p] [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142520.jpg" />
+</div>
+
+
+###  Подробнее
+
+О жизни и творчестве, о распаде и воссоединении рассказывают сами участники группы «Eagles»Производство: США | Jigsaw ProductionsЖанр: документальныйРежиссер: Элисон ЭллвудПеревод: ОтсутствуетЯзык субтитров: Русский, английскийПродолжительность: 2:00:00 + 1:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFDF78637FC824D629D49CD64907A18662DF4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970161   (142521) от 29.12.2015
+
+Корин Свит | Медитация для занятых людей. Восстановление внутренней гармонии где бы вы ни были (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы несемся на работу на всех парах, а когда застреваем в пробке, терзаемся из-за того, что двигаемся недостаточно быстро. Мы экономим время, поедая фастфуд на ходу. Чтобы справиться с вечно растущими списками дел, мы становимся многозадачными. Мы таращимся в телефоны во время разговора с друзьями. Опустив голову и уставившись на экраны, мы не смотрим другим в глаза (   Читать дальше...   )Жанр: Психология, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662F053166DBA1DAFE44676B1A55F1CA72E8AC5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195421   (142523) от 29.12.2017
+
+Студия Союз (2017.12.28) WEB-DL [H.264/720p-LQ] (выпуск 21: Дайджест)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F61204A35AFAAA31CA37510E3DB6318085BAC06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679030   (142524) от 23.11.2023
+
+Imparity - Tales Of Rust And Bones (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hermetic Seal Of Light [00:08:25]
+02. Rust And Debris [00:06:52]
+03. Watch The World Go By [00:07:18]
+04. The Truth Of Bones [00:08:10](   Читать дальше...   )Жанр: Doom, Gothic Metal, Female VocalsПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE317E11CDF2023E3A989625530462FE190C4AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088017   (142525) от 29.12.2016
+
+Елизавета Дворецкая | Две жены для Святослава (2016) [FB2]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла «Княгиня Ольга».
+
+Еще мальчиком Святослав, сын Ольги и Игоря, принял на себя бремя власти. Увлеченный ратными делами, юноша и не думал о женитьбе, меж тем с детства по политическим соображениям ему были предназначены две невесты. Кого же выбрать – смолянскую княжну Прияну, о которой уже идет слава ведуньи, или древлянскую Горяну, дочь родителей-христиан?.. (   Читать дальше...   )Жанр: Историческая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517E4132D7C8EBD3994A47B15F48DA04882BFAC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195393   (142526) от 29.12.2017
 
 Virgil & Steve Howe - Nexus (2017) [FLAC|Lossless|tracks + .cue] <Ethereal, Art Rock>
@@ -6,7 +156,7 @@ Virgil & Steve Howe - Nexus (2017) [FLAC|Lossless|tracks + .cue] <Ethereal, Art 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142526.jpg" />
 </div>
 
 
@@ -33,7 +183,7 @@ FlowScape v.1.5 (2019) [En] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142527.jpg" />
 </div>
 
 
@@ -59,7 +209,7 @@ Kaunis Kuolematon - Mielenvalta (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142528.jpg" />
 </div>
 
 
@@ -86,7 +236,7 @@ VA - Requiem 2021 (2021) [AAC|~340 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142529.jpg" />
 </div>
 
 
@@ -113,7 +263,7 @@ magnet:?xt=urn:btih:74D0C15340C7416F64C994221B505059F56E4D21
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142530.jpg" />
 </div>
 
 
@@ -137,7 +287,7 @@ Clouds - Clouds Acoustic (2020) Compilation [FLAC|Lossless|Web-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142531.jpg" />
 </div>
 
 
@@ -164,7 +314,7 @@ magnet:?xt=urn:btih:519D206FA6F7B499F3111DD95A1864EB9AB655B2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142532.jpg" />
 </div>
 
 
@@ -188,7 +338,7 @@ magnet:?xt=urn:btih:CDED9B99EA261B7781F503C8895FE27510DCBADC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142534.jpg" />
 </div>
 
 
@@ -212,7 +362,7 @@ UltraCompare 23.1.0.30 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142535.jpg" />
 </div>
 
 
@@ -236,7 +386,7 @@ VA - Best of Future Avenue 2021 (2021) [AAC|~329 Kbps] <Progressive House, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142536.jpg" />
 </div>
 
 
@@ -263,7 +413,7 @@ magnet:?xt=urn:btih:D95F698B5BEC86E72ED804E8307304C4E4DDE841
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142539.jpg" />
 </div>
 
 
@@ -290,7 +440,7 @@ magnet:?xt=urn:btih:8CFE12411337F3EACC120F686C86746ED505F1C5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142541.jpg" />
 </div>
 
 
@@ -315,7 +465,7 @@ magnet:?xt=urn:btih:048361E457CE221EBB28D027D9FC606692EEBDA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142542.jpg" />
 </div>
 
 
@@ -339,7 +489,7 @@ magnet:?xt=urn:btih:54DD26E26404BF7CA05F1F2032AE92FFB844E4E9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142543.jpg" />
 </div>
 
 
@@ -363,7 +513,7 @@ magnet:?xt=urn:btih:F77BA8AECAC3DDD4321FF5459A7B7D73DAC896BC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142545.jpg" />
 </div>
 
 
@@ -387,7 +537,7 @@ magnet:?xt=urn:btih:BF4495AEA06B3CADD7E04D862136CFA0F9EC4D48
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142546.jpg" />
 </div>
 
 
@@ -413,7 +563,7 @@ GiliSoft USB Stick Encryption 6.0.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142547.jpg" />
 </div>
 
 
@@ -437,7 +587,7 @@ magnet:?xt=urn:btih:C83728517FD86A160E563BE89ADBB1172FC0676E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142548.jpg" />
 </div>
 
 
@@ -461,7 +611,7 @@ magnet:?xt=urn:btih:58ABBEFB462A5E75FF8A277395365457CD499680
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142549.jpg" />
 </div>
 
 
@@ -485,7 +635,7 @@ magnet:?xt=urn:btih:35343C33ED16FF9F5AD04F6794262395EFECFDFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142550.jpg" />
 </div>
 
 
@@ -496,156 +646,6 @@ magnet:?xt=urn:btih:35343C33ED16FF9F5AD04F6794262395EFECFDFB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0434DD0703AB9245025A251B8E8E70A8AA28FC9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347833   (142552) от 28.12.2019
-
-Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальные грузовики! Реальное безумие! Monster Jam Steel Titans - это невероятные заезды на монструозных машинах для всех и каждого! Трюки, грузовики, арены, головокружительные полеты - и все это в одном месте! Соревнуйтесь в различных режимах на аренах и трассах, выполняйте трюки и крушите всё вокруг!Тип издания: RepackРазработчик: Rainbow StudiosЖанр: Казуальные игры, Гонки, Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7A301B78E67FAAE587925ED98C5F5E2C73CC37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678922   (142553) от 23.11.2023
-
-uDock 4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142553.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013101D4F90F8A402ADC8F3503442F4527057A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195360   (142554) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 34) (Compiled by Виктор31RUS) (2017) [MP3|224-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Валентина Готовцева  -  Ах, Самара-городок  3:37
-02.  Евгений Кибкало  -  Что так сердце растревожено  5:44
-03.  Виктор Иванович Селиванов  -  Три танкиста (к-ф Трактористы)  3:16
-04.  Марина Ладынина  -  Каким ты был  2:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0531650283652F24D2137FE3045C4C367E3332A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969855   (142555) от 29.12.2015
-
-Мир дому твоему (1987) DVDRip [H.264] [Реставрация КП]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сатирические миниатюры на социальные и морально-этические темы в постановке театра "Сатирикон".Производство: СССР, ТО "Экран", "Сатирикон"Жанр: СатираРежиссер: Аркадий Райкин, Константин Райкин, Марк ОрловАктеры: Аркадий Райкин, Константин Райкин, Тамара Кушелевская, Наталья Аитова, Феликс Аитов, Елена Бутенко-Райкина, Владимир Большов, Сергей Друзьяк (II), Игорь Еремеев, Сергей Зарубин, Александр Карпов (II), Лилия Макарова, Роланд Тер-Макаров, Владимир Михайловский, Лидия Петракова, Леонид Тимцуник, Виктор Шимановский (II)...Продолжительность: 01:26:30 + 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9BDABBE1F38C0E3A6ABC52663DEB0072D27B7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590553   (142556) от 17.12.2012
-
-Журнал | Вязание для вас №1 (январь 2013) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142556.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены женские и мужские: пуловеры, жакеты, накидки, связанные спицами и крючком. Модели доступно проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6640D978F2715C99F26C8961E647E51E4F19F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678965   (142557) от 23.11.2023
-
-Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louder Than Hell (5:53)
-02. The Book of Fire (6:15)
-03. Funeral Song (5:25)
-04. Symphony of Pain (4:33)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, IndustrialПродолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5247DE63585EFAEEF08CFBB9162FD1D21341F003
 ```
 
 

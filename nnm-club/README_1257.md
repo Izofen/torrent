@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2D7C580AACF0B4C09C3C8AD189723B6945A1B9EC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33036.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33037.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yuri Sosnin - Night Disco (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33038.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5A35D094C0E7A4C6C68136CDB4396A7D23890F1A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33039.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6671C50ED4DB6CCEF1104FA1E692369A4E7A84AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33040.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:20D3794A4022CF2733D3174FE31ECF424074FB7B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33041.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:E081AE21711CAC27646E0F34CE610DE81C53F3DD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33042.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:1E5309529311278C764642D510E4F1507ADFF659
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33043.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A1771515BF76616D4B1C51EEE7D951D1160D5F90
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33044.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Wise Registry Cleaner Pro 11.1.9.724 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33045.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33046.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:03DFC1D31EC08D7134DB5F0418478FD05055D8F1
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33047.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:81F0C2DA8B39A21C4CCCE261069550F50697145C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33048.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1707C6F789FB373741B258A4481FB8DC51C670C4
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33049.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Glary Utilities Pro 6.20.0.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33050.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:8BA995E56745DFCDE23D3FDC6D2930D68D11B5B6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33051.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A59BF3D601B1DCA623AD150B90B325C8DA9C70FA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33052.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:89F2152A54DFDDA95C169B5CBEC3687955897222
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33053.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:84EB5338D0E3315B05874D0A0F6284658F9A24CB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33054.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:95E54E381ABDD0059C06CD321949935500F64E45
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33055.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33056.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:65153C019EAE22EE4AFE887D51DFFD2B13E8AE53
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33057.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Classical Music Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33058.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33059.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:3F0F5241AA901455F232E24B2A7C1D10BD488B5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33060.jpg" />
 </div>
 
 

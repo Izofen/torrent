@@ -1,3 +1,78 @@
+###  Публикация: 593589   (134550) от 24.12.2012
+
+Corel AfterShot Pro 1.1.0.30 [Multi/Rus] Portable by SoftLab
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_134550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сorel® AfterShot™ Pro представляет собой быстрое и гибкое решение для организации работы с фотографиями. Оно сочетает в себе надежные средства управления фотографиями, расширенные возможности настройки без потери качества и полный набор инструментов для обработки файлов RAW. Систематизируйте фотографии в каталогах или папках. Быстро находите изображения при помощи обширных средств работы с метаданными, позволяющих производить поиск по настройкам камеры, ключевым словам, тегам и другим параметрам. Свободно экспериментируйте с изображениями и изменяйте их, используя инструменты корректировки без потери качества. Выборочное редактирование обеспечит возможности более точной настройки. Результат работы можно легко вывести для размещения в альбомах или на веб-сайтах, а также для показа клиенту. Благодаря поддержке RAW, мощным средствам пакетной обработки и невероятному быстродействию AfterShot Pro позволяет легко создавать фотографии профессионального качества.Название программы: Corel AfterShot ProЯзык интерфейса: Multi/Rus (by aleksbank)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680228   (134551) от 28.11.2023
+
+The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five To One (Live 1968) [00:06:23]
+02. Mack The Knife (Live 1968) [00:01:36]
+03. Alabama Song (Live 1968) [00:01:32]
+04. Back Door Man (Live 1968) [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593198   (134552) от 24.12.2012
+
+Игорь Скорин | Ребята из УГРО [1982] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая повесть о работе уголовного розыска Восточной Сибири и Забайкалья в 30-40-е годы. Герои повести - комсомольцы, мобилизованные по комсомольскому призыву на работу в уголовный розыск, - участвуют в раскрытии уголовных преступлений. В основе повествования лежат подлинные события.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FA4456840B500F712D54DC7733B69EA1C91CDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680201   (134553) от 28.11.2023
 
 Подшивка журнала | Автопарк. 5 колесо №01-08 (февраль-ноябрь 2023) [PDF]
@@ -6,7 +81,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134553.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Speedtest от Ookla 5.2.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134555.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:9673FB52A55310FBC4C65F3802739D9725134876
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134556.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:286715300EA2C7EE2A67BA7C12427DBD679715BC
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134558.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134558.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:286715300EA2C7EE2A67BA7C12427DBD679715BC
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134559.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:C802BBD0526CA6A9274F278564661C6D44507687
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134562.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134563.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:0B2AB4DD766D9310A1EBCA69B28B7A9A063A84CE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134564.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ magnet:?xt=urn:btih:03D80B6C77D3E7D9698BBF70F13D2DB5AFB698ED
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134565.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ magnet:?xt=urn:btih:330EB9809736641AF26FD7C91A4975A1573347C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134566.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ Infuse PRO 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134567.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:EB7237FD7CB7121492BC5BE53BC28B0B833998ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134568.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:B78ECFDFFBEF0C37539A1F941EFABE45401DE006
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134569.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ magnet:?xt=urn:btih:C2D402F28B3262D3337791B5D089F4ECEF1D7BEE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134570.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ VA - New Year's Eve Jazz 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134571.jpg" />
 </div>
 
 
@@ -383,7 +458,7 @@ magnet:?xt=urn:btih:B1C0CFC3EAA5FF33616A51A442749B790CA29355
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134572.jpg" />
 </div>
 
 
@@ -407,7 +482,7 @@ magnet:?xt=urn:btih:12B0640611CCDC1ABA1F60FCA803B08A1F9CBAFD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134573.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:D0FA60DCCC9717D526901484D0EF2258C9D0FA7C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134575.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:7B0D0DDA0EF81BA1BEB953384DB67679D95A7B7D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134577.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ iMap Builder: Organisation 11.1.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134579.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ magnet:?xt=urn:btih:A9F54D6E97C71AFF388583A785D928855B6EB4DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134580.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:A9F54D6E97C71AFF388583A785D928855B6EB4DB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134581.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ magnet:?xt=urn:btih:28D2E4C2FADD6BBABF9CA0D9E34552F5AD2D2E9A
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134582.jpg" />
 </div>
 
 
@@ -567,83 +642,6 @@ magnet:?xt=urn:btih:28D2E4C2FADD6BBABF9CA0D9E34552F5AD2D2E9A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F055815AF5CCA59BAA3E15D522EDF8ED5101FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680297   (134583) от 28.11.2023
-
-Romeo's Daughter - Slipstream (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over You (3:56)
-02. Everything (3:33)
-03. How Does It Feel (3:42)
-04. Inseparable (4:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B9A6343B9B58B071E8C1BC2A66EB8B4E8CEEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593792   (134584) от 24.12.2012
-
-"АСТ" | Книжная серия "Исторический детектив (АСТ)" в 10 томах [2006-2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Исторический детектив от издательства АСТ.
-Название серии соответствует содержанию книг.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9921CCD6F7EB3B77E00A3F6A51F196F35C68C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680176   (134585) от 28.11.2023
-
-Алан Александер Милн | Винни-Пух и все, все, все (2008) [MP3, Ирина Потоцкая]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива Гостелерадиофонда.
-Больше всего на свете толстый плюшевый медвежонок Винни-Пух любит поесть. А кроме этого он сочиняет песенки, пыхтелки, сопелки и кричалки на все случаи жизни. Но друзья – Кристофер Робин, Пятачок, Иа-Иа, Кролик, Тигра, Кенга и Ру – любят его не только за это. Пускай Винни-Пух и не очень сообразительный медвежонок, зато каждое безвыходное (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Борис ЗаходерИздательство: ИДДКПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B3AF5C44D9B01BC6EDB6E5D7C393C0D1A94DA8
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1691370   (123240) от 12.01.2024
+
+McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [9:23]
+02. Passion Dance [11:47]
+03. Search For Peace [6:37]
+04. The Promise [6:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438308E41AD56E5CF1F7E654154FA660F6A5C67E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690861   (123241) от 12.01.2024
+
+Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123241.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fight Or Flight
+A2. Are We Soldiers
+A3. Control Conquer Collide
+B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689890   (123242) от 12.01.2024
+
+Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perception [00:03:15]
+02. Whispers [00:05:28]
+03. The Glass Hindered Us [00:03:57]
+04. Different from What Was Missing [00:05:22](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B618E10AEAAD52B2985C0BFA62E80B3C67F9A247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691146   (123243) от 12.01.2024
 
 Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black, Folk Metal>
@@ -6,7 +87,7 @@ Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123243.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123244.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ magnet:?xt=urn:btih:B7E840E8B72C27198B500236663BB00B85A51866
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123245.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123246.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ Scanner - The Cosmic Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123247.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123248.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123249.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Path Finder 2166 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123250.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ magnet:?xt=urn:btih:5AFDB934288BDC9EDFA6110A73F2E7B29765636C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123251.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123252.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ magnet:?xt=urn:btih:33A0E38A786A05D14927EDA41BF89F28B0A9437A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123253.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Ryan Adams - 1985 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123254.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ Sodom - 1982 (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Expe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123255.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ Ryan Adams - Star Sign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123256.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ Money Pro - Personal Finance 2.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123257.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ magnet:?xt=urn:btih:0F0D7C92A0B9B4C129E4B23C46F157CDF4ADF2B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123258.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ magnet:?xt=urn:btih:FC19D0B9BCA7A4352171915CCB6F3E716FFF3757
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123259.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ Final Draft 13 v.13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123260.jpg" />
 </div>
 
 
@@ -471,7 +552,7 @@ Fork 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123261.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Liva - Ecce Mundus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123262.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ FontLab 8 v.8.3.0.8762 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123263.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ magnet:?xt=urn:btih:46A4D7B1384BC9D973592A6CF58E112A35D78DD9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123264.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ Magnum - Here Comes The Rain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123265.jpg" />
 </div>
 
 
@@ -585,81 +666,6 @@ Magnum - Here Comes The Rain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30972E4EB9F2072E4650ED821E4BB0D85775AF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691469   (123266) от 12.01.2024
-
-Филип Дик | Человек (2023) [MP3, Олег Булдаков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лестер Херрик отправился на древнюю планету Рексор-4, чтобы сделать фотографии местности, и когда он вернулся домой через несколько недель, он уже не был тем человеком, который улетел....Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F644E84BF61DB0357D57098CB52A60F269A6E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691534   (123267) от 12.01.2024
-
-ExamDiff Pro Master Edition 14.0.1.20 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123267.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CAE57496659A76E1C9033579445C6F8D88EBB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691465   (123268) от 12.01.2024
-
-VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SpaceSynth.Ru - Intro (1:20)
-02. Metatron & TDHDriver - Call of Destiny (5:44)
-03. Laserlight - On The Waves Of Memory (6:24)
-04. Cosmic Roulette - Drone Invasion (5:15)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0629E01E61F7AF1C0A9D71CF9288E77ADD3C08AE
 ```
 
 

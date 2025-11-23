@@ -6,7 +6,7 @@ ScreenToGif 2.41.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69206.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fort Firewall 3.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69280.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Folder Player Pro v5.32 b341 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69283.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69361.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PowerDirector – Video Editor v15.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69375.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ SoundHound ∞ - Music Discovery v10.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69386.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ TuneIn Radio Pro v37.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69423.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ KORG - multi/poly native 1.0.3 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69441.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Plus Messenger (Telegram+) v11.8.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69462.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PrivaZer Pro 4.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69463.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PrivaZer Pro 4.0.102 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69647.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ R-Wipe & Clean 20.0.2498 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69649.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Telegram Desktop 5.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69651.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Photo Supreme 2025.0.3.7437 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69659.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TuneIn Radio Pro v37.5.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69660.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Telegram Desktop 5.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69696.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ TikTok Private Plus v39.0.5 Mod by TikTok + Plugin Update [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69698.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ STEEZY Studio - Learn To Dance v5.7.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69705.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Karing 1.1.0.583 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69718.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Emurasoft EmEditor Professional 25.0.0 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69722.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:71B3330F0B3D5D5B06DAA8C8E18020C9EEF62975
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69724.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Rock Identifier - Stone ID v2.3.51 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69725.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Desktop Calendar 3.21.225.7036 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69768.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ StaxRip 2.44.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69779.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Photo Supreme 2025.0.2.7409 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69885.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ TuneIn Radio Pro v37.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69887.jpg" />
 </div>
 
 

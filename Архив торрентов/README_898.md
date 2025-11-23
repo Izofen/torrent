@@ -1,3 +1,101 @@
+###  Публикация: 1595216   (176073) от 04.12.2022
+
+Balabolka 2.15.0.831 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
+Для воспроизведения звуков человеческого голоса могут использоваться
+любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D550EF137AF5E929972EC95E5FF30ED1344335E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429671   (176074) от 07.12.2020
+
+Trminal 1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_176074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trminal - ярлык вашего терминала. Trminal быстро откроет окно или вкладку терминала для текущего окна Finder. Он всегда доступен из главного меню. Он также может автоматически запускать сценарий оболочки, как только откроется окно / вкладка Терминала. Поддерживает встроенный терминал macOS и iTerm2. Незаменимый инструмент для любого разработчика, фаната оболочки.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Bitfield AB.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD33F245D2A212421456CE5543AA9E7688F9FBD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429814   (176077) от 07.12.2020
+
+PullTube 1.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_176077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1140F35B03DFF766356ACE47F9FA616CCEC63597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429729   (176079) от 07.12.2020
+
+ProFind 1.8.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_176079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD07DF114E3825985B464038D48CB84EFF1032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429826   (176082) от 07.12.2020
 
 VideoTag 1.1 [En]
@@ -6,7 +104,7 @@ VideoTag 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176082.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176082.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ Multitouch 1.20.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176083.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176083.jpg" />
 </div>
 
 
@@ -56,7 +154,7 @@ Text Editor Pro 24.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176102.jpg" />
 </div>
 
 
@@ -80,7 +178,7 @@ magnet:?xt=urn:btih:96E7DA8D3E8046A19632056251806B00B64755D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176146.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176146.jpg" />
 </div>
 
 
@@ -104,7 +202,7 @@ magnet:?xt=urn:btih:0FD790267036C4BA0D40BECCD086A2D9F1A157E4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176164.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176164.jpg" />
 </div>
 
 
@@ -128,7 +226,7 @@ magnet:?xt=urn:btih:E89FBAB33451943CEC404640AC7226767E4490B9
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176296.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176296.jpg" />
 </div>
 
 
@@ -152,7 +250,7 @@ Bandicam 7.0.0.2117 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176317.jpg" />
 </div>
 
 
@@ -176,7 +274,7 @@ uTorrent Pack 1.2.3.76 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176351.jpg" />
 </div>
 
 
@@ -201,7 +299,7 @@ Windows 10 Manager 3.3.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176366.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176366.jpg" />
 </div>
 
 
@@ -225,7 +323,7 @@ R-Studio Network Edition 8.15 Build 180015 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176380.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176380.jpg" />
 </div>
 
 
@@ -249,7 +347,7 @@ Caramba Switcher Corporate 2023.07.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176383.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176383.jpg" />
 </div>
 
 
@@ -273,7 +371,7 @@ MiniTool Partition Wizard Technician 12.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176386.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176386.jpg" />
 </div>
 
 
@@ -297,7 +395,7 @@ Wondershare Filmora 10.0.6.8 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176399.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176399.jpg" />
 </div>
 
 
@@ -321,7 +419,7 @@ Adguard 7.11.3 (7.11.4107.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176423.jpg" />
 </div>
 
 
@@ -345,7 +443,7 @@ Udemy, Andrei Neagoie | The Complete Web Developer in 2021: Zero to Mastery (202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176442.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176442.jpg" />
 </div>
 
 
@@ -372,7 +470,7 @@ CrystalDiskInfo 8.17.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176446.jpg" />
 </div>
 
 
@@ -396,7 +494,7 @@ DiskDigger 1.41.61.3067 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176447.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176447.jpg" />
 </div>
 
 
@@ -420,7 +518,7 @@ Windows 10 Manager 3.7.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176450.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176450.jpg" />
 </div>
 
 
@@ -444,7 +542,7 @@ Serif Affinity Photo 1.10.6.1665 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176469.jpg" />
 </div>
 
 
@@ -468,7 +566,7 @@ Topaz Video AI 3.0.5 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176473.jpg" />
 </div>
 
 
@@ -492,7 +590,7 @@ Luminar Neo 1.14.0.12151 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176498.jpg" />
 </div>
 
 
@@ -518,7 +616,7 @@ TrustViewer 2.4.0.3957 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176502.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176502.jpg" />
 </div>
 
 
@@ -529,105 +627,6 @@ TrustViewer - это комплексное решение для удаленн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86ACF38C9AD7FD7F709BE17A9B96253BF2EF42B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429350   (176524) от 06.12.2020
-
-TrueArtSchool, Светлана Курако | Иллюстратор ПРО (2020) PCRec
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный четырёхнедельный онлайн-курс по созданию трендовых иллюстраций в Adobe Illustrator с нуля.
-Что входит в онлайн-курс «Иллюстратор ПРО»:
-Часть 01
-• На старт! Ставим ошеломительные цели на курс(   Читать дальше...   )Производство: TrueArtSchoolЖанр: Дизайн, рисованиеПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD72E8F87FC9B7E281D3E82EB9E49989E8DE6DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594999   (176527) от 03.12.2022
-
-W10Privacy 4.1.1.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176527.jpg" />
-</div>
-
-
-###  Подробнее
-
-W10Privacy - программа для изменения настроек системы Windows и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить/отключить.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003523A97CDABD55759FFAE42380FC8464B6C2B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595048   (176550) от 03.12.2022
-
-Google Chrome 108.0.5359.95 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F99169BA7424B8C4CE0E9B2704C0CFECA5B7549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595087   (176567) от 03.12.2022
-
-DP Animation Maker 3.5.13 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90AA63ABED5ABF18BFB54C5F11B5A8190E4295E
 ```
 
 

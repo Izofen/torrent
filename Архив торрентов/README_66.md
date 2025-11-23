@@ -6,7 +6,7 @@ Smart AudioBook Player Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20367.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PhotoDirector v20.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20368.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20368.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Perfectly Clear WorkBench 4.7.0.2783 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20391.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20391.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ OCCT 14.0.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20395.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.6 Mod by ShiroAndShuvi [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20396.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20396.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ XnView Shell Extension 4.1.14  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20409.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20410.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FBReader Premium v3.8.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20423.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ v2rayN 7.11.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20429.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 27 Public Beta 2 RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20430.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:AF4DD23CEE7BAB1004A64BC6AB2B4C11352069C0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20442.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ StartAllBack 3.9.8 build 5270 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20446.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20456.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ StartAllBack 3.9.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20460.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Reg Organizer 9.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20465.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Pulsar Modular Complete Effects Bundle 2025.4.21 VST 3, AAX (x64) RePack by TCD 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20474.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Alfa eBooks Manager 9.2.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20477.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Vanced Tube v5.3.81.165 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20498.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Allavsoft Video Downloader Converter 3.28.0.9225 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20501.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Email Aqua Mail - Fast, Secure v1.55.0 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20502.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ TreeSize Professional 9.4.2.2004 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20507.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:A5D8BD691D64D3A693A3AD46AA706835552503F7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20514.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Reg Organizer 9.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20525.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Reg Organizer 9.71 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20532.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20532.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Topaz Gigapixel AI Pro 8.3.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20533.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20533.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.35112.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20534.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20534.jpg" />
 </div>
 
 

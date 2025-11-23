@@ -1,3 +1,84 @@
+###  Публикация: 1762954   (102881) от 28.11.2024
+
+Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun One (6:05)
+02. Solar (5:52)
+03. Ruby My Dear (7:08)
+04. Wee (4:59)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A80B559194CF02B744680624A01C6868E47B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762950   (102882) от 28.11.2024
+
+Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Buzzard (7:42)
+02. The War Inside (4:55)
+03. The Disown (6:11)
+04. The Show (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A30637813978F65FF3A05F7D9289288BDEA3B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762942   (102883) от 28.11.2024
+
+Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hunting Party (5:49)
+02. The Stranger (4:53)
+03. Spiders (5:52)
+04. Boiling Point (5:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762931   (102884) от 28.11.2024
 
 Пьер Бенуа | За Дона Карлоса (2011) [MP3, Евгений Терновский]
@@ -6,7 +87,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102884.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Departure Chandelier - Satan Soldier Of Fortune (2024) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102885.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:E7F6FC547255747369AC47F7348B749C88C85E9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102886.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102887.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102888.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102889.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ magnet:?xt=urn:btih:46DAA2A939AE4391CAEF86A374C09BEEEA8AEDF9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102890.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102891.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102892.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102893.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102894.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102895.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ magnet:?xt=urn:btih:8A933B926BBE53C8DB3D63E9315C14DD7663137E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102896.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102897.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ Mannheim Steamroller By Chip Davis - Christmas In The Aire (1995) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102898.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ VA - Uplifting Only Top 15: December 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102899.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ VA - The Independent Blues Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102900.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102901.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102902.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ Activator - Хранитель жизни (2013) [MP3|252-276 Kbps VBR (V0)] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102903.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ja
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102904.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102905.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102906.jpg" />
 </div>
 
 
@@ -605,81 +686,6 @@ Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BA640193233F205797ACA4D5C0FB888DE2D15F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762586   (102907) от 26.11.2024
-
-Журнал | Таинственные истории №23 (303) (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102907.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB70B3656502C55E8C02C2E0DBBD42F4DFEC64E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762589   (102908) от 26.11.2024
-
-Журнал | Таинственные истории №24 (304) (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102908.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6132440C471B649E4608DF78543F005D2FE1C286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762679   (102909) от 26.11.2024
-
-Nomos - The Great Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Unknown 05:35
-02. Ghost Of Tomorrow 06:18
-03. Sorrowful Clown 04:20
-04. Last Call 05:02(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E6887CC4D5470CF6D667E3610CC694EFF8E5CD
 ```
 
 

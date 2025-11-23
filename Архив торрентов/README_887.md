@@ -1,3 +1,101 @@
+###  Публикация: 1595937   (174385) от 07.12.2022
+
+EF Commander 2022.12 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174385.jpg" />
+</div>
+
+
+###  Подробнее
+
+EF Commander  — замечательный двухпанельный файловый менеджер с почти неограниченными возможностями, простой в использовании и крайне нетребователен к ресурсам компьютера. Используется для управления файлами самых разнообразных типов и форматов, выполнен в стиле Total Commander, но несколько отличающийся от последнего функциями и интерфейсом.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEA6B22BA2FFBC0933DA4B0D3B26EBAAB352961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595758   (174386) от 07.12.2022
+
+Audacity 3.2.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CB6F1CE5358852D7831969E5087592F28C19D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595842   (174389) от 07.12.2022
+
+HWiNFO 7.34 Build 4930 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174389.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA08A72332E2AA598EB91B4D1AF48333C017F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595895   (174394) от 07.12.2022
+
+Telegram Desktop 4.4.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEA590865D338552A36A11B77AB3392A3D8CBA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668284   (174399) от 11.10.2023
 
 Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +104,7 @@ Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174399.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ MemTest86 10.6 Build 3000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174402.jpg" />
 </div>
 
 
@@ -54,7 +152,7 @@ Emurasoft EmEditor Professional 22.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174411.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174411.jpg" />
 </div>
 
 
@@ -79,7 +177,7 @@ Revo Uninstaller Free 2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174418.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174418.jpg" />
 </div>
 
 
@@ -103,7 +201,7 @@ Process Lasso Pro 12.0.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174422.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174422.jpg" />
 </div>
 
 
@@ -127,7 +225,7 @@ Auslogics Anti-Malware Pro 1.23.0.0 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174426.jpg" />
 </div>
 
 
@@ -151,7 +249,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174427.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174427.jpg" />
 </div>
 
 
@@ -175,7 +273,7 @@ Adguard 7.15.0 (7.15.4385.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174429.jpg" />
 </div>
 
 
@@ -199,7 +297,7 @@ Lacey Free Music & Video Downloader 2.48 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174436.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174436.jpg" />
 </div>
 
 
@@ -223,7 +321,7 @@ Auslogics Duplicate File Finder 10.0.0.4 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174438.jpg" />
 </div>
 
 
@@ -247,7 +345,7 @@ Pixelmator Classic 3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174439.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174439.jpg" />
 </div>
 
 
@@ -271,7 +369,7 @@ Vivaldi for Android 5.5.2807.43  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174441.jpg" />
 </div>
 
 
@@ -296,7 +394,7 @@ Adguard 7.15.0 (7.15.4385.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174442.jpg" />
 </div>
 
 
@@ -320,7 +418,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.1 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174445.jpg" />
 </div>
 
 
@@ -344,7 +442,7 @@ Spotify 1.2.21.1104 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174450.jpg" />
 </div>
 
 
@@ -369,7 +467,7 @@ Vivaldi 5.6.2867.36 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174453.jpg" />
 </div>
 
 
@@ -393,7 +491,7 @@ Auslogics Video Grabber 1.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174460.jpg" />
 </div>
 
 
@@ -417,7 +515,7 @@ NVIDIA GeForce Desktop Game Ready 537.58 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174464.jpg" />
 </div>
 
 
@@ -441,7 +539,7 @@ Mirillis Action! 4.30.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174465.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174465.jpg" />
 </div>
 
 
@@ -466,7 +564,7 @@ GOM Player Plus 2.3.81.5348 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174466.jpg" />
 </div>
 
 
@@ -490,7 +588,7 @@ Revo Uninstaller Pro 5.0.8 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174468.jpg" />
 </div>
 
 
@@ -514,7 +612,7 @@ NIUBI Partition Editor 9.1.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174474.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174474.jpg" />
 </div>
 
 
@@ -526,108 +624,6 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741EF02A024661C2F5D6EB93FD171F65DC6421A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668303   (174475) от 11.10.2023
-
-Auslogics Windows Slimmer 4.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.
-Windows Slimmer поможет вам в удалении ненужных компонентов Windows, деинсталляции приложений и оптимальной настройки параметров, чтобы снизить размер операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FEC098CD8F26B01F7B62EE29E5D67CF442112E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595809   (174477) от 07.12.2022
-
-Telegram Desktop 4.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE143DC183CAD8CC03C3839708F9358672EBA3BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430346   (174480) от 09.12.2020
-
-MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174480.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0B7BB411B3B1B7A4A1A75636EC590BD7C10CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595843   (174486) от 07.12.2022
-
-Softany WinCHM Pro 5.499 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174486.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinCHM - небольшая утилита для создания файлов помощи, книг или журналов в формате HTML, CHM, Web help, PDF и Word файлов. Для работы в программе не обязательно обладать знаниями HTML, можно писать и редактировать текст так же как вы делаете это в Word, редактируя уже готовые документы CHM или создавая свои. Имеется визуальный дизайнер CHM и возможность редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310CFEE167F0A8F136B2605807A1A544E68EA668
 ```
 
 

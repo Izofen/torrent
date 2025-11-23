@@ -6,7 +6,7 @@ Eisbrecher - Eisbrecher (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160469.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eisbrecher - Leider / Vergissmeinnicht (2006) [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160473.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160476.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Beatles - Now And Then (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160546.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Maximum Rock The 1970s (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160585.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Shrapnel Storm - Silo (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160610.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Strangerland - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160625.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Luke Morley - Songs From The Blue Room (2023) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160626.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Saboter - Architects Of Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160638.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160648.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dreams - Dreams (1987) 2xCD, Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160650.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160654.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160658.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Radioactive - Taken (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160660.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Degreed - Lost Generation (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160661.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160662.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160671.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160672.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160673.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160675.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160676.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160677.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160678.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160682.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160683.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160684.jpg" />
 </div>
 
 

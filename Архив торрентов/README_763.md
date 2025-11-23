@@ -1,3 +1,76 @@
+###  Публикация: 1270599   (157454) от 19.12.2018
+
+Opera 57.0.3098.106 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397BDAAD8158CD2ABA9D294E26EE5B750A170274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346818   (157460) от 20.12.2019
+
+Athentech Perfectly Clear WorkBench 3.9.0.1710 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829FA057B6CD6C9AE18EC9C63D9D9445BB79F351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518094   (157472) от 18.12.2021
+
+Media Player Classic Home Cinema (MPC-HC) 1.9.18 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFD96B7DC9F37BEA1EC5067658B95DD02AD49A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346635   (157475) от 20.12.2019
 
 Sumatra PDF 3.2.11731 Pre-release + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ Sumatra PDF 3.2.11731 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157475.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157494.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ RJ TextEd 15.72.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157495.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Cockos REAPER 7.03 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157501.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ RedNotebook 2.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157505.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Vivaldi 2.2.1388.37 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157509.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Zoner Photo Studio X 19.2309.2.506 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157520.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:B578BF97140F50D887B2A96E67BC9C6A6624126F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157521.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Aiseesoft Video Converter Ultimate 10.6.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157546.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Slimjet 17.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157557.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ Microsoft Visual Studio 2019 Community 16.3.10 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157563.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ magnet:?xt=urn:btih:BC314A9EECD7B0B4DBB01BB3CC6DD73C42B94F15
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157570.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.1 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157573.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ magnet:?xt=urn:btih:540FA774862C240D0F15BBC00121068BB55BA46D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157575.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ HDCleaner 2.041 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157576.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ GeoGebra 6.0.811.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157577.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 19.12.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157579.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Audirvana Plus 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157586.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Wise Care 365 Pro 2.14.164 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157591.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Mellel 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157624.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ magnet:?xt=urn:btih:D2A91DDF39863831BE5803C845FB569ED1EFD348
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157636.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Skillbox | Профессия 3D-дженералист (2020) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157639.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ magnet:?xt=urn:btih:56EAF79240293E1F3A52998FC21850BF3EA6E251
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157640.jpg" />
 </div>
 
 
@@ -551,78 +624,6 @@ magnet:?xt=urn:btih:56EAF79240293E1F3A52998FC21850BF3EA6E251
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534FB868D5BA99A70226145F9A7A0CAE619896C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085342   (157648) от 21.12.2016
-
-K-Lite Codec Pack 12.7.5 Mega/Full/Standard/Basic + Update [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157648.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FC4C436FDC087F972A1AD9877B3CE20DC48577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600491   (157653) от 27.12.2022
-
-Path Finder 2149 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13F703F84E50E5A27263AB15049EF9F58E2D16E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346673   (157655) от 20.12.2019
-
-Cinemagraph Pro 2.8.3 (build 223) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать "видеоколлажи" из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2019Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453C116FF95638FE3F5BB279880D4AD6C32D5387
 ```
 
 

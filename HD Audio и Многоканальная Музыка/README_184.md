@@ -6,7 +6,7 @@ Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127797.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127798.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127807.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127816.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127974.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127977.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127986.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128083.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128095.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Agnetha Faltskog - A+ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128122.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128220.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128247.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128348.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128531.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128544.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128547.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128553.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128583.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128599.jpg" />
 </div>
 
 

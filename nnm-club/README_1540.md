@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40394.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BEA8D0E35962889FAE29B75BF9B18C0B82E5E85B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40395.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ UltraSearch Professional 4.5.0.1057 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40396.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Spectrasonics Omnisphere Software 2.8.7c, Patch Library 2.8.3c Update (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40397.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TweakPower 2.062 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40398.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Music News For Forum vol.032 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40399.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6C943445141E87640742B87478B45CDC0230764C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40400.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3C62967BCED5157D065112762FF805F1E8E04FF0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40401.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BEF2182D790EE3404F52ADE50FE793A05F5CA604
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40402.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Altair Inspire 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40403.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ XnView MP 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40404.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:547CA54A478EBF3E6C1C0C3F2022582BF8C1617B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40405.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Altair HyperWorks Suite 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40406.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ K-Lite Codec Pack Update 18.6.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40407.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Altair Flow Simulator 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40408.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Best Of 92 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40409.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F0D9BE998BA575876AA5A4F2FC637DBB403ADFF0
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40410.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:088FE8975D571A557FB5D720D0674F141837D686
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40411.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40412.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ SpaceX впервые приземлила разгонную ступень Sup
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40413.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ FL Studio Producer Edition 24.1.2.4394 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40414.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A215756F459F13B727B0ECF838BB4EF97FB39762
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40415.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D7E42582C1983474EB45F8798A88E76ABB141840
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40416.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40417.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:E4C1EC5590AF9742238E846042EDD1DD49073320
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40418.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:392743404C6B6A3FBA6E2D769698C07B37C4A63C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40419.jpg" />
 </div>
 
 

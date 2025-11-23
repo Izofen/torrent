@@ -1,3 +1,102 @@
+###  Публикация: 1670480   (172068) от 20.10.2023
+
+DNS Changer 2.1.11 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172068.jpg" />
+</div>
+
+
+###  Подробнее
+
+DNS Changer - это простой и эффективный инструмент для пользователей, которым требуется программа для удобной смены DNS-серверов. Основная цель программы - предложить удобный способ изменения DNS без лишних усилий со стороны пользователя.
+
+DNS Changer - это интуитивно понятное и удобное приложение с современным дизайном интерфейса. Его использование не вызывает трудностей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB763B04D723E87A10DAD3281C8728E559D2614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670336   (172070) от 20.10.2023
+
+Fort Firewall 3.10.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE4448E1FDF85EB3781FFC6426BB8DCB25C9CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670478   (172080) от 20.10.2023
+
+Calibre 6.29.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8705BC992FC5723A945FF7F1D2252D134DF412BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670377   (172082) от 20.10.2023
+
+Glarysoft Malware Hunter PRO 1.173.0.791 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6503B3C4D3BD9BCCC10B55F590ECE176697E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670447   (172087) от 20.10.2023
 
 EssentialPIM Pro 11.7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +105,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172087.jpg" />
 </div>
 
 
@@ -31,7 +130,7 @@ AIDA64 Extreme Edition 6.92.6616 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172088.jpg" />
 </div>
 
 
@@ -55,7 +154,7 @@ Viber 21.2.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172091.jpg" />
 </div>
 
 
@@ -82,7 +181,7 @@ Nitro Pro 14.15.0.5 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172093.jpg" />
 </div>
 
 
@@ -106,7 +205,7 @@ FBackup 9.8.826 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172097.jpg" />
 </div>
 
 
@@ -130,7 +229,7 @@ Windows Firewall Control 6.9.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172098.jpg" />
 </div>
 
 
@@ -154,7 +253,7 @@ PDF Expert 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172099.jpg" />
 </div>
 
 
@@ -179,7 +278,7 @@ XYplorer 25.00.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172101.jpg" />
 </div>
 
 
@@ -203,7 +302,7 @@ Radiant Photo 1.1.2.318 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172102.jpg" />
 </div>
 
 
@@ -227,7 +326,7 @@ Zoner Photo Studio X 19.2309.2.501 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172104.jpg" />
 </div>
 
 
@@ -251,7 +350,7 @@ Skype 8.106.0.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172106.jpg" />
 </div>
 
 
@@ -275,7 +374,7 @@ DirPrintOK 6.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172107.jpg" />
 </div>
 
 
@@ -299,7 +398,7 @@ Audio Hijack 4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172111.jpg" />
 </div>
 
 
@@ -324,7 +423,7 @@ Q-Dir 11.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172114.jpg" />
 </div>
 
 
@@ -349,7 +448,7 @@ doPDF 11.9.432 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172118.jpg" />
 </div>
 
 
@@ -374,7 +473,7 @@ WinCatalog 2024.3.2.1018 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172122.jpg" />
 </div>
 
 
@@ -398,7 +497,7 @@ Project Office X Pro 1.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172132.jpg" />
 </div>
 
 
@@ -422,7 +521,7 @@ Movie Thumbnails Maker 4.4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172134.jpg" />
 </div>
 
 
@@ -446,7 +545,7 @@ Sublime Text 4.0 Build 4159 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172138.jpg" />
 </div>
 
 
@@ -471,7 +570,7 @@ SpamSieve 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172139.jpg" />
 </div>
 
 
@@ -496,7 +595,7 @@ EazyDraw 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172142.jpg" />
 </div>
 
 
@@ -520,7 +619,7 @@ Debit & Credit Premium 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172143.jpg" />
 </div>
 
 
@@ -532,105 +631,6 @@ Debit & Credit Premium 6.2.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40C201A933D333FFD31C374ABA86BC9D847696D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670391   (172144) от 20.10.2023
-
-Folder-Factory 7.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folders Factory — сделай уникальными свои папочки в OS X.
-«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
-Речь идет о замечательном приложении — Folders Factory.
-Единственная и главная функция этой программы — создание уникальных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2023Разработчик: © 2012-2023 TryBestПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A95AED783784036D7A36E1EA1F697DC18B1667F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661882   (172161) от 19.10.2023
-
-Ad Infinitum (2023) [Ru/Multi] (1.0.4.270196/dlc) Repack Other s [Supporter Edition]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда реальность становится кошмаром, кошмары становятся реальностью. В этом психологическом хорроре вам предстоит сразиться с чудовищами, которые поселились в вашем сознании. Сможете ли вы сохранить рассудок? Вы оказались заперты в стенах собственного дома и лабиринте траншей Первой мировой войны. Теперь вы пытаетесь собрать воедино обрывки собственного прошлого (   Читать дальше...   )Тип издания: RepackРазработчик: HekateЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71D9E9DE32F9645A9953D28857B312E6C04D94D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670092   (172162) от 19.10.2023
-
-Rufus 4.3 (Build 2090) Stable + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FAC5A6453EF4ED33DC42D4EB65796553E7E43B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670188   (172172) от 19.10.2023
-
-Reg Organizer 9.31 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641DA18EA60AEE0EF3A315D3C03F6CC5341DB0AC
 ```
 
 

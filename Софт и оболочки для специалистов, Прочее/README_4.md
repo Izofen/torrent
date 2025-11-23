@@ -6,7 +6,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44256.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SimOne (Версия для радиолюбителей) 3.2.1 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44441.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Veeam Backup & Replication 12.2.0.334 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44686.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FX Draw Tools 24.08.29 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45156.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Gibbscam 2024 v24.0.71 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46507.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Unit Converter 16.08.2024 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46618.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Cadence OrCAD X 23.10.006 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46947.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ MCS Drivers Disk 24.5.13.2157 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49967.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Altair Twin Activate 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50366.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Hex Editor Neo Ultimate 7.46.00.8715 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50683.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PTC Mathcad Prime 10.0.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50808.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ ETAP 19.0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51010.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ NVIDIA GeForce Desktop Game Ready 475.06 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51104.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ COMSOL Multiphysics 6.2 Build 339 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51117.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Proteus Professional 8.17 SP2 Build 37159 by nekto78 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51122.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Crocodile Technology 3D 609 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51170.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sprint-Layout 6.0 DC 13.06.2024 RePack (& Portable) by NikZayatS2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51241.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinToUSB Technician 8.9.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51277.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ WinNTSetup 5.3.5.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51317.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ SamDrivers 24.7 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51333.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ SamDrivers 24.7 Expert [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51370.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51413.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Windows 10 PE x64 by AnkhTech V10 (28.06.2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51461.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ MEmu 9.1.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51942.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Android Studio Koala | 2024.1.1 Build #AI-241.15989.150.2411.11948838 + Portable
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52631.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Hallo northern sky 4.3.2 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53112.jpg" />
 </div>
 
 

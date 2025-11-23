@@ -6,7 +6,7 @@ Auslogics BoostSpeed 13.0.0.7 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57910.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57911.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Perfectly Clear WorkBench 4.6.1.2658 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57916.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57918.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Photo Lab PRO v3.13.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57919.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Icecream Screen Recorder Pro 7.40 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57927.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ n-Track Studio Suite 10.1.0.8642 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57928.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ High-Logic FontCreator Professional 15.0.0.2974 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57931.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DVDFab StreamFab 6.1.7.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57935.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Fast Screen Recorder 2.0.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57943.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Topaz Video AI 5.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57954.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57958.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57960.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CyberLink PowerDirector 2024 Ultimate 22.4.2829.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57967.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Substance 3D Modeler 2024 1.9.0.18 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57969.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Auslogics Driver Updater 1.26.0.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57971.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ StartAllBack 3.7.9 build 4907 (DC-01-05-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57973.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57984.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ v2rayN 6.43 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58009.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 (x64) Portable by 7997 [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58018.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Fast Video Cutter Joiner 4.6.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58019.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Wondershare PDFelement 10.3.12.2738 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58022.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ashampoo Music Studio 10.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58027.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ant Download Manager Pro 2.11.4  Build 87517 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58031.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CyberLink AudioDirector Ultra 14.4.4024.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58033.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:97540CBC418F92CB6DC092868D1F9C785B69B2D4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58040.jpg" />
 </div>
 
 

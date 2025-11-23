@@ -1,3 +1,87 @@
+###  Публикация: 1680882   (132713) от 03.12.2023
+
+Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv, 2023, Century Media[MP3|320 Kbps] <Doom-Death Metal, Middle Eastern Folk, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabool (The Flood) (7:15)
+02. The Storm Still Rages Inside (9:05)
+03. Like Orpheus (4:38)
+04. The Kiss of Babylon (6:18)(   Читать дальше...   )Жанр: Doom-Death Metal, Middle Eastern Folk, Progressive MetalПродолжительность: 01:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D927F3F1D708DACA5075AA4BE60D1254745861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681543   (132715) от 03.12.2023
+
+Sandboxie 5.67.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1917434D0AEAC5972C0BDB28657DC24F908719AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595276   (132716) от 28.12.2012
+
+VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 AD Men's - Жара (extended mix)
+02 Aerofeel5 - Disco In The Hell (original mix)
+03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
+04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
+05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+06 LTN - Never Let Me Go (Beat Service remix)
+07 MMDance feat. Dj Smash - Суббота
+08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
+09 Горячий шоколад - Стены (Andry Makarov Club remix)
+10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681473   (132717) от 03.12.2023
 
 Deacon Street Project - One + Two (2023) 2 x CD, Compilation, Reissue, Remastered, 2023, Pride & Joy Music [FLAC|Lossless|image + .cue] <AOR, Arena Rock, Hard Rock>
@@ -6,7 +90,7 @@ Deacon Street Project - One + Two (2023) 2 x CD, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132717.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132719.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132720.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132721.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132723.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132725.jpg" />
 </div>
 
 
@@ -170,7 +254,7 @@ Nitrate - Feel The Heat (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132727.jpg" />
 </div>
 
 
@@ -197,7 +281,7 @@ Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132728.jpg" />
 </div>
 
 
@@ -224,7 +308,7 @@ magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132730.jpg" />
 </div>
 
 
@@ -248,7 +332,7 @@ magnet:?xt=urn:btih:B3D33490CB9A427AAFA6D9271B5643903F7994F0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132731.jpg" />
 </div>
 
 
@@ -272,7 +356,7 @@ magnet:?xt=urn:btih:D8288387F71CA68A5DDE4F78C307A8C66FDD8236
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132732.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ New year wallpapers 2013 (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132734.jpg" />
 </div>
 
 
@@ -320,7 +404,7 @@ magnet:?xt=urn:btih:DA1AE9D3030B4C4CB37EA5A22DE2A9EA228E6634
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132738.jpg" />
 </div>
 
 
@@ -345,7 +429,7 @@ EmEditor Professional 12.0.8 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132739.jpg" />
 </div>
 
 
@@ -372,7 +456,7 @@ EmEditor Professional способен открывать очень больш�
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132740.jpg" />
 </div>
 
 
@@ -398,7 +482,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132741.jpg" />
 </div>
 
 
@@ -425,7 +509,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -452,7 +536,7 @@ Slice of Sorrow - Covered with Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Occul
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132743.jpg" />
 </div>
 
 
@@ -479,7 +563,7 @@ magnet:?xt=urn:btih:349EEC99EC82660175AA87D8D34733684CC4AAB0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132744.jpg" />
 </div>
 
 
@@ -503,7 +587,7 @@ magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132745.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ magnet:?xt=urn:btih:CBE9BFA5CCBDB7AE3B83CCAECD0A47F5A17337F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132746.jpg" />
 </div>
 
 
@@ -553,7 +637,7 @@ magnet:?xt=urn:btih:A47525B6CF47FB2AFD59D4ED72F366487141EAB7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132748.jpg" />
 </div>
 
 
@@ -578,7 +662,7 @@ magnet:?xt=urn:btih:CDBDA619176EB0DABF18A36353D1916DB51BF1DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132751.jpg" />
 </div>
 
 
@@ -589,84 +673,6 @@ magnet:?xt=urn:btih:CDBDA619176EB0DABF18A36353D1916DB51BF1DB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81DAC0A8CE0608B18FAFE9B814A8F5B04E044732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595306   (132752) от 28.12.2012
-
-Журнал | Тайны и загадки №1 [2013] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны и загадки - исторические сенсации, скандальные расследования, загадочные артефакты, а также сверхъестественное, мистическое, непознанное для тех, кто привык быть в курсе самой интересной информации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F123BD78F0DEC54980AC86447669AFF8089AF330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681268   (132753) от 03.12.2023
-
-Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы [00:03:05]
-02. Тонуть [00:02:37]
-03. Я так страдал (нет) [00:02:27]
-04. Герой [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681280   (132755) от 03.12.2023
-
-Аллюзион - Роза Ветров (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последний рассвет [00:04:00]
-02. Секс рефлекс [00:03:23]
-03. Voyager-1 [00:03:46]
-04. Путь важнее цели [00:03:57](   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAB0EA667931EFD63C90351748A709474B31BAB
 ```
 
 

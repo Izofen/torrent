@@ -1,3 +1,96 @@
+###  Публикация: 477365   (86082) от 03.04.2012
+
+Познер. Интервью с Джеймсом Кэмероном! Новый сезон-2012!SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86082.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Кино должно идти от сердца, для этого нужна страсть, - заявил в эфире программы "Познер" кинорежиссер Джеймс Кэмерон. - Если твоя цель - только заработать денег, ты не создашь ничего интересного как художник, ты должен делать только то, во что веришь". Вместе с тем, режиссер признался, что гордится рекордными сборами своих фильмов: "Это говорит о том, что мой подход однозначно работает, что мое понимание того, чего люди хотят от индустрии развлечений – это правильное понимание".
+
+Вообще, по мнению Джеймса Кэмерона, для режиссера самое главное – "быть понятым, донести свою идею". "Очень важно, чтобы фильм сработал, оказал сильное воздействие на людей, и этого нужно добиваться", - подчеркнул он.
+
+По словам кинорежиссера, он всегда старается в своих картинах "совмещать экшн и насилие с неким моральным компасом". В качестве примера он привел картину "Аватар": "Я пытался высказать свои личные убеждения, но если бы я говорил, что это фильм об (   Читать дальше...   )Жанр: Телепередача, ДокументальныйПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BF42EA0F75ADA5D21476A06A9632A496A5D371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475310   (86084) от 03.04.2012
+
+Progenitor - Electro Bite (2010) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distorted Insticts [09:42]
+02. Nervous Touch [07:53]
+03. Psychologic [08:37]
+04. Echoes [08:33]
+05. Disco Nights [07:20]
+06. Electro Bite [08:27]
+07. Ultimate Trip [09:04]
+08. Circles [07:40]
+09. Exluding The Possibilities [09:10]2010Жанр: Psychedelic / ProgressiveПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476178   (86085) от 03.04.2012
+
+Debout sur le Zinc - La fuite en avant (2011) [MP3|256 кб/с]<Cabaret, Chanson, Klezmer>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. La fuite en avant
+2. Sur le fil
+3. Oublie-moi
+4. Comme un frisson
+5. Le cran
+6. Belle parmi les belles
+7. Avance sans moi
+8. L'équilibriste
+9. Indécis
+10. J'ai déjà donné(   Читать дальше...   )Жанр: Cabaret, Chanson, KlezmerПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34C6A6723DE0FEF563F2EC11B77E010BDFE075D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477409   (86093) от 03.04.2012
 
 [Wallpapers] Money  Desktop Wallpapers
@@ -6,7 +99,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86093.jpg" />
 </div>
 
 
@@ -34,7 +127,7 @@ magnet:?xt=urn:btih:582017CBA4D036FB4591CF2F9B16ED81735B05E2
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86094.jpg" />
 </div>
 
 
@@ -62,7 +155,7 @@ magnet:?xt=urn:btih:DEEE28F25921660F889711E96CEEECBAF08E803F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86095.jpg" />
 </div>
 
 
@@ -86,7 +179,7 @@ magnet:?xt=urn:btih:2877B4B07647A5B961E5DF82872D76A77064CEB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86096.jpg" />
 </div>
 
 
@@ -110,7 +203,7 @@ magnet:?xt=urn:btih:2877B4B07647A5B961E5DF82872D76A77064CEB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86097.jpg" />
 </div>
 
 
@@ -134,7 +227,7 @@ magnet:?xt=urn:btih:2877B4B07647A5B961E5DF82872D76A77064CEB3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86098.jpg" />
 </div>
 
 
@@ -158,7 +251,7 @@ magnet:?xt=urn:btih:91C6330DBBCF7F51860D475AB5445F581A9AFCC4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86100.jpg" />
 </div>
 
 
@@ -182,7 +275,7 @@ magnet:?xt=urn:btih:91C6330DBBCF7F51860D475AB5445F581A9AFCC4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86101.jpg" />
 </div>
 
 
@@ -207,7 +300,7 @@ School house Shuffle (P) [En] 2008
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86102.jpg" />
 </div>
 
 
@@ -231,7 +324,7 @@ magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86103.jpg" />
 </div>
 
 
@@ -256,7 +349,7 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86104.jpg" />
 </div>
 
 
@@ -289,7 +382,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86105.jpg" />
 </div>
 
 
@@ -322,7 +415,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86106.jpg" />
 </div>
 
 
@@ -346,7 +439,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86107.jpg" />
 </div>
 
 
@@ -370,7 +463,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86112.jpg" />
 </div>
 
 
@@ -395,7 +488,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86113.jpg" />
 </div>
 
 
@@ -420,7 +513,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86114.jpg" />
 </div>
 
 
@@ -453,7 +546,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86117.jpg" />
 </div>
 
 
@@ -477,7 +570,7 @@ magnet:?xt=urn:btih:259FCDD859626FB146A498B1C0F4A55B9293AF09
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86118.jpg" />
 </div>
 
 
@@ -501,7 +594,7 @@ magnet:?xt=urn:btih:C010D4AE31A4B6699D9690643A3B40F580CE5A6A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86120.jpg" />
 </div>
 
 
@@ -527,7 +620,7 @@ magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86121.jpg" />
 </div>
 
 
@@ -551,7 +644,7 @@ magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86122.jpg" />
 </div>
 
 
@@ -584,7 +677,7 @@ magnet:?xt=urn:btih:7B6DACAC10881C24E4B18A164524DCC29889E07A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86123.jpg" />
 </div>
 
 
@@ -604,88 +697,6 @@ magnet:?xt=urn:btih:7B6DACAC10881C24E4B18A164524DCC29889E07A
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477676   (86124) от 03.04.2012
-
-Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come And Get It (6:18)
-02. Electric Rattlesnake (6:20)
-03. Wish You Were Dead (4:19)
-04. Black Daze (3:55)
-05. Save Yourself (3:44)
-06. Drop The Hammer Down (6:25)
-07. 21ST Century Man (4:13)
-08. Old Wounds, New Scars (4:12)
-09. All Over But The Shouting (5:30)
-10. Good Night (5:37)2012Жанр: Thrash MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F009844E3E78FBEC1B78DDF8F74D5F857B8394A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477652   (86128) от 03.04.2012
-
-Роберт Льюис Стивенсон | Странная история доктора Джекила и мистера Хайда [2010] [MP3, Всеволод Кузнецов и др.]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный «черный роман». Жемчужина творческого наследия Роберта Льюиса Стивенсона.
-В Лондоне происходят странные события — некий демонический человек по имени Эдвард Хайд совершает ряд отвратительных проступков, бессмысленных и жестоких. Выясняется, что он каким-то образом тесно связан с уважаемым в обществе доктором Генри Джекилом. За запертой дверью лаборатории (   Читать дальше...   )Жанр: ФантастикаИздательство: Радио России
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C2AD9EB6BE86F295BDC562C2C27ADF5107ADDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477724   (86130) от 03.04.2012
-
-Sters (P) [En] 2012
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sters - некие существа, обитающие в домах с привидениями, кладбищах, темных лесах и других мрачных местах. Вашей задачей является охота на них. Более 150 уровней в 10 различных местоположениях ждут Вас. (   Читать дальше...   )Тип издания: ПираткаЖанр: Аркада, Логическая, Шарики, Три в рядЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 ```
 
 

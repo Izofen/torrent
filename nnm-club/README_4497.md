@@ -1,3 +1,123 @@
+###  Публикация: 1273128   (139149) от 30.12.2018
+
+Достать Санту / Get Santa (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец и сын обнаруживают в своём гараже Санта-Клауса, потерпевшего крушение в результате неудачного перелёта и теперь скрывающегося от полиции. Перед героями встаёт самая ответственная задача на свете: спасти Рождество. Для этого им придется пройти сквозь огонь, воду и медные трубы: пуститься на поиски оленя Рудольфа, совершить путешествие в далёкую Лапландию, наладить (   Читать дальше...   )Производство: США, Великобритания / Film i Väst, Scott Free ProductionsЖанр: Комедия, семейныйРежиссер: Кристофер СмитАктеры: Джим Бродбент, Рейф Сполл, Кит Коннор, Юэн Бремнер, Уорвик Дэвис, Стивен Грэм, Джоэнна Скэнлэн, Джоди Уиттакер, Нонсо Анози, Мэтт КингПеревод: Многоголосый закадровый, профессиональный (СВ Студия)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D880FF9457D7A3F4DAEEA68691AD23F4B9A4AED4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970619   (139150) от 31.12.2015
+
+Ф. Бэкон | Сочинения [2 тома] (1971-1972) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том включает одно из основных произведений выдающегося английского материалиста, основоположника «индуктивного метода» в изучении рациональных наук, Фрэнсиса Бэкона (1561 - 1626) — «О достоинстве и приумножении наук», в котором он пропагандирует научное знание, разрабатывает классификацию наук и их методологию, критикует суеверии и схоластический способ мышления. (   Читать дальше...   )Жанр: История, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8966BF70CB742F130273C610A435A824E6608F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436020   (139152) от 30.12.2020
+
+Растровый клипарт - Girls in black lace underwear stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки в черном кружевном нижнем белье, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5333x8000-8000x5339
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EF739AF0BB55BE74A554C0C88032EEDA3046B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087546   (139153) от 31.12.2016
+
+Жюль Верн | Треволнения одного китайца в Китае (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой книги — молодой человек, получивший блестящее образование, изнывает от безделья. Отсюда — апатия, черная меланхолия, неудовлетворенность жизнью. «Испытание несчастьем!» — вот что нужно главному герою. И наш герой отправляется в путешествие…Жанр: ПриключенияПродолжительность: 04:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D9AF4E0064BDD298015F3F938E808187F689AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435744   (139156) от 30.12.2020
+
+Brutal Combat v1.0 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая игра – квест «Brutal Combat» является сюжетной, потому как все ваши решения и выборы влияют на итоговую концовку, которых вы можете получить несколько, в зависимости от количества прохождений. Выбрав одного из персонажей (Саб-Зиро или Скорпиона), вам предстоит улучшать его навыки и способности, а также модернизировать внешний вид игрока. Исследуйте (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.11.2020Разработчик: SadirПоддерживаемая ОС: Android 4.4+Жанр: Экшены, ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DAA967D92632BD7930C7C907497A660C7371B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970413   (139157) от 31.12.2015
 
 QQ Browser 9.2.1.5748.400 [Cn]
@@ -6,7 +126,7 @@ QQ Browser 9.2.1.5748.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139157.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ magnet:?xt=urn:btih:B3EDAC4C580A52EA1CDC2E8CA06BBA2785F6B7C8
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139158.jpg" />
 </div>
 
 
@@ -55,7 +175,7 @@ magnet:?xt=urn:btih:50D26BFE24D35407E249B5CF2EAC4DA35B2BA3E6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139159.jpg" />
 </div>
 
 
@@ -79,7 +199,7 @@ VA - That Reggae Life (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139161.jpg" />
 </div>
 
 
@@ -106,7 +226,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139163.jpg" />
 </div>
 
 
@@ -130,7 +250,7 @@ magnet:?xt=urn:btih:A89C6169431F977BF55771C758DD42B4C1951CD3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139164.jpg" />
 </div>
 
 
@@ -154,7 +274,7 @@ VA - Украинские песенки Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139166.jpg" />
 </div>
 
 
@@ -181,7 +301,7 @@ magnet:?xt=urn:btih:C6ED508E3A254C1107DCF9A71926EBAF5E648DCE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139167.jpg" />
 </div>
 
 
@@ -205,7 +325,7 @@ VA - 100 Trance Melody Native (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Em
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139168.jpg" />
 </div>
 
 
@@ -232,7 +352,7 @@ magnet:?xt=urn:btih:F1B4D9A15E850BB9FA4A0B4C3D23E7C0C8E6766A
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139169.jpg" />
 </div>
 
 
@@ -257,7 +377,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139170.jpg" />
 </div>
 
 
@@ -281,7 +401,7 @@ Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139172.jpg" />
 </div>
 
 
@@ -308,7 +428,7 @@ VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139173.jpg" />
 </div>
 
 
@@ -335,7 +455,7 @@ magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139174.jpg" />
 </div>
 
 
@@ -359,7 +479,7 @@ magnet:?xt=urn:btih:9F9B3D2E1C0BF3B7F9ACAC57B928ED4038427575
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139175.jpg" />
 </div>
 
 
@@ -384,7 +504,7 @@ magnet:?xt=urn:btih:D8A4F5BBC2A14529386BF4E80B44DE95C64CD6C3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139176.jpg" />
 </div>
 
 
@@ -408,7 +528,7 @@ magnet:?xt=urn:btih:67AA5C7814AD9CF39FB59FEAB8EDF7A8C6EF82A6
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139177.jpg" />
 </div>
 
 
@@ -432,7 +552,7 @@ magnet:?xt=urn:btih:67AA5C7814AD9CF39FB59FEAB8EDF7A8C6EF82A6
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139178.jpg" />
 </div>
 
 
@@ -465,7 +585,7 @@ magnet:?xt=urn:btih:74A4678059CB19618AF6EA8C10501B27E912F194
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139179.jpg" />
 </div>
 
 
@@ -489,7 +609,7 @@ magnet:?xt=urn:btih:8DE4CD55E104CA48A03CC15FD43BD4E9C93800C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139180.jpg" />
 </div>
 
 
@@ -513,7 +633,7 @@ Adriano Celentano - Star-Discothek (1978) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139181.jpg" />
 </div>
 
 
@@ -533,130 +653,6 @@ Adriano Celentano - Star-Discothek (1978) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB70B3E669F7FFB0D57E0C85EF4D5472F700DAEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273151   (139182) от 30.12.2018
-
-Квартирник на НТВ у Маргулиса. Евгений Маргулис (12.29.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом специальном выпуске самого неформатного музыкального шоу страны впервые место приглашенного гостя занял сам Евгений Маргулис! Именитый ведущий и талантливый музыкант исполнил свои популярные хиты — «Зато мой друг лучше всех играет блюз», «Шанхай блюз», а также представил свой новый зажигательный альбом, который никого не оставит равнодушным. Кроме того, блюзмен (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8A70448AC0183C8334DF53C115856EB3250460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349076   (139183) от 30.12.2019
-
-Кто твоя бабушка, чувак? / C'est quoi cette mamie?! (2019) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аврора наслаждается богатой жизнью в своих апартаментах на Лазурном Берегу во Франции. Вечеринки, друзья, путешествия, и самое важное — свое расписание дня. В один день дочери отправляют погостить к ней семь внуков от 6-ти до 18 лет.Производство: Франция, Бельгия / 6ter, Bonne Pioche, Centre National de la Cinématographie (CNC)Жанр: КомедияРежиссер: Габриэль Жюльен-ЛаферьеАктеры: Шанталь Ладезу, Жюли Гайе, Тьерри Нёвик, Жюли Депардье, Люсьен Жан-Батист, Клаудия Тагбо, Филипп Катрин, Арие Эльмалех, Нино Киртадзе, Садио ДиаллоПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1C4B0F9AE8271F187137F658A4E3959F612203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520696   (139184) от 30.12.2021
-
-Blonker - Compilation (2021) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aranjuez
-02. Straight Ahead
-03. Morning Breeze
-04. Travelling(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A36830060B595832CEE61732F59D1915020857A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273075   (139185) от 30.12.2018
-
-Фрэнсис Эшкрофт | На грани возможного: Наука выживания (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых выдающихся женщин-ученых мира Фрэнсис Эшкрофт поднималась на Килиманджаро и погружалась с аквалангом, прошла что-то вроде «крещения огнем» в горячей японской купальне и даже спасла жизнь человеку, оказавшемуся в ледяной воде. Ее книга не только увлекательное чтение и научное сочинение, но и практическое руководство по выживанию.
-И вполне возможно, она (   Читать дальше...   )Жанр: Зарубежная прикладная и научно-популярная литератураПродолжительность: 14:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E589986F64215DF547B29DA69924E79A72EECB22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679267   (139186) от 24.11.2023
-
-MathType 7.7.1.258 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139186.jpg" />
-</div>
-
-
-###  Подробнее
-
-MathType - это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. Design Science MathType применяется совместно с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения для создания формул в научных статьях, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2281ADA73E8FDC92E6D0BD49190BDE160AB69D33
 ```
 
 

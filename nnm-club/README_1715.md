@@ -6,7 +6,7 @@ Turbo Studio 24.8.12 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44945.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44946.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44947.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44948.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:48425CFAF75ADA71A6D283FEF3A33DCB354518B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44949.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ PotPlayer 240827 (1.7.22318) + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44950.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CareUEyes 2.4.4.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44951.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Action SuperCross (1997) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44952.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FABD215AD9D476FD498FDE4B39097A7D840078BF
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44953.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F22D900656F7B3D61D1E5D6C6280FF1703F4AFD7
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44954.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F3331F4C96B9C450FAE0F5F15B92DEB715BC3443
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44955.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44956.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44957.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ By Click Downloader Premium 2.4.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44958.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Office Tab Enterprise 15.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44959.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ By Click Downloader Premium 2.4.13 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44960.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ JetBrains PhpStorm 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44961.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6A61F1E6F50EE774910150C03F408113231F64D5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44962.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44963.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44964.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44965.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:4D570BB8259E485E1370BA2860B0BB519516473C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44966.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AF6C090D5A852AF756C91A56745D0B5A59CB9010
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44967.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ XnView MP 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44968.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Radiant Photo 1.4.1.509 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44969.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44970.jpg" />
 </div>
 
 

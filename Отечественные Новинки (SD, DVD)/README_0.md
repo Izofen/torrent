@@ -6,7 +6,7 @@
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248620.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248620.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0B10DB08038B277B8C13C534282AA8F9127F59FE
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250464.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250464.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0E485A64EB846C1B6F76D34CD033856A04B35C1C
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250863.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250863.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CFB73797B0CBF4E624A9A7EA771385442CDB9014
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257755.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257755.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F1CD8DA9CFD61E5C0559542BFB023C21520F959F
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257757.jpg" />
 </div>
 
 

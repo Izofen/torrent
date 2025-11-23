@@ -6,7 +6,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31493.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31608.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31627.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31671.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31687.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31697.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31728.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31729.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31747.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31782.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31816.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31826.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31900.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31901.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31910.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31942.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31947.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32016.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32035.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32040.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32043.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32082.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Slay the Princess - The Pristine Cut (2023) [Ru/Multi] (Build 16887603) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32087.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [Multi] (1.07) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32092.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32107.jpg" />
 </div>
 
 

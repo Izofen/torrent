@@ -1,3 +1,79 @@
+###  Публикация: 1694282   (121238) от 24.01.2024
+
+Ventoy 1.0.97 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ventoy - это инструмент с открытым исходным кодом для создания загрузочного USB-накопителя для файлов ISO/WIM/IMG/VHD(x)/EFI не требующий установки.
+С ventoy вам не нужно форматировать диск снова и снова, вам просто нужно скопировать файлы ISO/WIM/IMG/VHD(x)/EFI на USB-накопитель и загрузить их напрямую.
+Вы можете копировать много файлов за раз, и ventoy предоставит (   Читать дальше...   )Разработчик: longpandaЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C701EB40CCCFBAFDE7286642A2786D5028DEFBFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391458   (121239) от 24.01.2024
+
+Лев Толстой | Сказки. Басни (2008) [MP3, Вадим Максимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+Лев Толстой в сказках и баснях – это строгие и точные описания, которые всегда пользовались и будут пользоваться высоким спросом у любителей русской литературы. Сказки и басни Толстого заворожат любого, ну а дети будут перечитывать (   Читать дальше...   )Жанр: Русская литература, классика, сказка, басня, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 05:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33E3A5DD08FB94D7F8A1AC0177AC03017FE97DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034031   (121240) от 24.01.2024
+
+Уиджи: Доска Дьявола / Ouija (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания друзей вынуждена столкнуться с их самыми страшными кошмарами, после того, как пробуждает темные силы с помощью спиритической доски.Производство: США / Universal PicturesЖанр: УжасыРежиссер: Стайлз УайтАктеры: Оливия Кук, Ана Кото, Дарен Кагасофф, Бьянка А. Сантос, Дуглас Смит, Шелли Хенниг, Сьерра Хойерманн, Санни Мэй Эллисон, Лин Шэй, Клаудия КацПеревод: Дублированный (BD EUR)Язык субтитров: Русские, английскиеПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE31D552C9E1E766AF985ED129048A78C4CDE7BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694211   (121241) от 24.01.2024
 
 OTUS , Алексей Кулиничев, Роман Помазанов, Иван Бабенко и др. | Дизайн сетей ЦОД (2023) WEB-DL [RU]
@@ -6,7 +82,7 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121241.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:AEABAB241CB7A3F5965BB7286C81EEB357D61B78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121242.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ Corona Renderer 11.1 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121243.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ iTop VPN 5.3.0.5103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121244.jpg" />
 </div>
 
 
@@ -106,7 +182,7 @@ Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121245.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ Misha Tsiganov - Playing With The Wind (2018) Criss Cross Jazz [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121246.jpg" />
 </div>
 
 
@@ -160,7 +236,7 @@ Debit & Credit Premium 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121247.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ Cardhop 2.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121248.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ magnet:?xt=urn:btih:BF5171816F5823BD9B99FBD528EF41A8C6108337
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121249.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121250.jpg" />
 </div>
 
 
@@ -261,7 +337,7 @@ Iris 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121251.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ Sound Siphon 3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121252.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ Text Workflow 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121253.jpg" />
 </div>
 
 
@@ -334,7 +410,7 @@ Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121254.jpg" />
 </div>
 
 
@@ -361,7 +437,7 @@ Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121255.jpg" />
 </div>
 
 
@@ -388,7 +464,7 @@ Abysmal Grief - Feretri (2013) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121256.jpg" />
 </div>
 
 
@@ -415,7 +491,7 @@ Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121257.jpg" />
 </div>
 
 
@@ -442,7 +518,7 @@ AppKiller 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121258.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ iNet Network Scanner 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121259.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ Jack Russell & Tracii Guns - Medusa (2024) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121260.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ magnet:?xt=urn:btih:C0AA70B974C66570715D56EC50A1EB7B47E39F95
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121261.jpg" />
 </div>
 
 
@@ -543,7 +619,7 @@ magnet:?xt=urn:btih:6D694FD6A7010374CA1D22C9F133675A940542FC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121262.jpg" />
 </div>
 
 
@@ -569,7 +645,7 @@ VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121263.jpg" />
 </div>
 
 
@@ -583,84 +659,6 @@ VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8EBE46A3F63174ADFD34692000B245F5FD6B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694004   (121264) от 23.01.2024
-
-SponsorBlock for YouTube 5.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121264.jpg" />
-</div>
-
-
-###  Подробнее
-
-SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29ED34975E0D59F4438ADE60BFA1AC48D250B1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694040   (121265) от 23.01.2024
-
-The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Now And Forever (00:03:34)
-02 - Wolves At The Door (00:05:30)
-03 - Cry Out Loud (00:07:29)
-04 - Rattle The Cage (00:04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49991E16E6783C4484F942824EE3C47ABE81F82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693987   (121266) от 23.01.2024
-
-Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hill [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last [3:58]
-02. Moonglow (feat. Jeff Steinberg Orchestra) [3:48]
-03. Strangers in the Night (feat. Denis Solee) [3:27]
-04. As Time Goes By [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
 ```
 
 

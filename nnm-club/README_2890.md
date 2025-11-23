@@ -1,3 +1,75 @@
+###  Публикация: 474038   (84836) от 27.03.2012
+
+Воин / Warrior (2011) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Младший сын спившегося боксера возвращается домой, чтобы отец тренировал его для предстоящего турнира по боевым искусствам. Однако, на этом пути бойцу придется столкнуться со своим старшим братом.Жанр: Боевик, Драма, СпортРежиссер: Гэвин О’КоннорАктеры: Джоэл Эдгертон, Том Харди, Ник Нолти, Дженнифер Моррисон, Фрэнк Грилло, Кевин Данн, Максимилианно Эрнандез, Брайан Коллен, Сэм Шеридан, Фернандо ЧиенПеревод: Многоголосый закадровый профессиональный + одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:19:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473970   (84837) от 27.03.2012
+
+[XBox360] FIFA Street [RUS] (RegionFree) (XGD2) (2012)
+
+>>След.
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84837.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIFA Street – самый аутентичный уличный футбол в истории интерактивных развлечений, созданный разработчиками прославленной серии EA SPORTS FIFA с учетом пожеланий фанатов. Окунитесь в захватывающую атмосферу, где все – от снаряжения и мест проведения матчей до музыки – соответствует культуре и духу уличного футбола. Благодаря революционному игровому движку FIFA и системе управления Street Ball игра FIFA Street предлагает внушительный арсенал стилей ведения мяча и финтов, способных украсить любой матч. Неважно, играете вы в легкий футбол «панна», как это делают в Амстердаме, или предпочитаете жесткий лондонский вариант – вам наверняка понравится точность управления и аутентичная атмосфера матчей. Играйте, где вздумается: от парковок и парков до площадок престижных чемпионатов по мини-футболу 5 на 5. Пригласите в команду игроков лучших мировых клубов и звезд уличного футбола из более чем 35 уголков земного шара или же соревнуйтесь с ними.Разработчик: EA CanadaЖанр: SportsЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309FA27B297CC932F80FBD108478AA7E74CDD7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474090   (84838) от 27.03.2012
+
+Resident Evil 5 [Ru] (Lossless RePack) 2009 | Naitro
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный солдат Крис Редфилд, хорошо известный игрокам по предыдущим частям Resident Evil, не оставляет надежды стереть с лица земли все следы деятельности организации, которая уже несколько десятков лет занимается разработками биологического оружия. До сих пор все исследования по созданию армии неуязвимых монстров кончались неудачами, однако безумные ученые не теряют оптимизма и продолжают проводить жестокие эксперименты на живых людях. В поисках истины главный герой отправляется в небольшое африканское поселение и обнаруживает сотни людей, пораженных очередным экспериментальным вирусом. Бедняги изменились не только внешне, но и внутренне: преследуемые жестоким голодом, они нападают на все, что движется. При этом вирус превратил больных в идеальных убийц, сделав их тела гораздо сильнее и выносливее. И очень скоро Крису и его напарнице Шеве Аломар придется встретиться с серьезными противниками, мало напоминающими безмозглых мертвяков из предыдущих игр Resident Evil.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351996372CBA6E8EC0454A3BCDA506459058D7B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474310   (84842) от 28.03.2012
 
 Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
@@ -6,7 +78,7 @@ Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84842.jpg" />
 </div>
 
 
@@ -37,7 +109,7 @@ magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84844.jpg" />
 </div>
 
 
@@ -61,7 +133,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84848.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84849.jpg" />
 </div>
 
 
@@ -115,7 +187,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84851.jpg" />
 </div>
 
 
@@ -139,7 +211,7 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84853.jpg" />
 </div>
 
 
@@ -172,7 +244,7 @@ VA - Relax (Compiled by Nicolo) (2011) [FLAC|Lossless]<Ambient, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84855.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ VA - Bio - Hazard Xplorationz (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84856.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84858.jpg" />
 </div>
 
 
@@ -262,7 +334,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84859.jpg" />
 </div>
 
 
@@ -290,7 +362,7 @@ magnet:?xt=urn:btih:691AB1B8396C0E00A67851A15F9D586B18547077
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84860.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84861.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84867.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:81FBA50480AF0D98E8EADEF2CC76F4BC7B822385
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84873.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84874.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84875.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:B6435D46DF08C33E6F62671A0C9B95C6C07DE9CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84876.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84878.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84880.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ magnet:?xt=urn:btih:25C8DFBC0CAF3A00F94662428469E32AF1DE897F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84881.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84883.jpg" />
 </div>
 
 
@@ -586,7 +658,7 @@ magnet:?xt=urn:btih:F8EF6FE6C73B709C62C80825D30D46C541C19B3B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84886.jpg" />
 </div>
 
 
@@ -611,7 +683,7 @@ magnet:?xt=urn:btih:9F0578D6B5D37F2D11B774336A0B18A547322BDA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84887.jpg" />
 </div>
 
 
@@ -622,87 +694,6 @@ magnet:?xt=urn:btih:9F0578D6B5D37F2D11B774336A0B18A547322BDA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A78341359A679A4884F84CEEC519A69496B856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474729   (84888) от 28.03.2012
-
-Hamburg-audio - NUKLEAR 1.1.3 [английский]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hamburg-Audio Nuklear - синтезатор, первый виртуальный инструмент, основанный на усовершенствованном гранулярном пульсарном синтезе! У, так называемого, пульсарного синтеза есть некоторые особенности, благодаря которым можно получить интересные, довольно необычные звуки. Вместо цикличного использования стандартных форм волн (синусоида, пилообразная, прямоугольная и т.д.), пульсарные осцилляторы используют отдельные импульсы различных форм, повторяя их в медленном или быстром темпе. Этот метод даёт некоторые новые функции, например: поочередное панорамирование импульсов (для создания супер широкого звука), исключение определенных импульсов (подъём субгармоник) и др. В распоряжении четыре осциллятора, у каждого из которых есть параметр Pulsar. Установка этого параметра на нулевое значение вызовет растягивание импульов, т.е. на выходе получается результат, как и при использовании обычных осцилляторов. Соответственно, максимальная величина параметра даёт нам "чистый" пульсарный синтез. Так же имеются параметры (   Читать дальше...   )Разработчик: Hamburg-audioЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474812   (84890) от 28.03.2012
-
-Юрий Демидов | На рыбалке с комфортом [2011] [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга советов для любителей рыбной ловли. Как на рыбалке устроиться с комфортом. Столкнувшись несколько раз с трудностями при попытке закрепить два и более удилищ на мостках для ловли рыбы, решил изготовить некое приспособление, позволяющее избежать данных трудностей, оперативно развернуть снасти и приступить непосредственно к тому, ради чего вообще приехали на водоем - рыбалке.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608D77DF5E5806B1C969469A51C232533637AADA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474385   (84892) от 28.03.2012
-
-VA - Trance In Motion vol.111 (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alexander Popov - When The Sun (Original Mix)
-02.Mia Dahli - Need You Now (Kenneth Thomas Remix)
-03.Cerf, Mitiska & Jaren with Rank 1 - Witness (Original Club Mix)
-04.Omnia feat. Melissa Loretta - Halo (Original Mix)
-05.Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
-06.Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)
-07.David Forbes & Alan Nimmo - Century (Original Mix)
-08.Sean Tyas & Horny Sanchez - Redbox (Original Mix)
-09.Rafael Frost - Channel 4 (Original Mix)
-10.Rave Channel - Illusion (Original Mix)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56C21CECC5C0031F63433C8A75BB6454A0F0251
 ```
 
 

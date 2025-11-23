@@ -6,7 +6,7 @@ R-Studio Network  9.4 Build 191301 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 123.0.6312.123 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BCE814B5558571C65CD24CA31B5B8EDDB0F081DB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60017.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ R-Studio Network 9.4 Build 191301 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60019.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RogueKiller Anti-Malware 15.16.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60021.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Video AI 5.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60024.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Topaz Video AI 5.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60026.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ XviD4PSP 8.1.74 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60028.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Plus Messenger (Telegram+) v 10.10.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60029.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5A86DACF9BCF8332E0DF790095F9956D009EAB4E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60037.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ CamScanner 6.62.1.2403290000 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60042.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MEmu 9.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60044.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ TagScanner 6.1.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60045.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Display Driver Uninstaller 18.0.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60047.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Planet VPN 2.8.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60060.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Start11 Version 2.0.7.4 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60063.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ MiniTool Power Data Recovery 11.9 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60068.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Adobe Illustrator 2024 28.4.1.86 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60073.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4291 (Updated April 2024) by FaTaL [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60087.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A5C395E498937AC5AE9CF14AC6EB395CC27A382F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60092.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ GoodbyeDPI 0.2.2 Launcher 7.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60093.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Outline Client VPN 1.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60103.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VueScan Pro 9.8.32 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60114.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Serif Affinity Photo 2.4.2.2371 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60118.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wondershare UniConverter Ultimate 15.5.6.52 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60120.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Glary Utilities Pro 6.8.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60121.jpg" />
 </div>
 
 

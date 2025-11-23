@@ -1,3 +1,84 @@
+###  Публикация: 1701960   (115960) от 23.02.2024
+
+Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fingerprints (5:53)
+02. Scafender (7:13)
+03. Finish (8:44)
+04. Wrinkle (7:11)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27B6F3EF8B088089D98350B68939CB8915518A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701957   (115961) от 23.02.2024
+
+Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Pain, No Gain 04:06
+02. Conquer 03:08
+03. Hey Bro Can You Spot Me? 03:49
+04. Judgement Day 04:06(   Читать дальше...   )Жанр: Modern Groove MetalПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C918551E7726BF117621ED5E4DC40553976502EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702040   (115962) от 23.02.2024
+
+Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Game That You Don't Understand (3:34)
+02. Sea of Pain (3:30)
+03. Well of Life (4:29)
+04. Built to Destroy (3:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390EF00F7AC7BC2D39DB59C4422C50543D567027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701836   (115963) от 23.02.2024
 
 Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
@@ -6,7 +87,7 @@ Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115963.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ Donald Byrd & Gigi Gryce - The Complete Jazz Lab Sessions (1955 - 1957) 4CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115964.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115965.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ magnet:?xt=urn:btih:7AC6FE0E00B9C318F61BD2CBD9F5671EC1326867
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115966.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ magnet:?xt=urn:btih:74C149D244D3D0B0B80F9AB0B327CFA4020692C3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115967.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ The Erickson Syndicate - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115968.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:F8EE9890E19E21BBAA4D5583F71057FC7C34F9A2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115969.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115970.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115971.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ The Marian McPartland Trio - Live At Yoshi's Nitespot (1996) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115972.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ Avulsion - Dimensions of Darkness (1997) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115973.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ Dick Haymes - You'll Never Know: The Best Of Dick Haymes (1943 - 1950) 1990, MCA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115974.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ Avulsion - Indoctrination into the Cult of Death (2002) Reissue, 2003, Deathgasm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115975.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115976.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ Aiseesoft FoneEraser 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115977.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Amaranthe - The Catalyst (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115978.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115979.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ D'Luna - Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115980.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ magnet:?xt=urn:btih:E309CAAE3F65968A2F47C499BE063FA394E9FD67
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115981.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ CloudMounter 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115982.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115983.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115984.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ magnet:?xt=urn:btih:7FDB23EB37B634B0134807D0FA3B841564213CD7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115985.jpg" />
 </div>
 
 
@@ -592,81 +673,6 @@ magnet:?xt=urn:btih:7FDB23EB37B634B0134807D0FA3B841564213CD7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11452E748763557AFF7F435232551F05C7C359DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701942   (115986) от 23.02.2024
-
-OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент супердекомпрессии, поддерживает распаковку RAR, 7Z, ZIP, TAR, GZIP и более 100 форматов файловТип издания: macOS SoftwareРелиз состоялся: 22.02.2034Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27193A857203F42377580EB6F3272DFAA5C3A59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702001   (115987) от 23.02.2024
-
-Ace Frehley - 10,000 Volts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10,000 Volts
-02. Walkin' On The Moon
-03. Cosmic Heart
-04. Cherry Medicine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEDB458E7072927135C3EDAC7937939DAE54DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701906   (115988) от 23.02.2024
-
-TinkerTool System 7 v.7.98 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115988.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3325496CE73B744D23D9CB6E8514F8DCCF2700D9
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1657114   (192955) от 02.09.2023
+
+iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192955.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTranslate – один из лучших переводчиков и словарей. С ним вы сможете легко и быстро переводить тексты и общаться с людьми на 100 языках. А новый режим работы без подключения к интернету позволит не волноваться о расходах на роуминг.Тип издания: ProРелиз состоялся: 22.08.2023Разработчик: iTranslateПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657159   (193002) от 02.09.2023
+
+DIGI Clock Widget Plus 3.3.2 (build 25412) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193002.jpg" />
+</div>
+
+
+###  Подробнее
+
+DIGI Clock - отличный способ персонализировать виджет часов на рабочем столе мобильного устройства. Проект предлагается широкий выбор размеров, внешнего вида, цветов, шрифтов, форм и всего прочего, что поможет получить идеально подходящий вариант. Что будет целиком и полностью отвечать запросам самых требовательных людей. При этом сама программа во многом может быть (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 21.07.2023Разработчик: ForestTreeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066A338F78B4455D1023F739D770122B9B1A93C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456914   (193042) от 29.10.2022
+
+Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193042.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Калькулятор схем» - это автономный инструмент проектирования электроники для инженеров. Удобство, наглядность и возможность найти оптимальное решение за минимальное время. 140+ топологий аналоговых схем, 40+ электронных калькуляторов, 20+ замечаний по применению, логический решатель.
+Этот инструмент для проектирования электроники разработан инженером для инженеров (   Читать дальше...   )Тип издания: Full с Маркета (Paid)Релиз состоялся: 16.10.2022Разработчик: vdvПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский + русификация
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C312F887E1CB8806EEBB8CD77833A8C5AD558E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657119   (193051) от 02.09.2023
 
 WaveStudio (WaveEditor Record & Edit Audio) v1.109 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +79,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.109 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193051.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193051.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193493.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193493.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193554.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:4358E2D66F7777D903F8F6DF58E9DA7FD1533678
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193663.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193663.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ MultiTimer: МультиТаймер v1.10.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193666.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193666.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ InviZible Pro: Tor & Firewall v7.3.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193701.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193723.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193723.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193792.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193792.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193843.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193843.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ XY VPN - Security Proxy VPN 4.6.112 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193846.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193846.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:80B596B38DBAB261D56725C264964FEED304E0A6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193883.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193883.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ QR & Barcode Scanner / Сканер QR и штрих- кодов 2.5.39 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193892.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193892.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193956.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193997.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193997.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194025.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194025.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194044.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194044.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ jetAudio HD Music Player Plus 11.2.6 Mod by derrin [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194103.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194103.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ Truecaller: определитель номера 13.29.6 Mod by youarefinished 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194119.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194119.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ Truecaller BETA: определитель номера 13.30.5 Mod by LITEAPKS [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194120.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194120.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ Snap Camera HDR 8.10.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194157.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194157.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ Kodi 20.2 (Nexus) for Android [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194178.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194195.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194195.jpg" />
 </div>
 
 
@@ -537,7 +610,7 @@ SmartTube Next 18.92 (Stable) Mod by armanych [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194240.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194240.jpg" />
 </div>
 
 
@@ -548,78 +621,6 @@ SmartTube Next - неофициальный продукт представля�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC41B012D9ADBD7234FBDB342FFF46A71AA6E523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653373   (194312) от 15.08.2023
-
-SD Maid Pro v5.5.10 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194312.jpg" />
-</div>
-
-
-###  Подробнее
-
-SD Maid поможет держать Ваше устройство в чистоте и порядке! Набор инструментов для управления приложениями и файлами.Тип издания: ModРелиз состоялся: 06.07.2023Разработчик: darkenПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577E2FDBF09493EC38C73EB2FCB9F34B78051441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652595   (194383) от 12.08.2023
-
-Titan - Home Workout & Fitness v3.6.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стань сильным, как Титан! Мечтаете о рельефных мышцах и идеальном прессе? Начните прямо сейчас! Занимаясь всего несколько минут в день, вы сможете накачать мышцы и улучшить форму. Вам не нужно ходить в тренажерный зал или платить персональному тренеру – все упражнения выполняются дома с собственным весом. Тренировки занимают всего несколько минут, но они приведут (   Читать дальше...   )Тип издания: ProРелиз состоялся: 02.08.2023Разработчик: Power UpsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D7CA054333FC494FE467DBDFFF351D376D2532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590131   (194421) от 11.08.2023
-
-Listen Audiobook Player v5.0.15 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 23.07.2023Разработчик: acme-android.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```
 
 

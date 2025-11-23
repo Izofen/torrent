@@ -1,3 +1,83 @@
+###  Публикация: 1690387   (123812) от 08.01.2024
+
+Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Riverside 3:49
+2. Close Watch 4:01
+3. Sons and Daughters 3:15Жанр: Pop, Classical, VocalПродолжительность: 00:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F883F9FECAAA315F0B67D6C8DEFD3F21B900A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690713   (123813) от 08.01.2024
+
+Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allegro Ventigo (feat. Matteo) (3:42)
+02. Balzam (feat. Lusia Chebotina) (3:38)
+03. Домой (feat. Тина Кароль) (4:25)
+04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690461   (123814) от 08.01.2024
+
+Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlings in a Silver Sky (3:00)
+02. Echo in Winter (2:52)
+03. Indigo Twilight (3:21)
+04. Almost There (4:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B03E59766421D8054EE2F52A91599FC24603DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690688   (123815) от 08.01.2024
 
 Журнал | Вязаная одежда для солидных дам №6 (декабрь 2023) [PDF]
@@ -6,7 +86,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123815.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Kaminsky Driving Aсademy, Александр Каминский | Как пер
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123816.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ magnet:?xt=urn:btih:65A0DCE79BE6A8D6DF3C5B1903AFD659A100BCEC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123817.jpg" />
 </div>
 
 
@@ -82,7 +162,7 @@ magnet:?xt=urn:btih:65456C6E9592AEB194C875E71BB1DA34F2D8738A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123818.jpg" />
 </div>
 
 
@@ -107,7 +187,7 @@ magnet:?xt=urn:btih:A7C8E930355BB0648B4181E28F5DE9AD97C7DFAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123819.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123819.jpg" />
 </div>
 
 
@@ -131,7 +211,7 @@ magnet:?xt=urn:btih:A7C8E930355BB0648B4181E28F5DE9AD97C7DFAF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123820.jpg" />
 </div>
 
 
@@ -155,7 +235,7 @@ magnet:?xt=urn:btih:E59D816E540CB664B9FCA1BFD7F5168379757AFF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123821.jpg" />
 </div>
 
 
@@ -179,7 +259,7 @@ magnet:?xt=urn:btih:F00FC14CFD338CF3B9043329243A22957EC79F77
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123822.jpg" />
 </div>
 
 
@@ -203,7 +283,7 @@ magnet:?xt=urn:btih:E1778A3D043C711A1E081D0ED6D0F052F46FB27E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123823.jpg" />
 </div>
 
 
@@ -227,7 +307,7 @@ magnet:?xt=urn:btih:31DD5FBFD37063FDCAD5D6CB26DE954B78B5CFF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123824.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ WinCatalog 2024.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123825.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ magnet:?xt=urn:btih:E5C995D9CF1322F475899622F0860C685732EC2C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123826.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ VA - Музыка для сна и прослушивания перед сно�
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123827.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123828.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ magnet:?xt=urn:btih:22540499DBDC541435B2C1E5273DB7A016123B2D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123829.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ magnet:?xt=urn:btih:E80478DBB391C26B9CE66ADA64B72DDEDDB49DF2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123830.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ Manu Lopez - Compilation (2024) [MP3|320 Kbps] <Sax, Instrumental, Easy Listenin
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123831.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ magnet:?xt=urn:btih:F36341EAC94224454661AE8B12555402718AB4C6
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123832.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ magnet:?xt=urn:btih:3000786607BE1C487DB462ECEACE224B69DB5A8A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123833.jpg" />
 </div>
 
 
@@ -473,7 +553,7 @@ XYplorer 25.40.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123834.jpg" />
 </div>
 
 
@@ -497,7 +577,7 @@ Process Lasso Pro 12.4.6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123835.jpg" />
 </div>
 
 
@@ -521,7 +601,7 @@ magnet:?xt=urn:btih:4ABC0FB4E58CF0AE4D3F09EA7A82167A5EEE33FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123836.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ magnet:?xt=urn:btih:D9DAE07D275141FAD143654266B69B6B8AAC9905
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123837.jpg" />
 </div>
 
 
@@ -556,82 +636,6 @@ magnet:?xt=urn:btih:D9DAE07D275141FAD143654266B69B6B8AAC9905
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A3FC11C4FC4065E930B94EE7851FC7C9280B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690712   (123838) от 08.01.2024
-
-So Blonde (2008) [En] (1.0) Scene Reloaded
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блондинка в шоке. Бермудские страсти – это игра в жанре point-and-click adventure. На роль главной героини была выбрана Санни Блонд. Она вобрала в себя все стереотипы про избалованных девушек из богатых семей. 17-летнюю барышню не беспокоит ничего кроме собственной внешности. Данная адвенчура также известна под названием So Blonde. По сюжету однажды папа и мама решили (   Читать дальше...   )Тип издания: SceneРазработчик: WizarboxЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278463   (123839) от 08.01.2024
-
-Ги де Мопассан | Наше сердце (2007) [MP3, Нелли Вильская]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл.
-Роман «Наше сердце» написан в 1890 году, в нём рассказывается о любви эмансипированной женщины из высшего света. Увлекательный сюжет с неожиданными поворотами сопровождается столь глубоким и детальным анализом человеческих чувств и внутренних побуждений. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 06:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351C87CE62B57609DAF504A899ACC8161B48EB15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690669   (123840) от 08.01.2024
-
-Элеонора Сазонова  | Видеоуроки по программе Power Point (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Интерфейс программы Power Point
-2. Создание титульного слайда
-3. Разметка слайдов
-4. Оформление слайдов с помощью Темы(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 02:15:36Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22513C7F03672AD02CA5594B9201FCC41A37FDEE
 ```
 
 

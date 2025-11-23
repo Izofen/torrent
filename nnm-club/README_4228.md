@@ -1,3 +1,84 @@
+###  Публикация: 1525235   (129855) от 20.01.2022
+
+Книжная серия | Детская энциклопедия [12 томов. Издание второе] (1964-1969) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129855.jpg" />
+</div>
+
+
+###  Подробнее
+
+У школьников часто возникают вопросы из разных областей науки, техники и искусства, на которые учебники либо совсем не отвечают, либо дают неполный ответ. Чтобы оказать учащимся помощь в овладении знаниями, Академия педагогических наук РСФСР издает для детей среднего и старшего возраста Детскую энциклопедию. ДЭ состоит из двенадцати томов. В её создании приняли участие (   Читать дальше...   )Жанр: Детская литература, энциклопедии, научно-популярная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F81958AF137EFFC43CB19098BFBD746C2E252BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525496   (129857) от 20.01.2022
+
+3uTools 2.59 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129857.jpg" />
+</div>
+
+
+###  Подробнее
+
+3uTools - это альтернативная программа для Windows, которая позволяет нам управлять или восстанавливать любое мобильное устройство от Apple (iPhone, iPad или iPod) намного проще. Это действительно полная программа, которая предлагает нам возможность управлять всеми нашими файлами, книгами, фото и видео галереями, а также импортировать музыку и организовывать библиотеки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBCB05F9932CB982A3BF13A6F18E5AAF2AEE7EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488270   (129859) от 01.05.2012
+
+Vladimir Bozar 'n' Ze Sheraf Orkestar - Universal Sprache (2010 Re-release) (2008) [MP3|320 кб/с]<Avant-Garde Metal/Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RRS Master
+02. Super Mythoman
+03. Todomak
+04. Panzoni Pasta
+05. Hector ou la Défaite de Martin Shin
+06. Guignette
+07. Le grand Rabbi
+08. Meglio stasera
+09. Rockabiloose
+10. Gonzales(   Читать дальше...   )2008Жанр: Avant-Garde Metal/ExperimentalПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE0FEAEDE406BDA810AB9C4CB28F8EF7C99753C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490491   (129860) от 01.05.2012
 
 [Wallpapers]Nature Landcapes Full HD Wallpapers 1
@@ -6,7 +87,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129860.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129862.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129864.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Skype 8.110.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129866.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:B09BAF983CBED5EF8D5199FD474D1CD9BCAE85BD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129868.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129869.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ Microsoft Windows 10.0.19044.1466, Version 21H2 (Updated January 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129870.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129871.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129872.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:3CC79A24ED54446C8DD203DE5EA2C173CD73D1AB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129874.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ AlimkhanOV A. - Way to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129875.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129877.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ magnet:?xt=urn:btih:12418446B9C69870DB09ED979C3B6D6A95D955D3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129878.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ magnet:?xt=urn:btih:8FCE04F2AEBB0E97E395588C97D0336265ED18F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129880.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129881.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ magnet:?xt=urn:btih:A7D28D100B8C73B4F5C96EE055830CEE98158618
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129882.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:1384953C11F271BF8D21FB1D0CDA7DE1FF57D0D3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129884.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ magnet:?xt=urn:btih:D3A062BDC9375A68242B41CCC51D5F6D44A316AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129885.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129887.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ magnet:?xt=urn:btih:C3477823AEAFC1A4852355CDC4BD137F641AFDF7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129888.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ VA - A Very Metal Christmas (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129889.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ magnet:?xt=urn:btih:CED10E367EA5D3EC74244526B8DB242D996EF344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129890.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ magnet:?xt=urn:btih:7885F8632A25C59654CADE22113881792D401DF1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129891.jpg" />
 </div>
 
 
@@ -577,79 +658,6 @@ magnet:?xt=urn:btih:7885F8632A25C59654CADE22113881792D401DF1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56C3E2B00A35C500AEA13FAEC097D04C4CF1518A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524708   (129892) от 20.01.2022
-
-Флирт с дьяволом / Shattered (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый и разведенный Крис влюбляется в таинственную женщину по имени Скай. Вскоре после этого он, его бывшая жена и их ребёнок оказываются в ловушке — им предстоит отчаянная борьба за выживание.Производство: США / Construction Film, Silver ReelЖанр: ТриллерРежиссер: Луис ПриетоАктеры: Камерон Монахэн, Саша Лусс, Ridely Asha Bateman, Лилли Круг, Джеймс С. Бёрнс, Дат Фан, David Madison, Фрэнк Грилло, Джон Малкович, Эш СантосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E11849169A1DC7DFD858E589294376DCFF91C14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525385   (129893) от 20.01.2022
-
-Blackwind (2022) [Multi] (1.0.1.0) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackwind - это фантастический экшен с видом сверху, в котором вы ощутите себя подростком, сражающимся с пришельцами в экспериментальном бронекостюме. Врывайтесь в ряды захватчиков и используйте последний шанс остановить межпланетное вторжение!Тип издания: LicenseРазработчик: Drakkar DevЖанр: Экшн, Аркада, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683079   (129894) от 09.12.2023
-
-Ева / Eva (1962) DVDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Тайвен Джонс не мог предположить, чем для него обернется мимолетная, как казалось, связь с некоей Евой Оливье. Кто она, эта роковая красавица, без которой Тайвен не может прожить и дня? Почему он не может выкинуть ее из головы, несмотря на то, что она постоянно издевается над ним, вместе с тем, не хочет отпустить его?
-Почему ради нее он готов на все - потерять (   Читать дальше...   )Производство: Италия, Франция / Interopa Film, Paris Film ProductionsЖанр: драма, мелодрамаРежиссер: Джозеф ЛоузиАктеры: Жанна Моро, Стенли Бейкер, Вирна Лизи, Джеймс Виллерс, Риккардо Гарроне, Лиза Гастони, Кекко Риззоне, Энцо Фьермонте, Нона Медичи, Роберто ПаолеттиПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8C133631D1021B466F02C6ECC67B273C7A7D02
 ```
 
 

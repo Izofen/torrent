@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131862.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DEFA258C575250580FD50C0B4EDBCE4E527326C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131863.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A74DF75794F2B1320BC2DA1212017219359EFE62
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131865.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C55DD0A6EF4C73563D75951AB9E9F8566EDDC0FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131866.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Kaban - В Мире Животных (2021) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131868.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131871.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131880.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Knife - Heaven Into Dust (2023) [FLAC|Lossless|image + .cue] <Speed Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131882.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Night In Gales - Dawnlight Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131884.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Night In Gales - The Last Sunsets (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131886.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Solitary - The Diseased Heart of Society (2017) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131888.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Solitary - Requiem (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131890.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:E8CCE4A85B912EAFDCAD142122A02717239F83C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132015.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132060.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132077.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132087.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D8DE7DEE4E03CE54AD72BEE134A5436FA8322D47
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132107.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:07B134683786B92CDD3008048869B4336446EC9B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132114.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Isospin - Aftermath Chronicles (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132116.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132125.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Satanic Warmaster - Carelian Satanist Madness (2005) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132127.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:7ED3ACBB3F3F7A429B0193F61249E1A281E3060C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132133.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dyscrasia - Septical Stomach-Pumped Remnants (2004) [FLAC|Lossless]<Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132136.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Haissem - A Sleep of Primeval Ignorance (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132141.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Dark Fortress - 5 CD (2001-2008) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132144.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Solitary - Nothing Changes (1998) Reissue, 2004, Casket Music [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132145.jpg" />
 </div>
 
 

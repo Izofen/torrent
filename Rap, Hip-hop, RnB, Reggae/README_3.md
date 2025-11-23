@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111575.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113521.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:44BA65D7A598CA71BDE5864EB84082809D852A2E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117633.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117637.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117711.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118143.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blacko - Kaf lion (2010) [MP3|160-193 kbps]<Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122463.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alai Oli - Снег и пепел, Volume 2: ТТП (2023) [MP3|320 Kbps] <Regga
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124032.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E38F73B8109ADB6E6BD1D27ADCC9A444F687ED5C
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124780.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127112.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128112.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131076.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:80600D428C848E438E66407D0782648AD7209173
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131442.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5F7DE187D1F5FF9F9E2E205AD4701F2C03DFAFDD
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132947.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0A710E5C96D64F528DA953E09414600D393CFB05
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132979.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133420.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134226.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134852.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Bruno Mars - Unorthodox Jukebox (2012) Deluxe Edition [FLAC|Lossless]<Pop, R&B, 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135528.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135528.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ HammAli & Navai - JANAVI (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138939.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:4DD1E04DD5D9FA41689FB904BD8C87EA89076571
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143895.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Amerigo Gazaway - Nina Simone & Lauryn Hill - The Miseducation of Eunice Waymon 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146210.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - 100 Greatest Rap (2020) Explicit [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149239.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dizence - Немой (2022) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150799.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Best of 2021: Sexy Songs [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150803.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ OBLADAET - PLAYERS CLUB 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151075.jpg" />
 </div>
 
 

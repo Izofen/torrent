@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50067.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8422B2DB1019472037EB1DCC34FCC5021B9EBB7F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4ED00F6FCDB1A258654C22DB84F7AE240419DFC4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50069.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F61AD869571E03F17C4BA9DB603EFBCD167D9676
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50070.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9E38EF999646803C2E7F0F31CA624337DE86DF29
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50071.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:75769AE170DE168E9C9571DF9EB28C53CFE4AC52
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50072.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ MathWorks MATLAB R2024a v24.1.0.2628055 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50073.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MATLAB – это интерактивная среда программиров
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50074.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:064D0367F87D3DE5B9CA73975D4BD50BD0765CF2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50075.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7A06C84217806DBDBD4B457E8BA9503B00EECB68
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50076.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50077.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:054F543B7B889FEED22EBB2DD3E7165BE7BD1F39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50078.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Barn Finders (2020) [Ru/Multi] (25982/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50079.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.14718) Scene Razor 1911 [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50080.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:4052031C479B23E5DC34395352A828AD7FE7E97A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50081.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:40916AC78AC458106318F4DC475CC1CC31A68289
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50082.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:0B1FD3CC9CB8984D0DAEFA0A0FB51D2640C1FF4E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50083.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:285D28E2D0DF770F33DEE9C2FC9A9A1782B42EB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50084.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:ACB5A0632C444777DC24E1DAE00851B7C25D3A09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50085.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FD2A4EAE7BECB236E456463AEBBC19B8E80885F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50086.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 [The
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50087.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50088.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50089.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:33286AFB18646BD4DF1FC8A4A8A7A28811E17D0C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50090.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:96866C366DBC8214834E24A61B0365183FE490ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50091.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.07.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50092.jpg" />
 </div>
 
 

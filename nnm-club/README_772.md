@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20397.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20398.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20399.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A9FA27FC507BF730A8C30D6483EEA9BFB61F0E38
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20400.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20400.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:055D9CB399DC43EFD022E390DE8AD7D245870C0C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20401.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B26E94A28B7A978E8D419DEB0AACA5E5BF68B6C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20402.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20403.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20404.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20405.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:CA069139499DE2D577D205DCEEC9CF65644338C1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20406.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:AD04726BAD1F0A4B027AA93E89FFF19CA5052133
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20407.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20408.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ XnView Shell Extension 4.1.14  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20409.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20410.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:609DAD05269AE44334646826E2FE17E0B2BF951B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20411.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20412.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20413.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20415.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20416.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Sante DICOM Viewer Pro 14.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20417.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20418.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:44015C1C7380D44EB2628CD261F4AF7612FE3F2E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20419.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F953456BE4AE290737EA940C6699B17A30455F1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20420.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C2A889A888AECB23D96CAF5ECF1C3831BCFD125C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20421.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:92F5648A35D0AB401AEBE2F3450E84AF2BB3F1A2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20422.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Harry James - The Chronological Classics: 1942-1944 (2002) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sonny Rollins - A Night At The Village Vanguard: The Complete Masters (1957) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107496.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Barney Kessel - Contemporary Latin Rhythms! & Breakfast At Tiffany's (1957 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107512.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107547.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107570.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107575.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107588.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107650.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107651.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107652.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107653.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107654.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107655.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107659.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lowell Hopper - Precious Moments (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107680.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107683.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Snowy White - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107691.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107710.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107737.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Pimps of Joytime & Sophia Urista - Don't Belong (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107783.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107786.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107796.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107797.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107804.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Norman Granz' Jam Session #4 (1953) 2004, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107838.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107862.jpg" />
 </div>
 
 

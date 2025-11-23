@@ -1,3 +1,156 @@
+###  Публикация: 1087868   (143068) от 29.12.2016
+
+InstaBro | Browser for Instagram 4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете просмотреть, оставить комментарий и легко скачать Instagram фотографии
+InstaBro это простой инструмент для Mac, который позволяет загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
+
+За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Boris KarulinПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3A4628D672D9DD69A5B2B7B76AD25CAA496386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194817   (143069) от 28.12.2017
+
+Иностранец / The Foreigner (2017) WEB-DLRip [H.264]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завёл мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на всё, чтобы совершить праведное возмездие…Производство: Великобритания, Китай, СШАЖанр: боевик, триллер, драма, криминалРежиссер: Мартин КэмпбеллАктеры: Кэти Льюнг, Джеки Чан, Пирс Броснан, Руфус Джонс, Марк Тэнди, Джон Кронин, Каолан Бирн, Донна Бернард, Аарон МонахэнПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD7271C4FCFC0282CF5C98DE7683B73B02856CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272430   (143070) от 28.12.2018
+
+Speak The Truth...Even If Your Voice Shakes - Everyone You Love Will Slip Away From You (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Upside Down (3:38)
+ 02. Mornings Mournings (3:26)
+ 03. Crash My Car (3:09)
+ 04. Carpenter In Prison (4:18)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Post-HardcoreПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB52FA387949D57D1C0327E7675B7E57F3235088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520104   (143071) от 27.12.2021
+
+Лучший релизер года в разделе "КПК и Мобильные устройства".
+
+>>След.
+>>Обсуждение КПК и Мобильные устройства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые пользователи NNM-Club. Вот и подходит к концу непростой и мрачный 2021-год, и на горизонте виднеется светлое начало 2022-го. Несомненно, уважаемые релизеры и модераторы нашего форума, много трудились чтобы сохранить форум в целости, и сделать вам приятно. Мы предлагаем провести голосование и выбрать лучшего релизера в каждом разделе, а также поблагодарить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348620   (143074) от 28.12.2019
+
+Brigador: Up-Armored Edition v.1.5v2 (2016) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Action, FPS для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бригадор – это игра с стиле Рогаликов с интенсивными тактическими сражениями. Вы играете наёмными пилотами, предавшими свою планету за большие деньги и билет на свободу. Разрушая, вы зарабатываете и можете разблокировать все более разрушительные машины, оружие и задания. Выбирайте снаряжение по вкусу и разносите город Соло Нобре!Тип издания: macOS Native gameРелиз состоялся: 02.06.2016Разработчик: Stellar Jockeys, GausswerksПоддерживаемая ОС: macOS 10.7 и вышеЖанр: Action, IndyЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D2AFBE3A5160223034253AA161D48EA6F0D384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272503   (143075) от 28.12.2018
+
+VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DCP - For U (Original Mix ) 05:07
+02. Antoine Clamaran - Good for Me (Original Mix ) 05:48
+03. House of Prayers - Stomp ( New York, Detroit ) (Original Mix ) 06:06
+04. Mazai - Disco Babe (Original Mix ) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610DEC3516499E454AF6094153FEBD288FBCB06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970296   (143076) от 29.12.2015
 
 Punto Switcher 4.1.9 Build 903 Final [Ru]
@@ -6,7 +159,7 @@ Punto Switcher 4.1.9 Build 903 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143076.jpg" />
 </div>
 
 
@@ -30,7 +183,7 @@ magnet:?xt=urn:btih:7B130E0A4AFCD6B442C36D2887761C85BEECD581
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143077.jpg" />
 </div>
 
 
@@ -54,7 +207,7 @@ magnet:?xt=urn:btih:8734742DFE9F9212FFE763FC510CC02D696E2BCD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143078.jpg" />
 </div>
 
 
@@ -78,7 +231,7 @@ Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143079.jpg" />
 </div>
 
 
@@ -105,7 +258,7 @@ Root Explorer Pro 4.10.3 Mod by Valikovrepikov [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143080.jpg" />
 </div>
 
 
@@ -129,7 +282,7 @@ magnet:?xt=urn:btih:A606478E56FC329758060C0417455E296D03C2CD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143081.jpg" />
 </div>
 
 
@@ -153,7 +306,7 @@ magnet:?xt=urn:btih:D71E6F52E801A971924241C96F542EDE5E015D49
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143083.jpg" />
 </div>
 
 
@@ -177,7 +330,7 @@ magnet:?xt=urn:btih:23E250DE64E65F275F25E56B6E168B6496B517F9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143084.jpg" />
 </div>
 
 
@@ -202,7 +355,7 @@ magnet:?xt=urn:btih:4EBE8B4244E6FB97B1FC458EE16C4DFE5F9714A0
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143085.jpg" />
 </div>
 
 
@@ -226,7 +379,7 @@ VA - Degenerate 2018 Yearmix (Mixed by Sean Tyas) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143087.jpg" />
 </div>
 
 
@@ -253,7 +406,7 @@ magnet:?xt=urn:btih:D3A58902D44CEBC65B1B65594F26D7165D0388EE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143088.jpg" />
 </div>
 
 
@@ -277,7 +430,7 @@ magnet:?xt=urn:btih:B82C04F011F64FD3BC1A7A4485FF4ADAB714B938
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143089.jpg" />
 </div>
 
 
@@ -301,7 +454,7 @@ magnet:?xt=urn:btih:7F3AE5D736D798A5E4707EDDE1223486479AB69A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143090.jpg" />
 </div>
 
 
@@ -327,7 +480,7 @@ magnet:?xt=urn:btih:60654B218D4225EC7CF0AF78CB08B7ACE21F2D49
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143092.jpg" />
 </div>
 
 
@@ -351,7 +504,7 @@ magnet:?xt=urn:btih:944A9814AEE97D73D0206296C416C4CD3255E3A3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143093.jpg" />
 </div>
 
 
@@ -375,7 +528,7 @@ Ubisoft | Артбук по игре Assassin’s Creed Вальгалла / The
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143094.jpg" />
 </div>
 
 
@@ -399,7 +552,7 @@ magnet:?xt=urn:btih:22AC2729FCCE24AA13EC10F4CB77FE6C7D330867
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143095.jpg" />
 </div>
 
 
@@ -423,7 +576,7 @@ magnet:?xt=urn:btih:80188DE13E2B04F8D57DCDE5E2D8EE999790330A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143096.jpg" />
 </div>
 
 
@@ -448,7 +601,7 @@ magnet:?xt=urn:btih:945175B4758068543D26EFA11DDA684BA4911D67
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143097.jpg" />
 </div>
 
 
@@ -472,7 +625,7 @@ magnet:?xt=urn:btih:67309A200CE5A4B6D5F00F6682F83C6D2D7C92DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143098.jpg" />
 </div>
 
 
@@ -483,162 +636,6 @@ magnet:?xt=urn:btih:67309A200CE5A4B6D5F00F6682F83C6D2D7C92DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEF63B06D17F567B40D2166CC37E5A17065A53D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969954   (143100) от 29.12.2015
-
-The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol ...
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Johann Sebastian Bach (1685 - 1750)
-"Nun komm, der Heiden Heiland", BWV 62
-01. Chorus "Nun komm, der Heiden Heiland" (04:31)
-Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жанр: Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol, Chorale, Concerto Grosso, Pastorale, Kyrie, NoelПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272665   (143101) от 28.12.2018
-
-Надежда Чубарова | Слуга тьмы (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внецикловый роман.
-Так ли беззаботна жизнь колдуна, который с легкостью перемещается в пространстве и одним только взглядом вызывает огонь? И так ли безопасна встреча с себе подобным?
-Найдана ищет обычной тихой жизни, но сама жизнь постоянно напоминает ей, кто она есть на самом деле. И вот ей снова приходится переживать потери, сражаться с сильнейшими, бороться за (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E58CC7A23F49A796E65C055248145971DE363C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432354   (143103) от 28.12.2020
-
-Операция "Ы" и другие приключения Шурика (1965) DVDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм состоит из трех новелл, объединенных фигурой главного героя Шурика, попадающего в самые невероятные ситуации. В «Напарнике» Шурик сражается с хулиганом Верзилой; в «Наваждении» весьма оригинальным способом готовится к экзамену; в «Операции «Ы» предотвращает «ограбление века», на которое идет знаменитая тройка — Балбес, Трус и Бывалый.Производство: СССР / Киностудия «Мосфильм»Жанр: Комедия, Мелодрама, КриминалРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Селезнёва, Алексей Смирнов, Юрий Никулин, Евгений Моргунов, Георгий Вицин, Михаил Пуговкин, Виктор Павлов, Владимир Басов, Рина ЗеленаяСубтитры: Русские, английские, французские, испанские, немецкиеПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41192D331ED912EC6BED6B926F70C5E66C1F374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678746   (143104) от 22.11.2023
-
-Adobe Bridge 2024 14.0.1.137 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1C3F8B255678D92312C0370CEB659612471807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087859   (143105) от 29.12.2016
-
-Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  A Sultry Summer Day [00:05:08]
-02 -  My Toes in the Earth [00:05:18]
-03 -  I See Iris and Her Rose [00:05:07]
-04 -  A Starlit Summer Eve [00:04:49](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:54:21
-Лейбл: Davisounds - 763846976389
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970306   (143107) от 29.12.2015
-
-Afternova - For All Mankind (2015) [MP3|320 кб/с] <ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together Again (3:00)
-02. Winter Dust (3:43)
-03. As The Hero Returns (2:36)
-04. A Summer Day (4:51)(   Читать дальше...   )Жанр: ChillOutПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AC9DD4C94B3BA90FCC4B78D88F6619539379F4
 ```
 
 

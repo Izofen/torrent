@@ -1,3 +1,28 @@
+###  Публикация: 1429253   (177430) от 05.12.2020
+
+Доктор Фил | В поисках волшебной таблетки. Научно-популярная сказка (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам приходилось в жизни слышать фразы, подобные этим: «Делай по утрам то-то, будешь здоровым» или «съешь вот это, полезно для здоровья», «зачем ты это купил – оно же вредное, срочно выброси».
+Попробуйте спросить у такого человека (или у себя): а что значит «полезно» или «вредно»? На самом деле все просто: полезно – это то, что жизнь продлевает, а вредно – то, что (   Читать дальше...   )Жанр: Здоровье, Научно-популярная литература, Популярно о медицинеПродолжительность: 05:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42924743E6D139EA14E32B5B26A6897E907787E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667109   (177587) от 07.10.2023
 
 Екатерина Мурашова | Все мы родом из детства (2023) [MP3, Demetra]
@@ -6,7 +31,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177587.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177587.jpg" />
 </div>
 
 
@@ -31,7 +56,7 @@ magnet:?xt=urn:btih:A84D550BCF203D382A4F77EC9F008774B164EB74
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177715.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177715.jpg" />
 </div>
 
 
@@ -55,7 +80,7 @@ magnet:?xt=urn:btih:4B07CA2B6DA65809E359585C9563AEF715066B52
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177958.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177958.jpg" />
 </div>
 
 
@@ -79,7 +104,7 @@ magnet:?xt=urn:btih:9C6D182284706D4E2B896FFD56D81B49304C8BBF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178354.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178354.jpg" />
 </div>
 
 
@@ -104,7 +129,7 @@ magnet:?xt=urn:btih:EC29308C0724A0949221F08D67055218F95DE8E2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178662.jpg" />
 </div>
 
 
@@ -128,7 +153,7 @@ magnet:?xt=urn:btih:C0AC23C05951804C0B23442E94AD14313A9518C3
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178845.jpg" />
 </div>
 
 
@@ -152,7 +177,7 @@ magnet:?xt=urn:btih:F583181546265C55DBA44332BF02F4FC089A841D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178975.jpg" />
 </div>
 
 
@@ -176,7 +201,7 @@ magnet:?xt=urn:btih:7C2425A9785082B668C621001910F2A666D86A68
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179261.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179261.jpg" />
 </div>
 
 
@@ -200,7 +225,7 @@ magnet:?xt=urn:btih:0140A8A1E79FB9A71CFED6BEA1FFC5EE6A83DEE2
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179535.jpg" />
 </div>
 
 
@@ -224,7 +249,7 @@ magnet:?xt=urn:btih:8BF3E91CA754DCF3F6B78A82876A334B5A4B5A2E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179593.jpg" />
 </div>
 
 
@@ -243,6 +268,30 @@ magnet:?xt=urn:btih:7704C9188D4E358210F9375F313E9DE5B84CF29A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428510   (179700) от 02.12.2020
+
+Джейсон Фанг, Джимми Мур | Интервальное голодание. Как восстановить свой организм, похудеть и активизировать работу мозга (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожирение и диабет второго типа напрямую связаны с уровнем инсулина и восприимчивостью к нему. Любая еда поднимает уровень инсулина – но делает это по-разному. Углеводы дают резкие скачки вверх и длительное снижение до нормы. Жиры плавно поднимают и быстро опускают это значение. Именно поэтому подсчет калорий как таковой неэффективен при желании похудеть или оздоровить (   Читать дальше...   )Жанр: Здоровое и правильное питание, Похудение и диетыПродолжительность: 07:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8059116A6DBA7D67B011CCB9CF8BC35D9E3900C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593712   (179841) от 28.11.2022
 
 Итан Кросс | Внутренний голос (2021) [MP3, Олег Булгак]
@@ -251,7 +300,7 @@ magnet:?xt=urn:btih:7704C9188D4E358210F9375F313E9DE5B84CF29A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179841.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179841.jpg" />
 </div>
 
 
@@ -275,7 +324,7 @@ magnet:?xt=urn:btih:693D82B98DB7DBB67E6CC12AFD01D4DB4FCC18F8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180173.jpg" />
 </div>
 
 
@@ -301,7 +350,7 @@ magnet:?xt=urn:btih:2C6B5D7EA7757786754ABA570795BE3D1AB5B88A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180256.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180256.jpg" />
 </div>
 
 
@@ -325,7 +374,7 @@ magnet:?xt=urn:btih:545BEEC080ABDEE16D10B5A5DA91AB55971259BF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180400.jpg" />
 </div>
 
 
@@ -350,7 +399,7 @@ magnet:?xt=urn:btih:EEB9CF52F737F0BEFCCD6D26EE7108146A466DA6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180828.jpg" />
 </div>
 
 
@@ -375,7 +424,7 @@ magnet:?xt=urn:btih:D92FB18495360D453BDA1D83629F908000197258
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181415.jpg" />
 </div>
 
 
@@ -400,7 +449,7 @@ magnet:?xt=urn:btih:B22099FF9A5BFF5B0174C9926D0D0F884E04A1DE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181700.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181700.jpg" />
 </div>
 
 
@@ -424,7 +473,7 @@ magnet:?xt=urn:btih:751187C78423D920BDEC2946BDDF70255764E1E9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182142.jpg" />
 </div>
 
 
@@ -448,7 +497,7 @@ magnet:?xt=urn:btih:CE3751DAA3263B85434A153A32BC03CCE7EE6320
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182190.jpg" />
 </div>
 
 
@@ -472,7 +521,7 @@ magnet:?xt=urn:btih:8611CD3B52B2C5C9B92031A5F1FD004FC117D481
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182442.jpg" />
 </div>
 
 
@@ -497,7 +546,7 @@ magnet:?xt=urn:btih:72653C2760A3348EBB2FC3BBB3CB47213C31D3AB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182526.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182526.jpg" />
 </div>
 
 
@@ -521,7 +570,7 @@ magnet:?xt=urn:btih:8C1A252638D65533CCB303E0E14856942C8D49EA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_183051.jpg" />
 </div>
 
 
@@ -546,7 +595,7 @@ magnet:?xt=urn:btih:74F6ABBD0645015BA0D1C9D600D071743C33C86D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183106.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183106.jpg" />
 </div>
 
 
@@ -570,7 +619,7 @@ magnet:?xt=urn:btih:FC4F9464AF67096A68BB955F77C94865B6386D36
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_183724.jpg" />
 </div>
 
 
@@ -582,57 +631,6 @@ magnet:?xt=urn:btih:FC4F9464AF67096A68BB955F77C94865B6386D36
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED0963BE1234406491263FC34B186D70AB59AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664869   (183840) от 28.09.2023
-
-Дина  Гумерова | Технология создания событий (2023) [MP3, Дина Гумерова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по улучшению жизни на всех уровнях —ментальном, физическом, материальном.
-Прослушав эту книгу, вы:
-узнаете о том, как создаются события;
-- поймете, кто ответственен за то, что с нами происходит, и можно ли изменить судьбу;(   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 02:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665C0E3FAFFBF542B450347E30D81710A2A11DCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592395   (183854) от 22.11.2022
-
-Таня Танк | Лекок (Книга 3). Восстать из пепла (2019) [MP3, Наталья Рачковская]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183854.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Вы прошли через месяцы и годы страданий, пытаясь наладить отношения с близким человеком. Чего только не перепробовали, но все стало только хуже и продолжает ухудшаться день ото дня. Но, к счастью, вы нашли выход из тумана абсурда… Третий, завершающий, том трилогии расскажет вам, как уйти от мучителя и больше не вернуться, как собрать себя по кусочкам, избежав опасных (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 10:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA81EE67FF8EF1040B294BBCAAFF8169962B6984
 ```
 
 

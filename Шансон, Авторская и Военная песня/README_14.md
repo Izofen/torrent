@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102743.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BACA2BD2812AD994011AEB4B52CAC18D66337745
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103091.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:72CFCD0798F4D662B14AFC4388859D379DAEA6B0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103099.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C3E78ECEDF15118AF540111B24D2D1476EE88BAD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103104.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5B55D1CBD0F40E29D82A7A6640864F3A8CA2C7CB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103340.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B705C647F0410544F1CF46B760B1C1E001EE84B4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103342.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:97738DC86294B872ED1D79C211D7D4A25F3C9A7B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103343.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:75E7B4F648AFF291E375C37F2E8883B92F9CE894
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103353.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C6E3AF72A498737A880821DC764E0B5A6531FAFA
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103363.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BEA0A0D8F57354499E07524D3B9A80E2BDBD120B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103367.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5E6416AE289A9264672973FC29880566DD2B2F51
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103368.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4BD1C814FA2BEEDB75B6B6B1092B43B5F476BD9E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103369.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:46F883F762F3DEB36C7A2E58329160E1ACA46EBF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103372.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:FB311A8E42F5CFFEE4E704AFC83AD150AC852995
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103387.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:74B12C2E283101FBFB81942F32AD0B5B3AD6878D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103431.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AF42ABC65A5965C76C38354D643196B8F101DA07
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103826.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DDB19B03FA627559A9179E4F0D39A9E9FA0142F5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104792.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Здорово, бандиты! (Ништяк,браток!) (1999) [MP3|32
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104830.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E05D5BF12358AFE923C6761963243D7438B79BF7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104838.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C6A068FE8DE14873FBA3BD5991316A76FAAB1766
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104841.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A6DC8BB1659269CAA37DBFC523C17FBEA889FD0C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105018.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:26B53E991AD7998FA0EC2E86FC89A0EDAB33A844
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105022.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:BD993C6E3634F6D28F07D67262514DA980F86C41
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105026.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8C73C61E99A1F919AF0216F535E5E79FAA8B8A75
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105028.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:EA5047E6F5AD4F101FCEE812FA4349A8577FCA09
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105170.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105178.jpg" />
 </div>
 
 

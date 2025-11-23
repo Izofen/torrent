@@ -1,3 +1,107 @@
+###  Публикация: 1655732   (203748) от 28.08.2023
+
+Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norther (сильный северный ветер) — мелодик дэт-метал группа из Финляндии.2002 - Dreams of Endless War
+2003 - Mirror of Madness
+2004 - Death Unlimited
+2006 - Till Death Unites UsЖанр: Melodic Death/Power MetalПродолжительность: 05:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655843   (203795) от 28.08.2023
+
+Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203795.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Score • Счет
+A2 Learning To Fly • Учимся Летать
+A3 The Miracle • Чудо
+B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604662   (204069) от 14.01.2023
+
+Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Techno/Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_204069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно уже ставший классикой дебютный альбом 1995 года совсем тогда молоденькой китайско-тайской скрипачки. В 2004 году на ЭМИ был сделан многоканальный ремикс и выпущен SACD. Довольно слабенький, на мой взгляд/мое ухо микс, но сама музыка и экспрессия исполнительницы все искупают...За образ SACD благодаримЖанр: Techno/Pop, ElectronicПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604059   (204160) от 12.01.2023
+
+Мираж - МИРАЖ-III (оригинал) (1991) [FLAC 2.0|48/24|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_204160.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:52] Я жду тебя
+[4:40] Ты словно тень
+[5:52] Солнечный ЗайчикЖанр: Pop, Disco, DanceПродолжительность: 00:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655542   (204266) от 26.08.2023
 
 Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
@@ -6,7 +110,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204287.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204287.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204452.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204462.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204616.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205196.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205374.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205759.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205984.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -356,7 +460,7 @@ AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206229.jpg" />
 </div>
 
 
@@ -384,7 +488,7 @@ Pink Floyd - Animals (1977) 2022 -2018 remix- [DTS 5.1 CD-DA|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206427.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206427.jpg" />
 </div>
 
 
@@ -411,7 +515,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206467.jpg" />
 </div>
 
 
@@ -438,7 +542,7 @@ Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206695.jpg" />
 </div>
 
 
@@ -465,7 +569,7 @@ Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206839.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206839.jpg" />
 </div>
 
 
@@ -492,7 +596,7 @@ Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, It
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206927.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206927.jpg" />
 </div>
 
 
@@ -519,7 +623,7 @@ magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207094.jpg" />
 </div>
 
 
@@ -546,7 +650,7 @@ Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207230.jpg" />
 </div>
 
 
@@ -574,7 +678,7 @@ Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207268.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207268.jpg" />
 </div>
 
 
@@ -588,111 +692,6 @@ A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic Rock�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578638   (207429) от 24.09.2022
-
-Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [DSD64(DST64) 2.0, 5.1|2822,4/1|SACD-R] <Psychedelic Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.1 surround and stereo — is here. Another classic Pink Floyd title receives the multichannel reissue treatment and Acoustic Sounds and Analogue Productions is here to proudly handle exclusive distribution of this monumental disc. The SACD also of course includes a stunning stereo mix. And (   Читать дальше...   )01. Pigs On The Wing 1
-02. Dogs
-03. Pigs (Three Different Ones)
-04. Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:51 / 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE5A4B63836A7330C3941B589213734828811E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611622   (207551) от 12.02.2023
-
-Sarah Brightman & The London Symphony Orchestra – Time To Say Goodbye (1997) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timeless, известный как Time to Say Goodbye в США и Канаде, — пятый альбом Сары Брайтман и Лондонского симфонического оркестра. Альбом стал золотым или платиновым в 21 стране, было продано более 1,4 миллиона копий только в Соединенных Штатах и он возглавлял чарт Billboard Classical Crossover в Соединенных Штатах в течение 35 недель. Релиз альбома EMI в формате SACD (   Читать дальше...   )Жанр: Vocal, Pop/Rock, ClassicalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6ED963EADBFCCCC00C8BC2868E5E443A5B37B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648695   (207678) от 29.07.2023
-
-VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Blues, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Elton John - Sacrifice
-A2 George Michael - Father Figure
-A3 Oleta Adams - Get Here
-A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 02:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646379   (207751) от 28.07.2023
-
-VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:58:06
-A1 Hues Corporation – Rock The Boat
-A2 Tymes – Ms Grace
-A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: Pop Rock, Soul, FunkПродолжительность: 02:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
 ```
 
 

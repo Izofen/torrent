@@ -6,7 +6,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115249.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115271.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115274.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115284.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115409.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115565.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115602.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115630.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115721.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115771.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Exanima (2015) [En] (0.9.0.5) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115779.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115780.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115786.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lazaret (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115906.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115909.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Firefrost (2024) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115928.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115935.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116039.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Scene SKID
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116043.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Akumi Wars (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116077.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116095.jpg" />
 </div>
 
 

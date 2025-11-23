@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67100.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A5732D791837257FB10DC43C977D8A4208259037
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67101.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6409A2A17DB09F084C882B411F53B72264B878B3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67102.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E2D5BA0D2EB2AF8540BE5A5D3AFA150064EB8147
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67103.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Francis Rossi - The Way We Were Vol. 1 (2025) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67104.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Fit For A King - Collection (2011-2022) 7CD [FLAC|Lossless|tracks + .cue] <Chris
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67105.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:59B61B3D9D6361478B562E7B4DC2540963648394
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67106.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:AE168A63CF1B725B5F7ECEFF3351E2B9E8D0EEE5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67107.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:9042DE328BE397B246B4A95B2492C332C68B8B49
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67108.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A2D30BF18890A89B4C5ADF295D8745AC83EE17CB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67109.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67110.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ McCoy Tyner & Joe Henderson - Forces Of Nature: Live at Slugs' (1966) 2CD, 2024,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67111.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peacevill
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67112.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ John Dankworth - What the Dickens! (1963) 1994, Sepia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67113.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:CD99BB2125D5885394EED46C45BED8CB89DCD408
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67114.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:5FFEDF1500222D8A9C21133F10C988AD48E33FAF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67115.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:32F24E0611D90FD7CFEA45BB938D8FFD5A7B2DF2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67116.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F3767854D569F77FFD45557691BA2834471A5F1C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67117.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:697FA011458C3DE0C547A6F07696A6F186755AA7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67118.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:CD143BCBFC39098F83A5421A420B2475AD99DD13
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67119.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Erroiak - Echoes from the Dark Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67120.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:8135DC0811FCE8AA6804E1CDD96B87A7D9054EFF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67121.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BD26FAB6780E9DC688DE3E993200B0D642286A35
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67122.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:61C413459FD1C18E3B288D92838811D428E5824B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67123.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9826C94C2257A82200F93C260D8DF52CD6032706
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67124.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:FBEAA10739A853213298D09A707E01AF5A0F7FB9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67125.jpg" />
 </div>
 
 

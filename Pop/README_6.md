@@ -6,7 +6,7 @@ VA - One Shot '80 (1998) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop, Synth-pop, Bal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black '80 (2004) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Soul, Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26046.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 100% Discotecas (1997) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26358.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26379.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26463.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26776.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ NЮ - Когда мы были львами (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26876.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26915.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26985.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27001.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27119.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27119.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27301.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27329.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F00EA0A2BA122B25BC07BB7FD3B032C85D3ACCBF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27616.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27822.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27935.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27938.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6675033C5BB4741597E6FAED95BC60C19D13B768
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27939.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Давид Тухманов – Притяжение Земли. Лучши
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27978.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27978.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28358.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28376.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28463.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28469.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28469.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29111.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ REFLEX - Больше чем жизнь (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29113.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electron
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29125.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29125.jpg" />
 </div>
 
 

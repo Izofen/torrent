@@ -1,3 +1,51 @@
+###  Публикация: 1678985   (141867) от 23.11.2023
+
+Firefox Browser ESR 115.5.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C73D67A81E95C99CC7C81279B039D9598F4B12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195545   (141870) от 29.12.2017
+
+Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.29) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141870.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:46:32Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D89DE02024D617431F510637D10C20D23845DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590763   (141871) от 17.12.2012
 
 Бывший сотрудник (2012) DVD9
@@ -6,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141871.jpg" />
 </div>
 
 
@@ -32,7 +80,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141876.jpg" />
 </div>
 
 
@@ -59,7 +107,7 @@ magnet:?xt=urn:btih:45A2CC78938CC600627F48C251899D162DFE5D35
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141880.jpg" />
 </div>
 
 
@@ -83,7 +131,7 @@ magnet:?xt=urn:btih:2AEC50A68A80ABEB91B9A114624BC2C0E72A536E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141881.jpg" />
 </div>
 
 
@@ -109,7 +157,7 @@ Opera One 105.0.4970.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141882.jpg" />
 </div>
 
 
@@ -133,7 +181,7 @@ Liulanqi 8.1.100.2926 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141884.jpg" />
 </div>
 
 
@@ -157,7 +205,7 @@ magnet:?xt=urn:btih:AD0AAD96D07C7F55396BC29632E1F3F4A8196D8E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141885.jpg" />
 </div>
 
 
@@ -182,7 +230,7 @@ magnet:?xt=urn:btih:5ACAE586433B3889EDFB0516E3C3AF5BEB3D6F36
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141893.jpg" />
 </div>
 
 
@@ -206,7 +254,7 @@ Stay 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141894.jpg" />
 </div>
 
 
@@ -232,7 +280,7 @@ magnet:?xt=urn:btih:8965C8E52B5929EE87D2EA4D4026B8375C313B07
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141899.jpg" />
 </div>
 
 
@@ -256,7 +304,7 @@ Rhinoceros 8 v.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141905.jpg" />
 </div>
 
 
@@ -281,7 +329,7 @@ Movavi Video Converter 19.0.2 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141906.jpg" />
 </div>
 
 
@@ -305,7 +353,7 @@ magnet:?xt=urn:btih:8FB60B5C16EB4D7B3E2EF8A06DC2A796088CB171
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141908.jpg" />
 </div>
 
 
@@ -332,7 +380,7 @@ foobar2000 1.3.14 Stable RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141915.jpg" />
 </div>
 
 
@@ -356,7 +404,7 @@ IceCream Ebook Reader Pro 6.42 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141919.jpg" />
 </div>
 
 
@@ -380,7 +428,7 @@ magnet:?xt=urn:btih:62D0D6A936782DFD840D71653DF5AF94363CE87E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141920.jpg" />
 </div>
 
 
@@ -404,7 +452,7 @@ magnet:?xt=urn:btih:21128E9661385240A10FE234DB8DF25EC352C742
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141924.jpg" />
 </div>
 
 
@@ -429,7 +477,7 @@ magnet:?xt=urn:btih:ED873F5F5A454A322CB50470639BDFAD75F8EF02
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141930.jpg" />
 </div>
 
 
@@ -453,7 +501,7 @@ IObit Driver Booster Pro 6.2.0.198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141931.jpg" />
 </div>
 
 
@@ -477,7 +525,7 @@ iCompta 6 v6.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141935.jpg" />
 </div>
 
 
@@ -501,7 +549,7 @@ RegCool 1.302 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141943.jpg" />
 </div>
 
 
@@ -525,7 +573,7 @@ ScreenFlow 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141945.jpg" />
 </div>
 
 
@@ -552,7 +600,7 @@ magnet:?xt=urn:btih:9047A0C0AD1B3A256CE9D49B0C5B32B3698EB40C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141949.jpg" />
 </div>
 
 
@@ -578,7 +626,7 @@ SamDrivers 18.19 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141951.jpg" />
 </div>
 
 
@@ -589,55 +637,6 @@ SamDrivers 18.19 - Сборник драйверов для Windows [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3933ADE8014BFD9EB5A4559DBF3759BF133F937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435655   (141964) от 29.12.2020
-
-Unclutter 2.1.24d [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8800D398B153BE7D43A8E3BD99EFA5D5EC1EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088082   (141974) от 29.12.2016
-
-Eventide Ensemble Bundle v1.1.4 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eventide Плагины ( 21 шт. ) дают вам возможность создавать любое звучание для ваших треков и открывают двери для создания новых звуков, которые никогда не слышали раньше. Наши плагины воссоздают звуки, определившие классические записи знаменитыми производителями, инженерами и артистами, таких как Dave Pensado, George Massenburg, Tony Visconti, Steve Vai, Jimmy Page, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47219519E950982D110C8FE9CB62B6C431D6035F
 ```
 
 

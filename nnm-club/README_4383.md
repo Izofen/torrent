@@ -1,3 +1,78 @@
+###  Публикация: 592676   (135118) от 23.12.2012
+
+Цветок страсти / Passion's flower, Il Fiore Della Passione (1991) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: ИталияЖанр: Эротика, ДрамаРежиссер: Джо Д'АматоАктеры: Кристиан Роуз, Роберт Лаброззе, Кристин Фришнертц, Джек ЧиолиноПеревод: Одноголосый закадровыйПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A6CD5AFCFA8B8EC5484E9DBD9EC080F374A62E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679660   (135119) от 26.11.2023
+
+Призрачный гонщик / Ghost Rider (2007, 2011) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Дилогия] [handmade AI]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супергеройская дилогия, посвященная популярнейшему персонажу комиксов из вселенной Марвэл, стартовала в 2007 году. Небольшая серия киноисторий стала одной из самых знаменитых медиафраншиз Голливуда. На сегодняшний день франшиза включает две качественные полнометражки, в которых главную роль исполняет великолепный Николас Кейдж. Кто как не он способен на невероятные (   Читать дальше...   )Производство: США, Австралия, ОАЭ / Columbia Pictures Corporation, Crystal Sky Pictures, Marvel Enterprises, Hyde Park Entertainment, Imagenation Abu Dhabi FZЖанр: фэнтези, боевик, триллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Киран Хайндс, Виоланте Плачидо, Джонни Витуорт, Фергус Риордан, Идрис Эльба, Винсент Риган, Кристофер Ламберт, Спенсер Уайлдинг, Сорин ТофанПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:50:03 / 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B01893AF2B04D89B45E56EA71191A1C91D57E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675424   (135121) от 26.11.2023
+
+James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1968 Guitar A' GoGo (LP)
+1971 The James Last Album (LP)
+1975 Non Stop Dancing 20 (LP)
+1976 James Last (Джеймс Ласт) - Non Stop Dancing (Танцуем Без Перерыва) (LP)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 160:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BBAE1480D11A41C04CF9DCDCB42E6736B68081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593372   (135122) от 23.12.2012
 
 Тэд Джонс и Затерянный город / Las aventuras de Tadeo Jones (2012) HDRip
@@ -6,7 +81,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135122.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:D445B450893D5C5257E5DDD644798CA7AC5830A3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135123.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:D1AB2007D70CB9059357A1C40814616BAF346EA2
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135124.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ magnet:?xt=urn:btih:8EE96319C2A9A496485359BCEB4379DBF235CB19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135125.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:9C3C4F2ADBD0DC826A37DC559D571D8975A9FBBA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135127.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:F5B8FBF03C05A7D5F2B615BB5489C13B182E8020
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135128.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:FFAF766BDB1FBCE69B45F4ACDA72AB3879B39102
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135130.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:F2854385153A2CEE783C2DE3E896B17C93068BEE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135131.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:79A55097A8BD798B06BCAA0879E5AE33FCF1E18C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135132.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135132.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:79A55097A8BD798B06BCAA0879E5AE33FCF1E18C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135133.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:99AC973410D2133492F559FEF94A793E4DE753D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135134.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ magnet:?xt=urn:btih:804ADFB53072C5AF56809382972B5E8970216223
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135135.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ VA - Легенды Русского Рока I (1996) 6CDs Box-Set [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135137.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135137.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135138.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135140.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ AI Translate Voice Translator (Talkao) v388.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135141.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135142.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:1BB1E296597E3847531CFD46DF9187DE443E960E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135143.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:021E2837B6942AE4D49A0DF3C5A84193B47AE8C1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135144.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.47
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135145.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ PC Cleaner Pro 2013 v11.12.12.21 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135146.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ PC Cleaner Pro - программа для оптимизации и очист�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135147.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ magnet:?xt=urn:btih:C8EC2594651F953A92BA7495CB2EBFAED0C8C7AF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135149.jpg" />
 </div>
 
 
@@ -564,78 +639,6 @@ magnet:?xt=urn:btih:C8EC2594651F953A92BA7495CB2EBFAED0C8C7AF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C230B73A09584D139793E974D3FA92A0887A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679697   (135151) от 26.11.2023
-
-Зовите Ермолова! (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Ермолов, успешный хирург и грамотный диагност. Его жизнь превращается в кошмар, когда его обвиняют в смерти пациентки. Пока он пытается доказать свою невиновность, медсестра Настя, полагаясь на репутацию Ермолова, отправляется с тяжелобольной сестрой Лизой в Москву, уповая на его помощь...  Жизнь Андрея рушится: обвинения ставят под сомнение его профессионализм, (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: Драма, мелодрамаРежиссер: Алексей ПраздниковАктеры: Владимир Колганов, Любовь Виролайнен, Анастасия Филиппова, Яков Шамшин, Станислав Беляев, Наталья Высочанская, Виталий Такс, Софья Юрко, Михаил Сидаш, Вера СоловьёваПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0A75AE91E49521D3114B0A3F2AE9A23833C903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592844   (135152) от 23.12.2012
-
-Protoxide: Death Race rus [Игра] (Symbian^3)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Protoxide: Death Race - это интересный симулятор гонок на выживание от компании Herocraft с изумительной HD-графикой и динамичным геймплеем.Тип издания: лицензияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679589   (135153) от 26.11.2023
-
-Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyCharm, 2nd Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135153.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете все необходимое для того, чтобы полностью раскрыть потенциал PyCharm и максимально эффективно использовать его возможности. В книге подробно рассматриваются различные темы, начиная с установки и настройки, заканчивая веб-разработкой, управлением базами данных и созданием конвейеров анализа данных, что поможет вам приобрести навыки разработки (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 ```
 
 

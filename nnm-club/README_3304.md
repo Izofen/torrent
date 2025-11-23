@@ -1,3 +1,84 @@
+###  Публикация: 1742174   (105586) от 10.08.2024
+
+Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Metalcore, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textures - голландская прогрессив-метал-группа, образованная в 2001 году.2003 - Polars
+2006 - Drawing Circles
+2008 - Silhouettes
+2011 - DualismЖанр: Progressive Metal, Djent, Math MetalПродолжительность: 04:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1FC67FD175EE2A83B2ED2907AE2E8287620BB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742109   (105587) от 10.08.2024
+
+That Woman - Find Joy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Space Time & Peace
+02 – I Was Aching
+03 – The Tyger
+04 – Change(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768594EDDF9CF8A18709631AF825B440F0CA0D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742233   (105588) от 10.08.2024
+
+Honey Revenge - Retrovision (2023) Extended Edition, 2024, Thriller Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airhead [00:02:43]
+02. Seeing Negative (Dissapointment) [00:03:15]
+03. Are You Impressed? [00:03:07]
+04. Favorite Song [00:02:42](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC3FC195307A1DA3088CFC83DFD2D6D9FB7E26C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742105   (105589) от 10.08.2024
 
 Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remastered, 2024, Century Media [FLAC 24/96|Lossless|WEB-DL|tracks] <Black Metal>
@@ -6,7 +87,7 @@ Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105589.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105590.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:D00893CD45431E99DA45137536EDD081B0BA240C
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105591.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105592.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105593.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ OpenNumismat 1.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105594.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ magnet:?xt=urn:btih:0DA51CD61653CC34D37C08FBAF2526EB7DCE5677
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105595.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ File & Image Uploader 8.4.5 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105596.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Lumen - Lumen & Orchestra (2024) [MP3|320 Kbps] <Symphonic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105597.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ SnapEdit - AI photo editor v6.7.3 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105598.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ magnet:?xt=urn:btih:8A40E256A51791130AC90C99448A35D4EFEDEACB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105599.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ magnet:?xt=urn:btih:88693FC4FAB35BEFEA3623770E9284C6D4E748EF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105600.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105601.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ Three Drives - Three Drives On A Vinyl Mini Mix 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105602.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ magnet:?xt=urn:btih:2D66DCD8D5372BC38920BE3BC6CF3BEB3BADF21B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105603.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ GeoGebra 6.0.851.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105604.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ Sex Magick Wizards - Death Grip (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105605.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ Gods and Punks - Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105606.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ magnet:?xt=urn:btih:BACBD4BB2467DA498CB553035C0EB160D900A6CB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105607.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ magnet:?xt=urn:btih:B73F68CCA6407F1393E5428865D92303457C5D20
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105608.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ Brianna Harness - Spiritual Ecstasy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105609.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105610.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105611.jpg" />
 </div>
 
 
@@ -590,87 +671,6 @@ Frozen Land - пауэр-метал группа из Финляндии, сфо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18CC09271746C5776160CA7638CBF33E01D2B82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741727   (105612) от 08.08.2024
-
-The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Passed Autumn (Part I) [4:11]
-02. Time Passed Autumn (Interlude and Part II) [2:48]
-03. Time Passed Autumn (Part III) [4:53]
-04. Caprice [4:48](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF111F823CBE550AE29EED52CACF63654F0719C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741752   (105613) от 08.08.2024
-
-Geoff Everett - The Crow Hill Roadsters (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rusty Old Pick up Truck (4:17)
-02. Nothin' is the Same Anymore (3:37)
-03. I Can't Take It (6:53)
-04. Bicycle Blues (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F936481C46E52FEFD00B2702A51325CEDE8FB9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741871   (105614) от 08.08.2024
-
-Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Red & The Black (Live) (5:09)
-02. O.D.'d On Life Itself (Live) (4:53)
-03. Hot Rails To Hell (Live) (5:01)
-04. 7 Screaming Diz-Busters (Live) (7:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5E4F2163BDC88A9E3E32E677A06BFC9DAE703E
 ```
 
 

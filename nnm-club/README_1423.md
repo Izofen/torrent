@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1 Build 12 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37351.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB8E752A2E09E11ABC2BEA4B0AAB3FD471C078E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37352.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CB8E752A2E09E11ABC2BEA4B0AAB3FD471C078E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37353.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mers Academy, Владислав Казмирук | Работа с электр
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37354.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CCleaner 6.30.11385 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37355.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:45126A35853F8DA60D89CEFACBD28AF5BC95670E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37356.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:41F3A8A94CA49261FA134C74BC2974D80572A43B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37357.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8729E4B4ECE8FEAED534FF1F38A5498E17F6A249
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37358.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Melody Gardot - The Essential (2024) 2 x CD, Compilation [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37359.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Rick Wakeman - Yessonata (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37360.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A5504F3A11BC097F68F334D5CA2421DDE58BA727
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37361.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Trance In Motion Vol.382 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37362.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ KineMaster - Video Editor & Maker v7.5.7.34030.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37363.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:6A83C78E47CCFF168B15DC4ECB8F4227BDC73EAC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37364.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:052C34BBF946E7238437BC049DBE254A61AA0BC9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37365.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:469BBC9A2FA6D24E7613F2D6926770AC335B3AC4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37366.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4EB66FB84946ADC29B247CC42E220DC3EEEDA38C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37367.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Simone Kopmajer - Home for Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37368.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Lilah Blackwood - Dancing on His Grave (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37369.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37370.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Top 10 September 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37371.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:150F77FB25C70E30390DD70FE28B5338277405D5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37372.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:F9F9B732B817B8ABB50D87855E2A1AE129EAC12A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37373.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Valkaryus - Metamorphosis (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37374.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Rob Moore the Wild Boar - Chicago Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37375.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Michigan Mick - Big Leg Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37376.jpg" />
 </div>
 
 

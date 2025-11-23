@@ -1,3 +1,76 @@
+###  Публикация: 1514843   (214002) от 05.12.2021
+
+Ольга Гусакова (авт.-сост.) | Хранители веры. О жизни Церкви в советское время: автобиографические истории (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатый век для России стал временем испытания подлинной веры и принёс Церкви сонм новомучеников и исповедников. Но помимо них, были ещё тысячи христиан, пронесшие православную веру сквозь десятилетия атеизма. В книге собраны интервью именно с такими людьми. Это священники и миряне, напрямую столкнувшиеся с гонениями или прожившие внешне спокойную жизнь. Их объединяет (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A288E33993FDCB0599942A1A3F0A335415BBFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270273   (214198) от 18.12.2018
+
+Иеромонах Серафим Роуз | Православие и религия будущего (1991) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E474537D8503DAFE979CD992A1CB3CB30208C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514679   (215624) от 04.12.2021
+
+Форум (изд.) | Житие старца Серафима, Саровской пустыни иеромонаха, пустынножителя и затворника. С приложением его наставлений и келейного молитвенного правила (2002) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_215624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание дает возможность познакомиться с первой подробной книгой о преподобном Серафиме Саровском, вышедшей в 1863 году — через 30 лет после его блаженной кончины и за 40 лет до причисления старца к лику святых. До 1863 года появилось лишь несколько кратких жизнеописаний Саровского подвижника (первое увидело свет в 1841 г.)
+В книгу входят наставления и келейное (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FAC54C6B66BD8BC939E2477DBB5A98600939F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652453   (216990) от 12.08.2023
 
 Святитель Николай Сербский | Вера святых. Катехизис Восточной Православной Церкви (2014) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +79,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216990.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216990.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:E9D0ED1572319C72800613570F84ABB18A0838EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217024.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217024.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:6D8D87D31EA9064B22EDF7A87D017BFF33491C82
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218062.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218062.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:30F2FDC142E79EC4CB2EC8A88836611F53B16416
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218733.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:B2E70B20CA576DA9D76808CD0905AF7DD35F558B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218827.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218827.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:6ADC9E18DBC36F7A03952481E280ECDCD345E1A6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218875.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218875.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:4CA9B0C963E33B28CC0501D2CD2BC77E42843675
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218967.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:841204A5B90CB1877C7DC52809950FDEE4563D53
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218973.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218973.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:B55CAFEFECA3A71E0D63A4244A408108F74514C5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218990.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218990.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:C2C317E5A03F8DD0F00FEE806E0BDAD4EA9AA36C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219737.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219737.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ magnet:?xt=urn:btih:18C1416E010A15C89F1605013B57D4AD07DF754D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220213.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ magnet:?xt=urn:btih:828F18C7A61B394C53307A725D5329B262C9A361
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220259.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ magnet:?xt=urn:btih:94C29ECCB8DA4374338A01F924A0379F7D9857DB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220746.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220746.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ magnet:?xt=urn:btih:7685025CD5D2B28C71D0289EC19FB8EDC6F86912
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220761.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ magnet:?xt=urn:btih:A8E00F5C6A31F3186A3473B36F63E8625DC4CA1A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221136.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221136.jpg" />
 </div>
 
 
@@ -367,7 +440,7 @@ magnet:?xt=urn:btih:FF25B324C8276C06E447CBF915A2E4E673E1367B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221197.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221197.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:2AABD3C0DFADFD94B099326FE4704E52291D07E4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221339.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221339.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ magnet:?xt=urn:btih:404F6F587D6B86788A5E3888661D5643C51A05CB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221515.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:4CD33F7FC1A8D59A55D7D93A98B82690E5CF7DEF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221546.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221546.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:86825A738BA260B4A5B90350C2DFA1C04165A896
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222156.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222156.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ magnet:?xt=urn:btih:7C777403FF356DB24D5AC4E0D7AA60C7CB20C2E6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222160.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:DC184071A27A996DB9701ED7E9FE5809769CF9E8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222171.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222171.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:DA3271F5DDF80A6B7F3C9011504EC9F47CAB3CDB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222239.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222239.jpg" />
 </div>
 
 
@@ -555,78 +628,6 @@ magnet:?xt=urn:btih:DA3271F5DDF80A6B7F3C9011504EC9F47CAB3CDB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9A0996343FC24625FF4D922064A33EF02B9FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620459   (222347) от 21.12.2013
-
-Святитель Феофан Затворник | Наши отношения к храмам (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какое место в жизни христианина занимает храм? На этот вопрос отвечает книга святителя Феофана. Храм, по словам святителя, это "воспитатель духовной жизни, училище, питомник, странноприимница, школа молитвы". Святитель Феофан, касаясь, правил внешнего поведения в храме, говорит о необходимости внутреннего совершенствования и подробно рассказывает об "устроении (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02B10B393D2E547AC429FFB765E4F4BEE440625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788770   (222361) от 20.11.2020
-
-Е.Н. Поселянин | Идеалы христианской жизни (1913) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222361.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В этой книге, носящей заглавие «Идеалы христианской жизни» будут показаны те тихия картины ничем не разрушимаго христианскаго счастья, которое нисходит на человека, внявшаго заветам Христа и воплотившаго их в своей жизни".Жанр: Религиозная литература, православиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA162B6F3E95C77AD74E60BD6DC3CBFF7141DFC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513639   (222580) от 30.11.2021
-
-Сретенский монастырь (изд.) | О терпении скорбей. По учению святых отцов (2003) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учение о тесном пути, преподанное Священным Писанием, излагается святыми отцами весьма сильно, глубоко, ясно, убедительно, в изобилии, как такой род пищи, который имеет важнейшее значение на духовной трапезе духовного слова. «Если хочешь, — сказал преподобный Марк Подвижник, — в немногих словах преподать душеспасительное наставление учёнолюбивому, то преподай ему (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698938036F307DC31A6B7B44D9521B90626610C3
 ```
 
 

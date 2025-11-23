@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34205.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Balatro 0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34206.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6C380B01AD9672328021703448FB1032503F3F67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34207.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dune: Imperium Digital 2.1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34208.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5E6FB274E7614C9887E2718C1329E24F8E2942A0
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34209.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0D617F3048A11DD5217719B30900A4EB424D8E8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34210.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:0D617F3048A11DD5217719B30900A4EB424D8E8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34211.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ TV+ v2.0.2 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34212.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:CD93BB809C4D4F3199F154CA01D2D1B0AE1A4085
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34213.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6F17E0809E429850E46A1F41E487E219D891445F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34214.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Король демонов, поп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34215.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1C0945D7B484B3C50C3BF0A50846E58CAAAD84E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34216.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:1C0945D7B484B3C50C3BF0A50846E58CAAAD84E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34217.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:1C0945D7B484B3C50C3BF0A50846E58CAAAD84E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34218.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:4B543DDBADA853616ADF97C9FB35C1E62415BC5E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34219.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34220.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:DDD846FF66160776AD87D59FCB0A852474BFFB83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34221.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DDD846FF66160776AD87D59FCB0A852474BFFB83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34222.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34223.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B692D5B7FB7A496B58DAD58A7ED8CA89D7CB2343
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34224.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Spotify: музыка и подкасты v8.9.98.488 LiteMod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34225.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1BB16BFE874DCA0E89FCDFB88242D93E212B728F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34226.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1BB16BFE874DCA0E89FCDFB88242D93E212B728F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34227.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1BB16BFE874DCA0E89FCDFB88242D93E212B728F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34228.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:2DA1166D3F4838C04F79D31B3E49EE024F384673
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34229.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:1B8E25B000DFF8B8960B5AC0F2788266A99EBF37
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34230.jpg" />
 </div>
 
 

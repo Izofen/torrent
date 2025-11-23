@@ -6,7 +6,7 @@ Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24396.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24396.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24397.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24399.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ethereal Abyss (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24401.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24410.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Oasis Mission: Colony Sim (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24415.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24416.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24426.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24433.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Learning Factory (2021) [Ru/Multi] (1.1.4a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24443.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24447.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24460.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24463.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24489.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24489.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24490.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24492.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Auto Sale Life (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24499.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24499.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24505.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24510.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ My Life: Zoo Vet / Моя жизнь: Ветеринар зоопарка (2025)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24512.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24514.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.1hf) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24522.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24523.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24533.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24533.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24535.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24535.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24536.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24536.jpg" />
 </div>
 
 

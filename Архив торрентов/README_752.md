@@ -1,3 +1,75 @@
+###  Публикация: 1194569   (155715) от 25.12.2017
+
+Wise Disk Cleaner 9.6.1.684 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33777A2CB08A4451A8B20D02177A57E7927CA390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270822   (155719) от 20.12.2018
+
+Comodo IceDragon 63.0.4.15 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер на основе Mozilla Firefox, сочетающий в себе его основные функциональные возможности с дополнительными инструментами защиты Comodo. Имеет приятный интерфейс и обеспечивает безопасный и быстрый просмотр веб-сайтов.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54F2434A446CE34110E52571D268D78CB0AB0CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676638   (155724) от 14.11.2023
+
+n-Track Studio Suite 10.0.0.8212 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155724.jpg" />
+</div>
+
+
+###  Подробнее
+
+n-Track Studio — кроссплатформенный аудиоредактор с возможностью многодорожечной записи звука (цифровая звуковая рабочая станция), разработанный итальянской компанией n-Track Software. Программа поддерживает неограниченное число аудио- и MIDI-дорожек и позволяет использовать различные виртуальные инструменты (VST, VST3, AU и др.). Имеет нативную версию компьютеров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6B0D0A1A76478B3E6B709F47BA9F9115B6E045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433589   (155728) от 21.12.2020
 
 AV Uninstall Tools Pack 2020.12 [Ru/En]
@@ -6,7 +78,7 @@ AV Uninstall Tools Pack 2020.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155728.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Sleipnir 6.3.3.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155731.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Sync Folders Pro 4.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155740.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:2403082B9D27136316D28BD0B842A155483E9D0C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155747.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Wondershare Recoverit 8 v8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155754.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Lee Gamble - Mnestic Pressure (2017) Hyperdub [FLAC|Lossless|WEB-DL|tracks] <Abs
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155758.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Movavi Photo Manager 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155762.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Audio Hijack 3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155771.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ Brave Browser 0.57.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155773.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Wondershare AllMyMusic 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155775.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:57125DBC1FC2DC8C5EC260B0A860453D9FB357C0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155781.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ Kid3 3.9.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155784.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155792.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ Marc Benjamin - Live @ Orbit Tour, Melkweg Amsterdam, Netherlands 2019-11-11 [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155802.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ FonePaw Android Data Recovery 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155841.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ Translatium 10.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155850.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:7A2022B0BD9FE6577B635BAD6ACCBD62E449B004
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155851.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ WifiInfoView 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155853.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ Frammer X 1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155859.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:BAF04034E596664AED91164BE8AF4445E776BD30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155861.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ Optimage 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155863.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ Alfred 4 Powerpack 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155868.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ magnet:?xt=urn:btih:32279E23921C42539633B4707E6B91F82ED8DB33
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155870.jpg" />
 </div>
 
 
@@ -564,83 +636,6 @@ magnet:?xt=urn:btih:32279E23921C42539633B4707E6B91F82ED8DB33
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433212   (155875) от 21.12.2020
-
-Колдовство: Новый ритуал / The Craft: Legacy (2020) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новенькую старшеклассницу принимает в свою компанию группа из трёх девчонок и вскоре посвящает её в ведьмы.Производство: США, Канада / Blumhouse Productions, Columbia Pictures, Red Wagon EntertainmentЖанр: Ужасы, фэнтези, драмаРежиссер: Зои Листер ДжонсАктеры: Кэйли Спэни, Гидеон Адлон, Лови Симон, Зои Луна, Мишель Монахэн, Дэвид Духовны, Николас Голицын, Джулиан Грэй, Чарльз Вандерваарт, Дональд Маклин мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D32F4BFF28A2FB5F5DA303C47A3C25093CEC9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270694   (155876) от 20.12.2018
-
-Хоккей. Еврохоккейтур 2018-2019. Кубок Первого Канала 2018. Россия — Финляндия (16.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155876.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 декабря 2018 года, воскресенье. 17:00 МСК
-Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
-Кубок Первого Канала 2018.
-Россия — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A978D1B1698350BB437C6F082628A38EC5BFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346939   (155878) от 21.12.2019
-
-Athentech Perfectly Clear Complete 3 v3.9.0.1711 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C879363F53A5BFDB534CBB8750EDD83B7DE5CBC
 ```
 
 

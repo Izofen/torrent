@@ -6,7 +6,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172038.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172748.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172750.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172764.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172784.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173128.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173132.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173143.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173295.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173299.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173433.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173434.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173543.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173603.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174025.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174025.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174698.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174698.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DARQ (2019) [Ru/Multi] (1.3/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175345.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175345.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175747.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175747.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175882.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175882.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176233.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176312.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176371.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176371.jpg" />
 </div>
 
 

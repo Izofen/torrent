@@ -6,7 +6,7 @@ VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54236.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurod
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54250.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54254.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - 100% Hits: DJ Hits '97 Vol. 3 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54767.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54776.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reg
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54888.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55131.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:2BCF413024024FA95CB3AAD5B1AB5B17ED9714A4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55505.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:864E8F5B582AD8F656C491A4B001322763BFD80B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55512.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55917.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55938.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:96A083306DF2ADFBE3C0742E4B3C27991605FAC8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55960.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56134.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56450.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:3CEF44918444D2B54248307AF07800525EADCB1D
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56548.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56760.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Danny & Armi - Danny & Armi (1978) LP [MP3|320 Kbps] <Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56763.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ A'Studio - Лучшие Песни (2008) [WavPack|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56794.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:B355F1FFAE5D0DE65AD2CD5F11E34D94CDD75ABD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56864.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56866.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1F0E6DA9657864C24618B6699FF4202A6EB27E2E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57037.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:1DCF7C370C646CB5FE06E0C3B2A717268770F299
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57038.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:FA7B92807B9BDB63377A5A0BD41EFB50FF4162C9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57042.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Bisquit - The Ultimate Singles Collection (2003) Limited Edition, Unofficial Rel
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57191.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:119A2DB1A06FC3AA041A60CEAB08C170C5ECAE06
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57453.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:A833FF3B37F6B076B910F8F68EA78FE542C81D86
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57457.jpg" />
 </div>
 
 

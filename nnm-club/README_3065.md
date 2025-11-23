@@ -1,3 +1,79 @@
+###  Публикация: 469823   (97172) от 18.03.2012
+
+Мастерская рыбака. Модернизация зимнего балансира (2011) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ловля зимой на балансир очень популярный вид ловли в среде наших рыболовов. И сейчас, когда купить такую приманку не составляет большого труда, встает вопрос: а можно ли изменить или модернизировать такую приманку, чтобы она стала ещё более уловистой. Сегодня А. Гуров покажет вам, как можно сделать такой балансир в домашних условиях.Жанр: Документальный, Телепередача, СпортПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469686   (97173) от 18.03.2012
+
+Спартакиада. Локальное потепление (2007) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая новогодняя комедия о том, как встретились две противоположности и вопреки своей природе взяли да полюбили друг друга. А было дело так: небедный владелец фабрики по производству новогодней мишуры ехал в офис, а очутился на спартакиаде, где познакомился с блондинистой карьеристкой, на дух не переносящей бизнесменов…Жанр: Фэнтези, Комедия, СемейныйРежиссер: Виктор ЛакисовАктеры: Анна Горшкова, Анатолий Калмыков, Саша Комарова, Максим Коновалов, Александр Носик, Сергей Олексяк, Галина Петрова, Вячеслав Разбегаев, Илья Рутберг, Алексей МаклаковПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470019   (97175) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 100
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97175.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 100
+Название: Desktop Wallpapers Pack 100
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469682   (97176) от 18.03.2012
 
 Вымирающая порода / Dying Breed (2008) DVD5
@@ -6,7 +82,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97176.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97177.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:F91E4096F46F1D3C4A1CD29A23A7643ACDED5138
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97178.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:19EFACF6E6383B20A1780C3C524281A529174B04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97180.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:D36C88C595D7CC67A4FC35FC17DB736517343AA1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97181.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97183.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97184.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97184.jpg" />
 </div>
 
 
@@ -176,7 +252,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97185.jpg" />
 </div>
 
 
@@ -200,7 +276,7 @@ magnet:?xt=urn:btih:A72AE32A359965A3DD95FA23026AB1FE5201044F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97186.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ magnet:?xt=urn:btih:3C6D0ADAEF14737A6D227FCD414E686163543BA9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97188.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ VA - Super Electro. Сборник клубных суперхитов (3CD) (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97189.jpg" />
 </div>
 
 
@@ -284,7 +360,7 @@ VA - Ретро Дискотека глазами диджеев Vol-2 (2012) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97193.jpg" />
 </div>
 
 
@@ -317,7 +393,7 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97195.jpg" />
 </div>
 
 
@@ -348,7 +424,7 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97197.jpg" />
 </div>
 
 
@@ -372,7 +448,7 @@ Madmen & Poets - Scandinavian Sunday (2010) 2CD [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97198.jpg" />
 </div>
 
 
@@ -399,7 +475,7 @@ VA - Trance hits vol 2 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97200.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97201.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97202.jpg" />
 </div>
 
 
@@ -498,7 +574,7 @@ Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97203.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97206.jpg" />
 </div>
 
 
@@ -552,7 +628,7 @@ Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97207.jpg" />
 </div>
 
 
@@ -585,7 +661,7 @@ magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97208.jpg" />
 </div>
 
 
@@ -609,7 +685,7 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97210.jpg" />
 </div>
 
 
@@ -620,91 +696,6 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470155   (97213) от 19.03.2012
-
-[Wallpapers] Best Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97213.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 2
-Название: Best Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470258   (97214) от 19.03.2012
-
-[Wallpapers] Nature Wallpaper (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470458   (97215) от 19.03.2012
-
-VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adrew - Super Girl (Extended Version) (4:48)
-2. Alexander Popov - When The Sun (Radio Edit) (3:02)
-3. Alisandra &ampamp; Vernandi - Angel (Radio Edit) (3:42)
-4. Allexinno Starchild - Senorita (Sagi Abitbul Remix) (4:30)
-5. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
-6. Amsterdam Crew - Your Life In My Life (Radio Edit) (3:11)
-7. Andreea Ignat - Phantom Lover (Radio Edit) (3:32)
-8. Boier Bibescu vs Luigi Ionescu - Lalele (Rework 2012) (5:20)
-9. Chris Thrace - Uh Girl (feat. Glorya) (Extended Version) (5:06)
-10. Da Fleiva - Get Out (Of My Mind) feat. Intempo (Extended Mix) (5:15)2012Жанр: Pop,DanceПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 ```
 
 

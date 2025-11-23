@@ -1,3 +1,84 @@
+###  Публикация: 1720927   (110162) от 05.05.2024
+
+Alestorm - Voyage Of The Dead Marauder (2024) EP [FLAC|Lossless|image + .cue] <Power Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Voyage Of The Dead Marauder (Feat. Patty Gurdy) 04:28
+2. Uzbekistan 03:40
+3. The Last Saskatchewan Pirate 04:08
+4. Sea Shanty 2 02:01(   Читать дальше...   )Жанр: Power Metal, FolkПродолжительность: 00:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F586F7BF50AB16C2A24CF3DEAB6CF59BF32D3D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720730   (110163) от 05.05.2024
+
+Депрессивный Психоз - Карма носит ирокез (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Reggae, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карма носит ирокез [00:05:31]
+02. Ядрёный октябрёнок [00:03:05]
+03. С финансами не чётко [00:03:19]
+04. КГБ [00:03:10](   Читать дальше...   )Жанр: Indie Rock, Reggae, SkaПродолжительность: 00:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA5FB6AB48A2E55B1105609D8C88B1059BF8E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721079   (110164) от 05.05.2024
+
+Ibibio Sound Machine - Pull the Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Afro-Pop, World, Disco, Highlife, Nigerian Psychedelic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110164.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pull the Rope (3:29)
+2. Got to Be Who U Are (3:39)
+3. Fire (4:30)
+4. Them Say (4:10)(   Читать дальше...   )Жанр: Afro-Pop, World, Disco, Highlife, Nigerian PsychedelicПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4684B20BE249EE40164BEAE2D1A584EA352E8265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720819   (110165) от 05.05.2024
 
 Сто к одному (05.05.2024) WEBRip [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110165.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Sons Of Thunder - Thunderhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110166.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ dict.cc+ Wörterbuch 12.0.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110167.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:CA4448FF2223601921EA81D6F31FB5AFF2F6965C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110168.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2974 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110169.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:894DD98CC51DF9973C69DA6A157DE02A5D0445F7
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110170.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ magnet:?xt=urn:btih:EB9804ACD44D2B08BF1329FFBB5F9E7413AB6105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110171.jpg" />
 </div>
 
 
@@ -182,7 +263,7 @@ FileMenu Tools 8.4.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110172.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ magnet:?xt=urn:btih:C97E68695AD5D0C8BB31B4CC2269DB8C14768116
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110173.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ Funker Vogt - 3 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110174.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ magnet:?xt=urn:btih:9591D5462B780762DF84AAC1B92B3A4D80D55C01
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110175.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ magnet:?xt=urn:btih:083D085765F64E6FE2247194FA4081C37B8C4029
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110176.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ magnet:?xt=urn:btih:619D788C5CB5F416B7327A28BD23E927B2D4A4AD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110177.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:8600ABF0DEBBE55A3147FF942CBF5A48EE98A8BE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110178.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ Vector Seven - Atlas Industries (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110179.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ magnet:?xt=urn:btih:2E80E2D1A2A7E7FBE2AD5C8875B5AF39F00505D8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110180.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ magnet:?xt=urn:btih:39189A22CF4DA94D1CEE8714224ECFB44D84A716
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110181.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ magnet:?xt=urn:btih:89D040F9C93B373E13B7763543A5DD313F781205
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110182.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ Brave Browser 1.65.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110183.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Danger Silent - The Revival (2024) [MP3|320 Kbps] <Alternative Rock, Post Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110184.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ QOwnNotes 24.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110185.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ Concerto Moon - Back Beyond Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110186.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ Telegram Desktop 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110187.jpg" />
 </div>
 
 
@@ -569,78 +650,6 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D58AB3DE9C7EC58B2C2E72FF68DE141F933C520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721003   (110188) от 05.05.2024
-
-Кукурузные хлопья / Corn Chips (1951) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд заставляет озорников расчистить от снега дорожку у него в саду. Но все превращается в сумасшедшую уборку попкорна!Производство: США / Walt Disney ProductionsЖанр: мультфильм, короткометражка, комедия, детскийРежиссер: Джек ХаннаПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389498C05E64529B8002483D5DC6DAE5EB0EF8FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721014   (110189) от 05.05.2024
-
-Люди из разведки / The Intelligence Men (1965) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110189.jpg" />
-</div>
-
-
-###  Подробнее
-
-По воле случая, скромный менеджер буфета оказывается втянут в опасные игры спецслужб. По просьбе друга из MI5, он соглашается заменить умершего майора Кавендиша, который сумел проникнуть в некую тайную организацию планирующую убийство русской балерины.Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: комедия, детективРежиссер: Роберт ЭшерАктеры: Эрик Моркэм, Эрни Уайз, Уильям Франклин, Эйприл Олрич, Глория Пол, Ричард Вернон, Дэвид Лодж, Жаклин Джонс, Теренс Александр, Френсис МэтьюзПеревод: Одноголосый любительский (Вадим Белов)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29127DC59EB1C029D8C6ABA3FCBC7BA4836F05CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721069   (110190) от 05.05.2024
-
-Новая Битва экстрасенсов (04.05.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 07)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110190.jpg" />
-</div>
-
-
-###  Подробнее
-
-24-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6397309990F54C160620053394C15D15342C98
 ```
 
 

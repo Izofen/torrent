@@ -6,7 +6,7 @@ Free Hex Editor Neo 7.46.00.8715 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50660.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Adguard 7.18.0 (7.18.4774.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50662.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HiBit Uninstaller 3.2.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50673.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Fort Firewall 3.13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50675.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Optimizer 16.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50676.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ DLNow Video Downloader 1.53.2024.07.06 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50680.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ AIMP 5.30 Build 2555 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50681.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Topaz Gigapixel AI 7.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50684.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Glarysoft Malware Hunter PRO 1.186.0.808 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50686.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Fast Video Downloader 4.0.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50695.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Spotify 1.2.40.599 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50698.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe Acrobat Pro 2024.002.20895 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50703.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Advanced SystemCare Pro 17.5.0.255 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Altium Designer 24.6.1 Build 21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50708.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:12D41574699CFAD64953BF24B975685F274ED4D4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50710.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ XviD4PSP 8.1.84 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50719.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ StartAllBack 3.7.11 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50721.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Atlantis Word Processor 4.4.0.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50742.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Topaz Gigapixel AI 7.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50745.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Soft Organizer Pro 9.51 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50748.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FastFlix 5.7.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50749.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ EssentialPIM Pro 12.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50764.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:25383314A75707AB6EF7FCF96697BF85A77DBC7B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50777.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ RAM Saver Professional 24.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50781.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ eM Client Pro 10.0.3117.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50785.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50792.jpg" />
 </div>
 
 

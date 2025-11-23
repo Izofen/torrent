@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E65FEFCC25BDE98835BBCB52BC96B96FBA8A0689
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166839.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4D0A1A41D41A04B3BB6C54BB62064C8F949DD209
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167745.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167858.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169408.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169627.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169851.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170559.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:4D1219B26D961CEF5CDBC9E07AA1AF5B2DBCE0AF
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171282.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:32A0E68383E8B0615A8F7444C1A66F9B396611A0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171713.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:77C9A092074248AAF6C175EC83FC77594BE479CC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172964.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173177.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173349.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:98614D9C7355DDEA19B123CFBEF14D3EDF0702CC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173634.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174368.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174368.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metallica: Fan Can Six - Live in Copenhagen (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174924.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174924.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:1F4A2C5DB75A5BE65B29BCA49B3FDCAECF6BF893
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175268.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AE36D67A435D354168FF70386B28ACAF510E0323
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175293.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7F4BE3788FD87C41E56FE8B80CA9805CF1026813
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175818.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175818.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:9D8EAB983EF9F476B04D077470E95DBA3D600C29
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176062.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A86DC9415E8E806D3A6E88692015E42DBE6F2029
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176070.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9D599C638ECC639CFDD0E2574F694FD644832057
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176685.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176685.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6B03A983FD1190E4B030E1683F45D3540CD7EE5F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178058.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178058.jpg" />
 </div>
 
 
@@ -591,6 +591,31 @@ magnet:?xt=urn:btih:79D3E4A2A896DDBAB1A1C6E934B9F89E247FC106
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696251   (179238) от 04.10.2023
+
+Денис Фонвизин - Недоросль (1987) DVDRip (Малый Театр)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Малого Театра по пьесе Дениса Фонвизина "Недоросль".
+Помещичья усадьба. Семейство Простаковых. Здесь все подчинено воле полновластной хозяйки, опекающей и не дозволяющей вольности не только своим дворовым, но и родным. Единственная радость и отрада материнскому сердцу - любимый сыночек Митрофанушка, для которого не жалко ничего, в том (   Читать дальше...   )Жанр: Телеспектакль, комедия, экранизацияРежиссер: Виталий Иванов, Владимир СемаковАктеры: Сергей Харченко, Элла Далматова, Игорь Лях, Галина Скоробогатова, Николай Верещенко, Афанасий Кочетков, Людмила Суворкина, Роман Филиппов, Аркадий Смирнов, Евгений Буренков, Виталий Коняев, Сергей Вещев, Валерий НосачПродолжительность: 01:06:15 + 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588372AD06182D7D0DC7FB68C98288F8D4CCD24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593531   (180393) от 27.11.2022
 
 Квартирник у Маргулиса. Стас Ярушин и МузLoft Band (26.11.2022) WEBRip [H.264/1080p]
@@ -599,7 +624,7 @@ magnet:?xt=urn:btih:79D3E4A2A896DDBAB1A1C6E934B9F89E247FC106
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180393.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180393.jpg" />
 </div>
 
 
@@ -626,7 +651,7 @@ magnet:?xt=urn:btih:3D17D78748492A0FDD22ACA2ECB032D93F28973D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181307.jpg" />
 </div>
 
 
@@ -640,35 +665,6 @@ magnet:?xt=urn:btih:3D17D78748492A0FDD22ACA2ECB032D93F28973D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D933749FAC315EBF4C8570084494F5F2F1E5E44C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665458   (182012) от 30.09.2023
-
-Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура Two Steps From Hell, прошедшего летом 2022 года под руководством авторов проекта Томаса Бергерсена и Ника Феникса.
-Музыкальная программа первых европейских гастролей включает 28 лучших композиций, накопившихся за 16 лет существования проекта.
-Относительно студийных/альбомных версий, живое выступление имеет ряд (   Читать дальше...   )1 Empire of Angels
-2 Cannon in D Minor
-3 After the Fall
-4 Unbreakable(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 02:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9CCADF1848D099EB8CDDA3B8E26681160FB07D
 ```
 
 

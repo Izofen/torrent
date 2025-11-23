@@ -6,7 +6,7 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3E296ACF39B47D6739089D8643D6E06EE55131EE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42840.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DF7947B5B945A5C353F3354027024CC36C0B64C9
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42841.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42842.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Myths Of Orion: Light From The North (2014) [Ru/Multi] (1.11.7.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42843.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ ImgDrive Pro 2.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42844.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FABA2F1E55E02BAD9B1BBF7DCF104795CB3A941C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42845.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Free Download Manager 6.24.2.5857 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42846.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8AEDE23E58DFB5DB5B182A42BD5F8D2FF10C2466
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42847.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CC943F632F97135EEDB7F36FEBEB1E499595C2A4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42848.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:2B2A0367DE11624BD0C1783065BD8C0F1DC0F41C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42849.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:860E9098B4AFC4A0511D5E14775DA5F52493BA4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42850.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A9D13D50D52E6CDFB80DACBC686C16EEFA3F4DAD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42851.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:84610D4E3C34BABF97C484EA4427AAFF39B43866
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42852.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:84610D4E3C34BABF97C484EA4427AAFF39B43866
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42853.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:92B1DB08662004F44ACBEAA26315140957B6D2BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42854.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:35948B5EBB1A0512924FC69056C892FB571E178C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42855.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8EF3A7D1F78AC579B020E814CB54BBC01B1AA3B6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42856.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1B01214F602DC7343AB396BF3545B90DE6CF7EC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42857.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42858.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:808E5123DA55BDD504B3C7B013A0EF011C3D6B39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42859.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Crash Bandicoot - Original Trilogy 3D (2011) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42860.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:168069F2FDC1354EE88AE8916E637E3CC0FEADF5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42861.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:52004128047D064A680A3473DE1ACED38A10B9E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42862.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:25554E52C248095E142560FBEF9CEBAC288A0EE7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42863.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ RustDesk 1.3.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42864.jpg" />
 </div>
 
 

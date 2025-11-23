@@ -6,7 +6,7 @@ VA - Blue Note Live At The Roxy Vol.2 (Carmen McRae, Earl Klugh, Gerry Brown, Ge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158712.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Piano Jazz Christmas by JazzEcho (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158959.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159029.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159031.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159043.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159061.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159067.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159073.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Frank Sinatra - Platinum (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159237.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dave Stewart & Hannah Koppenburg - Cloud Walking (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159337.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Stacey Kent - Summer Me, Winter Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159350.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Michel Sardaby - In New York (1972) 1997, Sound Hills Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159373.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Stu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159386.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159427.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159433.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159633.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Blues Shop Trio - Decade (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159648.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Reverend Stomp - Mokara (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159654.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159659.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159660.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159662.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159663.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159874.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Randy Crawford - Through The Eyes Of Love (1992) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159908.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jeremy Pelt - Live In Paris: Noir en Rouge (2018) HighNote Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159967.jpg" />
 </div>
 
 

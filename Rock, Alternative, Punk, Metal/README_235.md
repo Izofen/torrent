@@ -6,7 +6,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149438.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darkness Ablaze - It All Shall Burn (2023) [MP3|320 Kbps] <Melodic Death, Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149451.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149481.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lacrimosa - Leidenschaft (2021) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149487.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149502.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149713.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ JETE - Заживое (2021) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149731.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B80F9B86448AA3C5B3A9F19A797824D2D6F41195
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149759.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:85FC3A5B284C43B1BDFD29ECC7C8AD0764777A5A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149797.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149812.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kreator - Love Us Or Hate Us - The Very Best Of The Noise Years 1985-1992 Years 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149824.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aborted - ManiaCult (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149843.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149868.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149871.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149874.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Memories Of Old - The Zeramin Game (2020) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149879.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Ancestry Program [TAP] - Mysticeti Ambassadors Part 1 (2021) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149880.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149894.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dance Gavin Dance - Tree City Sessions 2 (2020) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149903.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ King 810 - La Petite Mort Or A Conversation With God (2016) [MP3|320 Kbps] <Nu-M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150058.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1D23C0C5A8A2D60D72D255D43F7D38A45E1D029C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150069.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A6D0A10FCAB87CD0695CEC22F314F0E662462718
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150156.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Distemper - 25 (2014) [FLAC|Lossless|tracks] <Ska Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150194.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dire Straits - Brothers In Arms (1984) SACD Hybrid, Remastered, 20th Anniversary
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150230.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Pat Travers and Carmine Appice - The Balls Album (2016) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150240.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Soundgarden - Songs From the Superunknown (1995) EP [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150282.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61197.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62011.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63887.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64512.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:B3701FB5CC13D9D50267AB4D558EF2B264408425
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65305.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65428.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:50F88101C29AA50609C53417AAAC1ADEEF80F4E7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66303.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:4E10B346B3D2CB761030C81BC1C35BBDF194ED95
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66487.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66621.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66745.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66749.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66750.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66794.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66805.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66806.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66810.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66816.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upsca
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67638.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67931.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67938.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69173.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69262.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69285.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:96DC2AD5DED3EE3631F7F10AAC4E782125842F5F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69652.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:E46EF0DFFA41198FCE9701C20ABAF1849C8443E8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69713.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70000.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1729679   (108030) от 12.06.2024
+
+Драган Дамьянович | Святая Анастасия Сербская. Чудеса и пророчества (2019) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском языке поразительная история жизни преподобной Анастасии Сербской, всенародно почитаемой в Сербии чудотворицы и святой. Книга рассказывает о многих удивительных чудесах, которые совершались и продолжают совершаться ее молитвами. Книга также содержит пророчества святой о будущем русского народа и торжестве православной веры. Автор книги Драган Дамьянович (   Читать дальше...   )Жанр: ПравославиеИздательство: ЭксмоФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D5915D603987D76A375E0B5ED638A8394FA412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729598   (108031) от 12.06.2024
+
+VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Oasis (4:58)
+02. Chillaxing Jazz Kollektion - Still Waters (4:41)
+03. Konstantin Klashtorni - Let's Chill (5:29)
+04. Kool&Klean - Guessing Game (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58CBB0D9161343EB219D2225547E7A03FD5DA47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729744   (108032) от 12.06.2024
+
+Highways - Never Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108032.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Denier
+2. Lost Oasis
+3. Shattered Pane
+4. In The Dark(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C75B8B909311473486A423909F761043249AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729775   (108033) от 12.06.2024
 
 Два старателя / De to guldgravere (1909) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108033.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108034.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108035.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108036.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108037.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108038.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:E05AF4CC26C7258BA50444BAE2C5A129823F8928
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108039.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:C1FBB5F48DBAB3A7F61D9D00EA4EE0079365C8BD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108040.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ magnet:?xt=urn:btih:81B03351779F03C527F03931812CEE09584F2272
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108041.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ magnet:?xt=urn:btih:DFC75974E257E3FCDF84C04B819C1DA2E1FAF33F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108042.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ Photo Studio PRO 2.7.5.2705 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108043.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ magnet:?xt=urn:btih:6DF9A1122AF83252DBF06FF7D26E91EE96754C0B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108044.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108045.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108046.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ magnet:?xt=urn:btih:435278BB18A7BDB7468C3D55929A98AFE41E7324
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108047.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ Opera GX 109.0.5097.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108048.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ Firefox Browser 127.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108049.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ Carmen - The Albums: 1973-1975 (3CD Boxset) (2024) Remaster, 2024,  Esoteric [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108050.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Borne of Ash - From the Dark, They Came (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108051.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ VA - DJ Hits Vol. 50 (Limited Edition) (1996) [OGG Vorbis|480 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108052.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ VA - DJ Hits 49 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108053.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ VA - DJ Hits 51 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108054.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ magnet:?xt=urn:btih:2B32D208289451345BD9EC684584F2BA780EAC70
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108055.jpg" />
 </div>
 
 
@@ -578,78 +656,6 @@ magnet:?xt=urn:btih:2B32D208289451345BD9EC684584F2BA780EAC70
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CBC56B078482A440624135222D213F016869422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729636   (108056) от 12.06.2024
-
-Журнал | Лечащий Врач (том 27) №6 (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7846CC9D1B6D01F63370DD3623DE2B8B16078793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729615   (108057) от 12.06.2024
-
-Шах и мат / Menudas piezas / Checkmates (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Канделы в одночасье кардинально меняется, и она из успешной преподавательницы элитного колледжа превращается в простую училку в не самой лучшей школе «на районе». Теперь ей придется обучать трудных подростков из неблагополучных семей. Благодаря Канделе у компании школьных аутсайдеров появляется реальный шанс стать чемпионами страны по шахматам. Ведь в шахматах (   Читать дальше...   )Производство: Испания / Aragon TV, Ayuntamiento de Zaragoza, Diputación de ZaragozaЖанр: комедияРежиссер: Начо Г. ВелильяАктеры: Александра Хименес, Луис Кальехо, Росио Велайос, Пабло Луазель, Вероника Сенра, Кико Бена, Tuoxin Qiu, Франсеск Орелья, Мария Аданес, Мигель РельянПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:00Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729607   (108058) от 12.06.2024
-
-Draw.io 24.5.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92895A1284C7534A8A0CB4B19698D4C9EB8F5740
 ```
 
 

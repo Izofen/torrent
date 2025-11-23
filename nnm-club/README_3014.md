@@ -1,3 +1,75 @@
+###  Публикация: 1821876   (91221) от 04.10.2025
+
+Футажи - ActionVFX - Bleeding Wounds [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91221.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 элементов кровоточащих ран от порезов, пулевых и других ранений.Формат: MOVРазрешение файлов: 2048x1080 - 4096x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD28642C3777227976C16AC514D2D6D1B4F846D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821779   (91222) от 04.10.2025
+
+Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) Repack Let'sРlay [Soundtrack Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте своего собственного хоббита, отправляясь в Байуотер. Хотя Хоббитон пока не получил статус официальной деревни, внесите свой вклад в процветание этого очаровательного городка. Встречайте уют у порога, украшая свою хоббитскую нору, ухаживая за садом, ловя рыбу в чистых прудах, собирая дикие фрукты и травы или торгуя с горожанами. Готовьте домашние блюда, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Wētā WorkshopЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821874   (91223) от 04.10.2025
+
+Пресеты - Ted Forbes Preset Pack 01 [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет пресетов от Теда Форбса для ваших творческих задач.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6284D852F1933F55C39D2E270DD7FCD86954A96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821873   (91224) от 04.10.2025
 
 Шрифты - Creative Market - Esmarya - Modern Serif - 291527416 [OTF, TTF]
@@ -6,7 +78,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91224.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91225.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Master PDF Editor 5.9.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91226.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Reg Organizer 9.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91227.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Revo Registry Cleaner Pro 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91228.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:7386796A6674D8C0E0CFEA3248BACC129A4BE20D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91229.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:A01DCD7638708A2ACCFF86B1EFBD0DA2DEE8D173
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91230.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:0E1BD53E16F9C4C15455EFFFE2A6D57429EAA08A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91231.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:04B43BAE82634E42C025BF84C456FF8E0B114864
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91232.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:1499BBC7FA6C6892361660A95074157AFB3AECDE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91233.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91234.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91235.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:6B8A391924D6EF46C081DAFBB1AA330EAE5332EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91236.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91237.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:5D4AB79DA4620AD6ADEA4F4B089A11F8ADEEB062
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91238.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:6CEFA6D315F52BA3971E0826687006C3E858752D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91239.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:FDE7406BA6B651F410EA7DB8780E88BF4DB377E0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91240.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:24BA980FAC919FCA1CE827CBFFA719FFB69A7EED
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91241.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ magnet:?xt=urn:btih:B8CA199960A3C2E5D9ED3527FEA1F0430660484E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91242.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ magnet:?xt=urn:btih:F5E506BB31F0BB6912434A4D691C51AF1B5F7F9F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91243.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ magnet:?xt=urn:btih:0C8E3C6E830A6BD3C9E61A8192F3A17B67A44A23
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91244.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ magnet:?xt=urn:btih:12C965CF996BBAA52E364483149CD1B984957221
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91245.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ magnet:?xt=urn:btih:BE22E95B1C954A4060D12FBBE846859BD196D095
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91246.jpg" />
 </div>
 
 
@@ -546,79 +618,6 @@ magnet:?xt=urn:btih:BE22E95B1C954A4060D12FBBE846859BD196D095
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8887C3CC24588A08BEA050F2E4D123C23D2C68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821828   (91247) от 04.10.2025
-
-Шрифты - FontStruct - Evgeny Koroletov - FCZL Font [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт FCZL - это модульный геометрический шрифт, вдохновленный эстетикой культуры футбольных болельщиков и граффити. Это ремейк шрифта FCZL, который был создан в 2012 году.
-От автора: Это был мой самый первый шрифт, и я посвятил его футбольному клубу "Заря" (Украина), а точнее, сообществу болельщиков луганской "Зари". Я был активным участником (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821829   (91248) от 04.10.2025
-
-Код 3 / Code 3 (2025) WEBRip [H.264] [Локализованная версия]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэнди, фельдшер скорой помощи из Лос-Анджелеса, устал от своей работы и хочет немедленно уволиться, но его начальница уговаривает мужчину отработать ещё один день. Последнюю смену Рэнди и его напарник Майк должны провести с проходящей обучение Джессикой, которую им предстоит подготовить к работе вместо Рэнди.Производство: США / Circle of Confusion, Realdream, Concourse MediaЖанр: боевик, комедияРежиссер: Кристофер ЛеонеАктеры: Рэйн Уилсон, Лил Рел Ховери, Эйми Карреро, Роб Риггл, Иветт Николь Браун, Пейдж Кеннеди, Шоло Маридуэнья, Тереза Линн О’Тул, Тереза МакЛафлин, Айеша ХаррисПеревод: Дублированный (CPI Films)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB6AA1DA02EC0D6EBA649A1B5752EA6C9606384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821816   (91249) от 04.10.2025
-
-География Уральских Пельменей - Мадагаскар (2025.10.03) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пусть сегодня ещё сентябрь, но мы-то мыслями уже в октябре, потому что в первую же пятницу октября нас снова ждёт премьера!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9B2C62ACF078D92A4130C715F6DD5BE73E1512
 ```
 
 

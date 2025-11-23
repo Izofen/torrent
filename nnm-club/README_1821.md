@@ -6,7 +6,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47701.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:896CFED4C1D1780B5AA7235BB5B235D2850C54D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47702.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47703.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47704.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:53FA6A2C1936BAEFF200C44BC44508FB4B2200A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47705.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0675505DC3936F68DED9820B65CB4C56FA8AFDC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47706.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.8.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47707.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6912FD557CCCB7BECC352D1AAF976831165C8BF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47708.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47709.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47710.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A202665C4A7C01CADF65024EBB29161229313C7A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47711.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 Pro 22H2 19045.4651 x64 by SanLex [Lightweight] [Ru/En] (2024.08.05)
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47712.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:CF13B4B54B4B67349656BC145ADC52EFCC469C5E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47713.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:CF7A68CB375FD83CA0B6E0EC5B4AF8993CA2A291
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47714.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:4B8820248EB145AB84F31CAC2082222C3B4AEF0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47715.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47716.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:483C85779B27414904BD25197D9FE953FAD5E6D4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47717.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1F26F6591C12812C087835168EEB2EF724A0508C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47718.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6F24735C1425506C6C79CA74F0986D166B262FFF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47719.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:340DEA497963C599B81BD14C04AAB6BA28B2AE24
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47720.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:340DEA497963C599B81BD14C04AAB6BA28B2AE24
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47721.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:829278B70D2A7FE78D2A95EA3CC7EFA93FC68D77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47722.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:BD16D627BACA019F7AC66F25AE32940DE2863595
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47723.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DF0E51559ABBC15D2E3E449B58FA4E31C1BEB4CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47724.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1E4EF94F5BC89ADAA8B4174CF7889E0126F97276
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47725.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:1E4EF94F5BC89ADAA8B4174CF7889E0126F97276
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47726.jpg" />
 </div>
 
 

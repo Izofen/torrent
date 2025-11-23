@@ -1,3 +1,160 @@
+###  Публикация: 590645   (140208) от 18.12.2012
+
+VA - Mystical Lounge - The Best Mystical Tunes (2012) [MP3|320 кб/с]<ChillOut, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence & Margot Reisinger - Contemplating Maitreya
+02. La Caina - Do Tara Alap
+03. DJ Ravin & Carlos Campos - I Must Confess
+04. Eddie Silverton - Asato Maa
+05. Czech Philarmonic Chamber Orchestra feat. Sophie Solomon - Love Theme from Ben Hur (Bombay Dub Orchestra Remix)
+06. Green Empathy - Kamasutra
+07. Red Buddha - White Bamboo
+08. La Caina - Mysterious
+09. Percusion - Percusion (Part 1)
+10. Ozgtir Sakar A.K.A. Misda Oz vs. Mercan Dede - Ab-i Beka(   Читать дальше...   )Жанр: ChillOut, Lounge, DowntempoПродолжительность: 04:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920AB01694FE255217717586892C7737CB9E30C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970405   (140210) от 30.12.2015
+
+Джеймс Кори | Пожар Сиболы (2015) [FB2]
+
+>>След.
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла «Пространство».
+
+Открытие порталов, так называемых врат, повлекло за собой массовую колонизацию новых миров. Тысячи людей устремились на поиски лучшей жизни. Однако независимым переселенцам пришлось столкнуться мощной корпорацией, получившей лицензию на изучение неизведанных территорий. На далекой планете Илос разгорелась настоящая война, грозящая (   Читать дальше...   )Жанр: Космическая фантастикаПеревод: Г.В. СоловьёвойФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BD3BCA56BE2E815C96CAE68AA1BAB3B5745B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272708   (140211) от 29.12.2018
+
+Б.А. Новиков, E.A. Горшкова | Основы технологий баз данных (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены основы теории баз данных, методы и алгоритмы, применяемые при реализации систем управления базами данных, а также особенности этих методов и алгоритмов, реализованные в СУБД PostgreSQL.
+
+Материал книги составляет основу для базового учебного курса и содержит краткий обзор требований и критериев оценки СУБД и баз данных, теоретическую реляционную модель (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB386DB656D70D353FA32F077292FDC5CF27885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195815   (140213) от 30.12.2017
+
+Уральские пельмени. Новогодние песни (2017) WEB-DLRip (Часть 1)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FED13847D3239B72B939279482E2DE7772B54B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435814   (140214) от 29.12.2020
+
+Мы можем стать героями / We Can Be Heroes (2020) WEB-DLRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа детей пытается спасти своих родителей-супергероев, похищенных инопланетянами. Для этого они сбегают из правительственного убежища.Производство: США / Quick Draw Productions, Troublemaker StudiosЖанр: Фэнтези, боевик, семейныйРежиссер: Роберт РодригесАктеры: Педро Паскаль, Приянка Чопра Джонас, Кристиан Слэйтер, Бойд Холбрук, Тэйлор Дули, Кристофер Макдональд, Сон Ган, YaYa Gosselin, Хейли Рейнхарт, Акира АкбарПеревод: Дублированный (Netflix)Субтитры: Русские (Forced), АнглийскиеПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643595735C74321576318A26E04167C5C9960EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520622   (140215) от 29.12.2021
+
+Конь (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конь - фильм о том, что не все деньги приносят радость и счастье, а некоторые даже могут убить.Производство: РоссияЖанр: Короткометражный, триллерРежиссер: Алексей НебоженкоАктеры: Майя Вознесенская, Алексей Небоженко, Дмитрий Коптев, Олег Морозов и др.Субтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922120DBBD6EFA6775B5145CEC06DBAD4FA2BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679243   (140216) от 24.11.2023
 
 Козьма Прутков | Директор Пробирной палатки (Радиоспектакль) (2019) [MP3, Игорь Дмитриев, Николай Мартон и др.]
@@ -6,7 +163,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140216.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ magnet:?xt=urn:btih:CD65F399F4D7CE7D055E7AF48D4296E38103869B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140217.jpg" />
 </div>
 
 
@@ -56,7 +213,7 @@ magnet:?xt=urn:btih:44DE2488FDB93B6167A48B4A55A79F8ED4E707CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140218.jpg" />
 </div>
 
 
@@ -80,7 +237,7 @@ magnet:?xt=urn:btih:EDF39627A89E396323794A3C427AB40957712A8C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140220.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ magnet:?xt=urn:btih:EDF39627A89E396323794A3C427AB40957712A8C
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140222.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ magnet:?xt=urn:btih:A41399B3B4959A2B0AC6CC702409B955CB7B3A8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140223.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ magnet:?xt=urn:btih:6D864D0FD538EFC834E0BC7741D2CFBF5A20D67E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140224.jpg" />
 </div>
 
 
@@ -186,7 +343,7 @@ Camel - Moonmadness (1976) Remastered & Expanded Edition, 2023, UMC-Decca [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140225.jpg" />
 </div>
 
 
@@ -213,7 +370,7 @@ magnet:?xt=urn:btih:48731DBF2E00EED563428B815E4BD85F48EBD47D
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140226.jpg" />
 </div>
 
 
@@ -239,7 +396,7 @@ magnet:?xt=urn:btih:8DBFC124762EE7B7204A1AB732F3B10B3759B3F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140227.jpg" />
 </div>
 
 
@@ -264,7 +421,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1141 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140228.jpg" />
 </div>
 
 
@@ -288,7 +445,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.12.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140229.jpg" />
 </div>
 
 
@@ -312,7 +469,7 @@ magnet:?xt=urn:btih:335B0F82D04454CFEC5D5BDA048BAF52E1BD27FD
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140230.jpg" />
 </div>
 
 
@@ -336,7 +493,7 @@ magnet:?xt=urn:btih:6D7B3AC6C93B6DABC1AEE6088D63425F66003EF7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140231.jpg" />
 </div>
 
 
@@ -361,7 +518,7 @@ VA - Умная Электроника (Музыка Поднимающая На
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140233.jpg" />
 </div>
 
 
@@ -388,7 +545,7 @@ Picview - Image Photo Browser for Mac 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140234.jpg" />
 </div>
 
 
@@ -412,7 +569,7 @@ Aiseesoft Video Converter Ultimate 9.2.30 RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140235.jpg" />
 </div>
 
 
@@ -436,7 +593,7 @@ magnet:?xt=urn:btih:2757FFC9DD329FC3080D8BE2252A9F319C5F2E99
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140237.jpg" />
 </div>
 
 
@@ -460,7 +617,7 @@ magnet:?xt=urn:btih:2757FFC9DD329FC3080D8BE2252A9F319C5F2E99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140238.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ magnet:?xt=urn:btih:4EE686323BAF9A4D0B97BDAB2100359C345DCE12
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140239.jpg" />
 </div>
 
 
@@ -496,159 +653,6 @@ magnet:?xt=urn:btih:4EE686323BAF9A4D0B97BDAB2100359C345DCE12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB7ACC31A293B09AABC3C8DC30561801428BB46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435020   (140240) от 29.12.2020
-
-Бриджертоны / Bridgerton (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) OmskBird [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140240.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о восьми дружных братьях и сестрах влиятельной семьи Бриджертонов, которые пытаются найти любовь.Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Шери Фоксон, Олрик Райли, Джули Энн РобинсонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк Ньютон и другие.Перевод: Многоголосый профессиональный (OmskBird)Продолжительность: ~00:56:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272071   (140241) от 29.12.2018
-
-Дем Михайлов | Тернистый путь вниз (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман подсерии "Герои Крайних Рубежей".
-Мир Вальдиры резко расширил свои границы - Великий Поход успешно завершен, боевые армады достигли далеких берегов. Начата колонизация, временно позабыв вражду, кланы взялись за освоение нового материка. Все рвутся к новым землям. Все стараются урвать себе кусок. Росгард вместе с друзьями успешно основал свой (   Читать дальше...   )Жанр: Боевое фэнтези, ЛитРПГПродолжительность: 10:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70FBDBF269ADE250FAC83918F9F3BEB53BD9B71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970602   (140242) от 30.12.2015
-
-CleanMyMac 3.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140242.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 -Лучшее приложение для чистки Мака.
-CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально сортируются (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 декабря 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DD8699354301A27D22586157213D88C9622803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591055   (140243) от 18.12.2012
-
-Василий Сахаров | Булавин [2012] [DOC]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140243.jpg" />
-</div>
-
-
-###  Подробнее
-
-1707-й год. Войско Донское. По указу царя Петра Алексеевича Романова на Дон послана карательная экспедиция, которая уничтожена казаками атамана Кондратия Булавина. Начинается восстание, гибнут тысячи людей, горят казачьи городки, а мятежный атаман убит предателями. Так было в нашей с вами истории. Но есть что-то, что может изменить весь ход событий. Это человек из нашего времени, который попадает в тело молодого паренька, готового действовать, а не наблюдать за всем происходящим со стороны или исполнять роль статиста.Жанр: Альтернативная историяФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A507BE8585BA913238A3BBFA28E0B5B683336E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088302   (140244) от 30.12.2016
-
-Дэвид Рокфеллер и др. | Антология «мировой закулисы» (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы этой книги Д.Рокфеллер, Г.Ротшильд, Г.Киссинджер, З.Бжезинский, Дж.Сорос - самые влиятельные люди мира, те, кого считают "мировой закулисой" и членами "мирового правительства"; все они входили (и входят) в знаменитый Бильдербергский клуб.
-
-В книге представлены их воспоминания, публицистика, аналитические произведения, статьи, в которых (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D64C3EA34D689F2958737C57B3BC75C3571E65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679160   (140245) от 24.11.2023
-
-Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Electro, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atma [00:03:45]
-02. A Million Miles [00:04:56]
-03. Silicon Dreams [00:04:02]
-04. Downfall [00:04:27](   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B972888759BEE32F730C158F5DD81CAFD1834335
 ```
 
 

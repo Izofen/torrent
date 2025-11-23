@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18940.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:27AC0C39F2C5B46D6C661CDE35331F6A7B24DF06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18941.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:741D1A933207920838B6311B5229AA678BFCD413
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18942.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.10.5 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18943.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Through the Darkest of Times v1.0.18 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18944.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18945.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18946.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D099171239909089AED1841E0D1BA8CBB11ECC3D
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18947.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ BikeComputer Pro v9.1.3 GP Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18948.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Sunset Hills v1.0.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18949.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18950.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18951.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Voodoo Detective v0.0.33 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18952.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18953.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ InnoExtractor Ultra 10.3.0.137 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18954.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Teardown (2022) [Ru/Multi] (1.6.3/dlc) Repack Other s [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18955.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18956.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ MediaHuman YouTube Downloader 3.9.11 (0605) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18957.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18958.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18959.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18960.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Starlink обогнал ракеты: спутниковый интернет п
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18961.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Starlink обогнал ракеты: спутниковый интернет п
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18962.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ HDRezka TV v1.3.0 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18963.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A01CBDD14D80D98A8B2509E816D7D36A2229F095
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18964.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ PIDKey Lite 1.64.4 b48 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18965.jpg" />
 </div>
 
 

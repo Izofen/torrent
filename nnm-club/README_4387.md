@@ -1,3 +1,78 @@
+###  Публикация: 1679749   (135245) от 26.11.2023
+
+SuperDuper! 3.8 ARM [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135245.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2023Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A2EA7991FC62280B639488B85797FA2F4957D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583589   (135246) от 23.12.2012
+
+Эта замечательная жизнь / It's a Wonderful Life (1946) 2xDVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135246.jpg" />
+</div>
+
+
+###  Подробнее
+
+По книге "Величайший подарок" Филипа Ван Дорена Стерна. Действительно лучший праздничный подарок на все времена. Эта согревающая сердце фантазия, один из самых популярных фильмов за всю историю кино, начинается с того, что ангелы обсуждают Джорджа Бэйли (Джеймс Стюарт), жителя небольшого городка, настолько расстроенного бесчисленными проблемами, что он подумывает о самоубийстве в канун Рождества. Ретроспекцией дается жизнь Джорджа, мы узнаем, что он всегда хотел уехать из родного города, чтобы повидать мир, но обстоятельства и его собственное доброе сердце не дали ему покинуть Бедфорд Фоллз. Он пожертвовал собой ради образования брата, он копил каждый цент, чтобы поддерживать семью на плаву, брал взаймы, защищал городок от злого банкира Поттера (Лайонел Бэрримор), он женился на девушке, которую любил с детства (Донна Рид) и содержал и эту семью. И вот, в настоящем, Джордж готовится прыгнуть с моста, но вместо этого спасает своего ангела-хранителя, Клэренса Оддбоди (Хенри Трэверс), который явился отрабатывать (   Читать дальше...   )Жанр: Фэнтези, МелодрамаРежиссер: Фрэнк Капра / Frank CapraАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчел, Генри Треверс, Бела Бонди, Фрэнк ФэйленПеревод: Многоголосый закадровый DVD RONEe'S, Многоголосый закадровый SomeWax, Многоголосый закадровый DVD Магия, Многоголосый закадровый ОРТПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8733245CF8CC73D5DB747CFE6C1C3A5D97611D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679560   (135247) от 26.11.2023
+
+Walter Wolfman Washington - Feel So At Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel So At Home Here (4:42)
+02. Without You (5:14)
+03. Along About Midnight (5:15)
+04. Lovely Day (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676473BD081CE34B523D7C7844A88E273248D5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679662   (135249) от 26.11.2023
 
 iToolab FixGo 3.3.0 [En]
@@ -6,7 +81,7 @@ iToolab FixGo 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135249.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Aiseesoft Total Media Converter Platinum 6.3.28 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135250.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135250.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Calendar 366 II 2.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135251.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135253.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ magnet:?xt=urn:btih:5E070865A58D9A3C0CA314C530D4443757E45897
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135254.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Photo Studio PRO v2.7.1.2156 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135255.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:C9581B7DEF0E4AAC334AD6BE5412E290A8B95DAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135256.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135256.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:C9581B7DEF0E4AAC334AD6BE5412E290A8B95DAF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135257.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:BB0CBC498CAE885C0F43279FFCA3675B91702072
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135258.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ SQLPro for MSSQL 2023.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135261.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135262.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135263.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ Node Video - Pro Video Editor 6.9.1 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135264.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ StopMotion for Mac 3.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135265.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ iFunia Video Converter Pro for Mac 7.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135267.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:E51B838FF65F8572099CB799BD56CFEBF3CB77EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135269.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:C69DBB65EAD5931612904AB8936AE3D63FC092EF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135270.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ Blinker The Star - Animal Math (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Shoeg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135271.jpg" />
 </div>
 
 
@@ -453,7 +528,7 @@ USB Disk Security 6.2.0.30 DC 23.12.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135272.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135272.jpg" />
 </div>
 
 
@@ -479,7 +554,7 @@ Logo Art for Mac 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135273.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ PowerDirector – Video Editor v12.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135275.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ The Black Owl - The Black Owl Band (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135277.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:D8A7B67FDA29E914A07470027F75C4AA8BD133B2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135278.jpg" />
 </div>
 
 
@@ -568,81 +643,6 @@ magnet:?xt=urn:btih:D8A7B67FDA29E914A07470027F75C4AA8BD133B2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E1B90DAF08353E24FBCDD4802F739D5136AA74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593300   (135279) от 23.12.2012
-
-День рождения Интера  / День народження Інтера. 16 лет лидерства. Часть №1 (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал "Интер" и его телезрителей поздравят артисты высочайшего уровня: Елена Ваенга, Кристина Орбакайте, Ани Лорак, Лолита, Вера Брежнева, Тина Кароль, Николай Басков, Ирина Билык, Игорь Николаев, Анжелика Варум, Леонид Агутин, Таисия Повалий, Лайма Вайкуле, Наталья Могилевская, "Иванушки Интернешнл" и другие. Ведущие: Максим Галкин с двумя (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA9800C707433F3F0E9E87FA58CBA848A387AB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593136   (135280) от 23.12.2012
-
-Фотография - Photos from Ophelia Overdose Part 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Ophelia Overdose.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA77BF686BCDB244B966BA9F72C142FA0BD6239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679775   (135281) от 26.11.2023
-
-Secret Rule - Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disorder [00:04:18]
-02. Equilibrium [00:04:50]
-03. Shards of Time [00:04:03]
-04. Gravity On Us [00:04:38](   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFC7E105669C6580C5CE05A09B1DA1CA828E4AE
 ```
 
 

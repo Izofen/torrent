@@ -1,3 +1,51 @@
+###  Публикация: 1272688   (142487) от 28.12.2018
+
+IDAGIO - Classical Music v1.6.8 Premium [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142487.jpg" />
+</div>
+
+
+###  Подробнее
+
+IDAGIO - это первая классическая музыкальная потоковая передача, которая предлагает безупречный поиск, созданный для классической музыки. Наряду с простым в использовании интерфейсом и отличным дизайном пользователи уже подтверждают, что IDAGIO имеет «лучший поиск классической музыки». IDAGIO предлагает кураторские плейлисты, а также обширный каталог записей самого (   Читать дальше...   )Тип издания: Пиратка (Куплена подписка Премиум)Релиз состоялся: 19.12.2018Разработчик: Classical Music Streaming - IDAGIOПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195559   (142491) от 29.12.2017
+
+Открытый микрофон (2017.12.29) SATRip (сезон 2, выпуск 20: Дайджест)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142491.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:45:20Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A9DC14C9E8135461B036E0BE5C416842A8252D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272697   (142503) от 28.12.2018
 
 MediaHuman YouTube Downloader 3.9.9.10 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142503.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:37E8B6B6FBBF58250C7EAC0DE30C6CE375789B4B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142517.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:B3AC8A5FDBF59BCC5414C8386DF6F53778E0EAC8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142539.jpg" />
 </div>
 
 
@@ -81,7 +129,7 @@ GiliSoft USB Stick Encryption 6.0.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142547.jpg" />
 </div>
 
 
@@ -105,7 +153,7 @@ magnet:?xt=urn:btih:C83728517FD86A160E563BE89ADBB1172FC0676E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142549.jpg" />
 </div>
 
 
@@ -129,7 +177,7 @@ uDock 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142553.jpg" />
 </div>
 
 
@@ -153,7 +201,7 @@ magnet:?xt=urn:btih:013101D4F90F8A402ADC8F3503442F4527057A88
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142562.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ magnet:?xt=urn:btih:51DD3414F6E0992AD003880E4470E0DF5EF0258F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142563.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ Disk Space Analyzer Pro 3 v3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142583.jpg" />
 </div>
 
 
@@ -226,7 +274,7 @@ magnet:?xt=urn:btih:2FB5246F3307F786130B802614084C09F06C7B49
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142589.jpg" />
 </div>
 
 
@@ -250,7 +298,7 @@ DVDFab 9.2.2.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142597.jpg" />
 </div>
 
 
@@ -274,7 +322,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142604.jpg" />
 </div>
 
 
@@ -298,7 +346,7 @@ BlueHarvest 8 v8.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142606.jpg" />
 </div>
 
 
@@ -323,7 +371,7 @@ magnet:?xt=urn:btih:32D52D95FD1330F98C7D232BF0B209EDBE5DF100
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142638.jpg" />
 </div>
 
 
@@ -347,7 +395,7 @@ Wise Care 365 Pro 5.2.3.518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142640.jpg" />
 </div>
 
 
@@ -371,7 +419,7 @@ GrabIt 4.930 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142643.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ Downie 4 v4.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142654.jpg" />
 </div>
 
 
@@ -422,7 +470,7 @@ Adobe Prelude CC 2015 (v4.1.0) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142664.jpg" />
 </div>
 
 
@@ -446,7 +494,7 @@ Shin Chuuka Ichiban! | Новый мастер кулинарии [2019, TV, 12 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142671.jpg" />
 </div>
 
 
@@ -471,7 +519,7 @@ DiskDigger 1.20.8.2677 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142683.jpg" />
 </div>
 
 
@@ -495,7 +543,7 @@ magnet:?xt=urn:btih:61CE9F78A1362D4B0790DF554C8A884EBD5916C1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142686.jpg" />
 </div>
 
 
@@ -519,7 +567,7 @@ magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142687.jpg" />
 </div>
 
 
@@ -543,7 +591,7 @@ magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142688.jpg" />
 </div>
 
 
@@ -567,7 +615,7 @@ Dropshare 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142693.jpg" />
 </div>
 
 
@@ -579,57 +627,6 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435715   (142714) от 29.12.2020
-
-Chaos Control Premium 1.11 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос-контроль: органайзер целей и задач на базе GTD.
-Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
-Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435888   (142735) от 29.12.2020
-
-Nevercenter CameraBag Photo 2020.30 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142735.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraSag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: NEVERCENTERПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903384C3A41FC2818E5A8AB4E9F052EFE7448846
 ```
 
 

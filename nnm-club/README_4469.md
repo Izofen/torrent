@@ -1,3 +1,78 @@
+###  Публикация: 1679540   (138219) от 25.11.2023
+
+MotoGP. Этап 20. Гран-при Валенсии. Спринт (25.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138219.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2023, суббота 17:00 МСК. Этап 20, Валенсия. Гран-при Валенсии. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEFC09107E9D84AD1E3B7EF08BD5B5A3C39AD41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349259   (138220) от 31.12.2019
+
+VA - XMas EDM Superparty (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jr - Instinct (Original Mix)
+002. Lemonova - Ready For Loco
+003. Raw Funk Maharishi - Fabric
+004. Paradise Nation - You Just Keep Movin(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 11:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEE9EEE3E7F3FA01B43690C64A35F41920D28B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195936   (138221) от 31.12.2017
+
+Интернет-журнал | Домашняя лаборатория №12 (декабрь 2017) [DJVU]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138221.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C49DEEFE0525656D9FD3BB0B628D52B970F57C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970638   (138223) от 31.12.2015
 
 Сергей Матвеев | Новый курс английского языка (2014) [PDF]
@@ -6,7 +81,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138223.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:3F139AFB9693709E4340308D1BF52956FEF5BA2A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138224.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ VA - Shazam Хит-парад Russia Top 100 Декабрь (2020) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138226.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:278C54607DB3755B04514BF3D3291FB7C65D8909
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138227.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ DearMob iPhone Manager 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138228.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ magnet:?xt=urn:btih:3A74D582A72D3D11CB229EE2B2767BA3E6E02755
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138229.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ magnet:?xt=urn:btih:68EC728EBD5E399568532F7753ADBB1043D3E654
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138230.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:3EDCF858EBC76A6656938A1241D0A2A9C7B41824
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138232.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ SILKYPIX Developer Studio Pro 11 for Mac v.11.1.12.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138233.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ DVDFab 9.2.2.4 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138236.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:91F10EA51357991D515EB439AB02BF960FC48D63
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138237.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ Topaz Video Enhance AI 1.8.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138238.jpg" />
 </div>
 
 
@@ -305,7 +380,7 @@ magnet:?xt=urn:btih:08A9E8AE5B7EA0D0DADAEC9AB5F019700F5C202A
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138240.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ magnet:?xt=urn:btih:D35CF5C7E1D8809634069D3914E021647B5F5DAC
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138242.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:E302952126266006D9E38255F05A76BA519B595D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138243.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ magnet:?xt=urn:btih:58CBEB38AF5E49CCC6E2DD36969CB6B4CADB042F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138244.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ Anthrax - For All Kings (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Sp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138245.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ magnet:?xt=urn:btih:D60DDC18242235E004969163E452DE03C6BF2165
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138246.jpg" />
 </div>
 
 
@@ -453,7 +528,7 @@ magnet:?xt=urn:btih:3C18A83AFF92205E2F8334A717CC83A2B1B06146
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138248.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ magnet:?xt=urn:btih:9F9D9C0CF8CB4012EEA6BE0CBCD3D82C891CAC01
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138249.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ Economist публикуется компанией The Economist Group. С 1928
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138250.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:7A6A23E61F6D14D2211BA141B77A2A426C9BC476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138251.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:4D621F9884962DA9BE25CBA23C89C64B69145C82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138252.jpg" />
 </div>
 
 
@@ -566,79 +641,6 @@ magnet:?xt=urn:btih:4D621F9884962DA9BE25CBA23C89C64B69145C82
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523ABAAD19E3F78CEB452BF11C8A85527278184D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970621   (138254) от 31.12.2015
-
-Рамки - Маша и Медведь [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рамка для оформления фотографий Ваших ребятишек.
-Автор: FireFly-zzzz1988Формат: PNGРазрешение файлов: 2480х3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDE074CF19C321CC1332D53BEEA3F7C6CF3431E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270191   (138257) от 30.12.2018
-
-Тайны следствия (2018) SATRip [H.264] (сезон 18, серии 1-24 из 24)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следователю Марии Сергеевне Швецовой предстоит разобраться в новых запутанных преступлениях. Тем временем у остальных героев в жизни большие перемены. Оля наконец забеременела от Курочкина, будущий папаша разрывается между домом и работой..Производство: Россия / ООО "Кинопроизводственный центр", ООО "Прогресс-Студия"Жанр: криминал, детективРежиссер: Егор Баринов, Жанна КохановаАктеры: Анна Ковальчук, Вячеслав Захаров, Игорь Николаев, Александр Новиков ,Антон Ксенев, Давид Бродский, Андрей Шарков, Степан Пивкин, Татьяна Левина , Анастасия Ступина и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822CB2F19E09BBA20F3F9953B7C5923A6A46410D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436075   (138258) от 30.12.2020
-
-Кавказская пленница, или Новые приключения Шурика (1966) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправившись в одну из горных республик собирать фольклор, студент Шурик влюбляется в симпатичную девушку Нину - спортсменку, отличницу, комсомолку и просто красавицу. Но её внезапно похищают банда их трёх человек, чтобы насильно выдать замуж. Наивный Шурик не сразу сообразил, что творится у него под носом, - однако затем отважно ринулся освобождать кавказскую пленницу.Производство: СССР / МосфильмЖанр: Комедия, Приключения, Мелодрама, МюзиклРежиссер: Леонид ГайдайАктеры: Наталья Варлей, Александр Демьяненко, Фрунзик Мкртчян, Владимир Этуш, Георгий Вицин, Евгений Моргунов, Юрий Никулин, Руслан Ахметов, Донара Мкртчян, Михаил Глузский, Нина Гребешкова, Пётр Репнин, Эммануил Геллер, Георгий МиллярСубтитры: РусскиеПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E879113D685F03A3A269317D41BAC2EE73FC2E4B
 ```
 
 

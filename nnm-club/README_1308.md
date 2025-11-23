@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:44A51662A609AC58AE51887BB38613C170C2DCB5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CA15C5B2B4DA2A8A08D5EB913E2A8664C2A0D746
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34364.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0C8A3314A3415E0D11D41B8403B05E378CBEAFE7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34365.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ACDSee Photo Studio Ultimate 2025 18.0.1.3997 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34366.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:87D47F4B538BCA7E98FCD9BAB67186D5D04770A1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34367.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:90F9615D78E3DACB66F7CF4E796567F787710911
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34368.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7328051AB3D7E2D38FC64BF4AB398F7DF267EB56
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34369.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:17F576F7E11655CE15F0D1AE5699806BB709ADD8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34370.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:061FF84FFD4B94F0631AA5DC7DE9AEF1A1DD242B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34371.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:061FF84FFD4B94F0631AA5DC7DE9AEF1A1DD242B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34372.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Media Encoder 2025 25.1.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34373.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NekoRay / NekoBox 4.0.1 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34374.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Todd Michael Hall - Off the Rails (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34375.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A6F26C3C83C4B3C59E46B3CC7FE699C0E094385A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34376.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Anjunadeep The Remixes 2024 (2024) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34377.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34378.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Texas TNT - Crossroads Are Burning (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34379.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cole Havoc - My Former Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34380.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Anjunabeats presents Vocal Trance 02 (2024) [MP3|320 Kbps] <Trance, Vocal T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34381.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34382.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:E1D87B7E7E7F5DE77AB84266C9B3E5AB68533325
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34383.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34384.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:0851BB520E8D4364AA075F245CA87ECBC822167A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34385.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:EDFB5F2A87F8D8648B87C387D1C67F8BD53B9E78
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34386.jpg" />
 </div>
 
 

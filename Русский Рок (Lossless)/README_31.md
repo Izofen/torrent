@@ -1,3 +1,84 @@
+###  Публикация: 1587233   (192396) от 01.11.2022
+
+Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaos Reigns [00:03:25]
+02. Peace Death [00:03:04]
+03. Birch [00:05:56]
+04. More Dark [00:03:44](   Читать дальше...   )Жанр: Electro Industrial PunkПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657347   (192695) от 03.09.2023
+
+Тайм-Аут - Здрасьтенафиг! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не зови [00:03:59]
+02. Жизнь без бабла [00:03:40]
+03. Кошмарный сон [00:03:15]
+04. Лифт [00:03:17](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33754520C6091A16CCE1C022013820F8799CD6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657420   (192740) от 03.09.2023
+
+Атака Сверху - Прощай, панк-рок (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настало время [00:02:32]
+02. На шаг ближе [00:03:33]
+03. На мосту [00:02:29]
+04. Открой глаза [00:02:33](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D49C3D45AB829D8289C5A59F738190457496C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587242   (192963) от 30.10.2022
 
 Марко Поло - История рыцаря (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
@@ -6,7 +87,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192963.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:774A70C5127D97EC13BD22035BC9A38C916159C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192986.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:BDB3B9348C094DFC649B4392E065DDC6E4AB07EE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193232.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193234.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193308.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ magnet:?xt=urn:btih:F82115D42595C09D75A79B540040EC8B9D42CC70
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194331.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194960.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:2F2F8CB45CB95E2D36E8786F8A183B1B96DD82D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196638.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196638.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ magnet:?xt=urn:btih:1F65E25287B145078D57C6DFACD518AD7CC68E54
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196686.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196686.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:B9E6441D4CC31AFFBE1FF7C965D96EBF29454BE9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199971.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199971.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ LASCALA - Play-Off (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199986.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199986.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ magnet:?xt=urn:btih:22B83E1635918D1EBCB3105D7085F04E59200147
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200308.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200308.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:5F4A881E41C687C3F3348285BEFC38CE44E2CE40
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200878.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:13088CE332255BBCF1538E2B441308517B4B981B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201829.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201829.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202434.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202446.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202446.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ LaScala - Forte (2013) [FLAC|image + .cue|Lossless] <Alternative Rock, Female Vo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202630.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ magnet:?xt=urn:btih:3995F42D4286E63C7A63E8E623F8C1D126AB6DB3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203376.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203544.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203725.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203725.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ Cenobite - Torment Your Flesh and Explore the Limits of Experience (2023) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204623.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204623.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204940.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204940.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ magnet:?xt=urn:btih:48C08CAD2ECCEF34DFA1EA45F6E5B9CACCFF9769
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205179.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205179.jpg" />
 </div>
 
 
@@ -609,90 +690,6 @@ magnet:?xt=urn:btih:48C08CAD2ECCEF34DFA1EA45F6E5B9CACCFF9769
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E429FDC489B6B915AD75AC83979674E8D0EB87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653408   (205538) от 15.08.2023
-
-Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205538.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Section 8 03:48
-2. Despiteous Warfare 04:17
-3. Code Reded 04:33
-4. Predator 05:35(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DACB2A9052FB6FD1532922D33FE942D234ED96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616497   (206028) от 02.03.2023
-
-СерьГа - Тебя не сломать (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206028.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Долго (Хоть режьте Родину, хоть ешьте...)
-2. Мы не исчезнем никогда
-3. Мариуполь мой
-4. Тебя не сломать(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92235BEE37C9C878B3F902D5EA0036C1E79FD76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653486   (206121) от 16.08.2023
-
-Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moroz Records представляет…
-
-Переиздание культового альбома Валерия Кипелова и Сергея Маврина «Смутное время» – на двойном тяжёлом виниле и CD в форм-факторе Digipak.
-(   Читать дальше...   )01. Путь Наверх
-02. Выпьем Еще
-03. Вот и Все Дела!
-04. Я Свободен!(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A806F67E20788B4C4ED8FA28EF1007FE3925B95
 ```
 
 

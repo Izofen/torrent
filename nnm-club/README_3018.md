@@ -1,3 +1,75 @@
+###  Публикация: 441484   (91505) от 26.01.2012
+
+[EN] Холм Харлея / Harley's Hill (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харлей, чистокровный скакун, найден владельцем ранчо и его дочерью. Не найдя владельца,  девочка берет Харлея как партнера на соревнованиях.Жанр: СемейныйРежиссер: Дон МостАктеры: Кристофер Аткинс, Кристин Дорн,  Дебора Дуда-ТомпсонПеревод: ОтсутствуетПродолжительность: 01:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442642   (91556) от 27.01.2012
+
+Подшивка журналов | Computer Graphics World (2004-2011) [EN] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подшивка журнала "Computer Graphics World", посвященного компьютерной графике. CGW исследует, как передовые графические методы, включая трехмерное моделирование, мультипликацию и визуализацию используются в таких приложениях как CAD/CAM/CAE, архитектура, научная визуализация, специальные эффекты, цифровое видео, фильмы и интерактивные развлечения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442654   (91569) от 27.01.2012
+
+Наш добрый мастер (1977) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДетскийРежиссер: Стелла АристакесоваПродолжительность: 00:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA239DA4421FEF49F854A2832E32606A07072DE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 442527   (91581) от 27.01.2012
 
 Журнал | PC Magazine [Россия] №1 (январь 2012) [PDF]
@@ -6,7 +78,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91581.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:2E31A1689C85D46A04DEDFD4997D872AB7C1A9E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91595.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:DA63464FCB233FA34175256CA1057289588745BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91598.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:679A40FF135B512209952B6847EF17B2DEA8CC70
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91663.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:F8611C41EE7A01B4BC030DDCAD3E582F264E1400
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91683.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:950FE8C8AE3B28A103DB7581BE7159C786A1DC48
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91691.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ VA - 202 По Встречной. Убойный Автохит (2012) [MP3|128-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91789.jpg" />
 </div>
 
 
@@ -187,7 +259,7 @@ Aquagen - Weekender (2002) [MP3|320 kbps]<Techno, trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91792.jpg" />
 </div>
 
 
@@ -220,7 +292,7 @@ magnet:?xt=urn:btih:69EE7E49A029A04017E857FCC671112C1439C63E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91967.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:ECE72AE227C84C9509AB912D1F55876ED5CA1C28
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92008.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92010.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:1D9794216E1511BBE83158107E264548EF5FDB35
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92124.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Textural Being - Oceanic (2012) [MP3|320 kbps]<Dub Techno, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_92178.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_92178.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:F087B877D26B201999D3EB0FA753DC9FA78331A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92205.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:02BADE6997199B62D006E5446CA4F0D6E73BE90B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92328.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:6303AF69F16C7ABC43778C137EB74500B09ECBA7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92351.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:A6D72B06AB41B8ADEF1A097BC9D2694E876D9562
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92384.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92391.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92396.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92397.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92399.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92452.jpg" />
 </div>
 
 
@@ -571,7 +643,7 @@ magnet:?xt=urn:btih:F52C215C4940011DB4FE9C40D80828DF7FAA4E13
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92487.jpg" />
 </div>
 
 
@@ -584,79 +656,6 @@ magnet:?xt=urn:btih:F52C215C4940011DB4FE9C40D80828DF7FAA4E13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B393F2556E514AD6769AEF3952BD47122DD548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448235   (92537) от 06.02.2012
-
-NG: Совершенно секретно. Секретная служба США. Линия фронта - Колумбия / Top secret. U.S. Secret Service. The front line - Colombia (2010) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следите за работой сотрудников секретной службы США, выполняющих агентурную операцию в Боготе с целью пресечения изготовления фальшивых денег.Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Peter SchnallПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E61A00060D09979A0228BF9E1E8A3B3866CAB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448139   (92542) от 06.02.2012
-
-Виталий Горяев | Мастера советской карикатуры [1961] [PDF, DjVu]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло 25 лет с тех пор, как на страницах «Крокодила» впервые появились рисунки Виталия Горяева. Став одним из постоянных художников журнала Горяев за эти годы создал свой особый, индивидуальный стиль, по которому читатели легко узнают автора рисунков.
-Чаще всего художник изображает быт и нравы воротил капиталистического мира и их прислужников, а также жизнь и борьбу простых людей в странах капитала. С большой силой передал художник в многочисленных рисунках борьбу народов за мир и независимость. Самое поразительное во всех этих работах — умение автора так живо передать характеры и типы людей самых разных социальных групп и сословия, так верно нарисовать позы, жесты, улыбки, манеру держаться, что, кажется, сам художник был свидетелем всех изображаемых им сцен и событий. ...Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87272A7F8BC5617170175F6AB4AAB414B8D32C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447074   (92553) от 06.02.2012
-
-Расписание на завтра (1976) TVRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, состоящий из трех новелл, посвящен проблемам воспитания школьников. Сценарий Анатолий Алексин.Жанр: МелодрамаРежиссер: Николай АлександровичАктеры: Нина Зоткина, Олег Жаков, Ирина Мурзаева, Ирина Фоминская, Я. Гайдукевич, Дима Кандидов, Инна Палехова, Данила Рожков, Ксения Ростовцева, Нина Агапова, Игорь Косухин, Александр Кузнецов (II), Людмила Максимчук, Татьяна Митрушина, Николай НикольскийПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6702A406881E48565E24A4D512685AAE02313D64
 ```
 
 

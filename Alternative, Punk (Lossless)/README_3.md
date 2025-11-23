@@ -6,7 +6,7 @@ Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75211.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77364.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84389.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87014.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100702.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100859.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100861.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Coheed and Cambria - Claudio Covers (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100885.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Skunk Anansie - Post Orgasmic Chill (25th Anniversary Expanded Edition) (1999) R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101562.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Linkin Park - Meteora (Tour Edition) (2003) Taiwan, 9362 48842-2, 2004 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102799.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Linkin Park - Hybrid Theory (2000) Japan, WPCR-10877, 2001 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102826.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102961.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102963.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 936249809
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102973.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102974.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103747.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104497.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104563.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104608.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104609.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Rising Insane - Wildfires (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104979.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105368.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105374.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105379.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105405.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 964941   (158095) от 22.12.2015
+
+Джессика Джонс / Jessica Jones (2015) WEBRip [H.264/720p]  (сезон 1, серии 1-4 из 13) LostFilm (обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158095.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагических событий, оборвавших короткую супергеройскую карьеру Джессики Джонс, девушка пытается восстановить свою личную жизнь и свою карьеру частного детектива, расследуя таинственную активность людей со сверхспособностями в Нью-Йорке.Производство: США / ABC Studios, Marvel Studios, NetflixЖанр: боевик, драма, криминалРежиссер: С.Дж. Кларксон, Дэвид Петрарка, Стивен СерджикАктеры: Джош Дюамель, Дин Уинтерс, Джанет МакТир, Кэл Пенн, Обри Доллар, Дэймон Херриман, Лиза Лапира, Джесси Фудрей, Мередит Итон и др.Перевод: многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C45F62BC5ACA31DC6D85B90340440EC9E94B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194155   (158104) от 23.12.2017
+
+Убить Гюнтера / Killing Gunther  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158104.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света - хакера, взрывника, (   Читать дальше...   )Производство: США / Folktale Productions, Ingenious Media, Miscellaneous Entertainment, Rookfield Productions, Rowdy Row Productions, RuYi Media, StarStream Media, WWKG ProductionsЖанр: боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив Бачич, Скотт МакНил, Амир ТалайПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E567EE870E26284251C8D373F0D1BF30495790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194060   (158107) от 23.12.2017
+
+Malwarebytes AdwCleaner 7.0.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158107.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDB320347F978EA5951EFDD7EE98A0F170285D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433380   (158117) от 20.12.2020
 
 BiglyBT 2.6 [Multi/Ru]
@@ -6,7 +78,7 @@ BiglyBT 2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158117.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:8958D24FDEF8134269C5697E2C91A0BABFD2E040
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158136.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ SparkyLinux 4.2 Tyche (Включая легкие дистрибутивы) [i5
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158148.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ WinToUSB Enterprise 2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158153.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ ComboFIX 15.12.16.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158156.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Boom 2 v1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158176.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:0BC495B119792E1C07C9CD556C15D3DFA4B81EAD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158177.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ Ashampoo WinOptimizer 12.00.40 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158182.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:9588F934B3BDBAB5C226F632D5878BCE88371600
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158189.jpg" />
 </div>
 
 
@@ -231,7 +303,7 @@ Mozilla Firefox 43.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158192.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Mozilla Firefox ESR 38.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158199.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:02D7748CECFAA0E2E0501BED5128EF3536A90448
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158200.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ magnet:?xt=urn:btih:3B540C228ABCB71D1495D0BCDB21C40F8AC73F49
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158201.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ magnet:?xt=urn:btih:1EBE6E2D2458473BF1BC458253CFE31AF8E926BF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158204.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ SyMenu 4.14.5796 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158205.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ Enigma Dubz - The Journey So Far/Part Two (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158206.jpg" />
 </div>
 
 
@@ -406,7 +478,7 @@ Mozilla Firefox ESR 38.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158209.jpg" />
 </div>
 
 
@@ -430,7 +502,7 @@ magnet:?xt=urn:btih:FA1750BF75C0D41170CDB2CEB9FFC507B9DA617F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158211.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ Display Driver Uninstaller 15.7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158219.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ magnet:?xt=urn:btih:8E6585F6CF173BE0BB27000B4464C61621819E2F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158221.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ CoolUtils Total Image Converter 5.1.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158226.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ Enigma Dubz - The Journey So Far/Part One (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158231.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ Nemo & Jaymon - Wanderings (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158232.jpg" />
 </div>
 
 
@@ -569,78 +641,6 @@ Nemo & Jaymon - Wanderings (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F445A093AD8AA31E4870942426DF43A7FB36C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968090   (158233) от 22.12.2015
-
-Могучие утята 2 / D2: The Mighty Ducks (1994) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй части фильма «Могучие утята» становятся птицами большого полета. Теперь бывшие неудачники - национальная сборная, которая отправляется на Игры доброй Воли в Лос-Анджелес. Гордон Бомбей приглашен тренером в новую команду, где он снова встречает своих старых друзей. Вместе они прошли огонь и воду. Но в солнечной Калифорнии их ждут еще и медные трубы: юным (   Читать дальше...   )Производство: США / Walt Disney Pictures, Avnet/Kerner ProductionsЖанр: Спорт, Комедия, Драма, СемейныйРежиссер: Сэм УайзманАктеры: Эмилио Эстевес, Кэтрин Эрбе, Майкл Такер, Ян Рубес, Карстен Норгаард, Мария Эллингсен, Джошуа Джексон, Элден Хенсон, Шон Уайсс, Мэтт Доэрти, Брэндон Квинтин Адамс, Гэретт Рэтлиф Хенсон, Маргерит Моро, Винсент Ларуссо, Коломба Якобсен-Дерстин, Аарон Лор, Тай О’Нил, Кенан Томпсон, Майк Витар, Скотт УайтПеревод: Профессиональный (многоголосый закадровый) x2Продолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8BF9F50B7140FCF524D7913CA13CE959ED7E9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968081   (158238) от 22.12.2015
-
-Могучие утята 3 / D3: The Mighty Ducks (1996) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята из команды «Уток» поступили в престижный колледж. Там уже есть своя хоккейная команда старшеклассников. В борьбе за лидерство все средства хороши: сплетни, интриги и сексуальная соседка…Производство: США / Walt Disney Pictures, Avnet/Kerner ProductionsЖанр: Спорт, Комедия, Драма, СемейныйРежиссер: Роберт ЛиберманАктеры: Эмилио Эстевес, Джеффри Нордлинг, Дэвид Селби, Хайди Клинг, Джошуа Джексон, Джосс Экленд, Элден Хенсон, Шон Уайсс, Винсент Ларуссо, Мэтт Доэрти, Гэретт Рэтлиф Хенсон, Маргерит Моро, Майкл Кудлиц, Кристофер Орр, Аарон Лор, Тай О’Нил, Кенан Томпсон, Майк Витар, Бенжамин Салисбери, Джастин Вонг, Скотт УайтПеревод: Профессиональный (многоголосый закадровый) x2Продолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968178   (158240) от 22.12.2015
-
-Структура Момента. Вернет ли Украина долг? (22.12.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Украина должна России 3 млрд долларов. Перевод средств должен был состояться 21 декабря, однако, как подтвердил Минфин РФ, платеж так и не был произведен. Неисполнение Киевом своих обязательств означает дефолт, который формально наступит 31 декабря, когда завершится льготный период, в течение которого украинская сторона ещё может погасить задолженность. Есть ли вероятность (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программа, политикаПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0E58102B9EF8CB31115AA86288A3FD91D9AF72
 ```
 
 

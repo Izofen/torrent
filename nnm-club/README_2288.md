@@ -6,7 +6,7 @@ Cx Проводник / Cx File Explorer 2.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59853.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D07AB65B28CD3E9786F9A87E579B0C2B6BE248A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59854.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9DF1C3217BB682FA0F1D9561099B4452367D687B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59855.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59856.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ASUS Armoury Crate 5.8.6.0 (11.04.2024) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59857.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EDA6C684D1C940B5FEDC5895B152E6807DDBA7CB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59858.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9C6C2B679BF1663FB27A2C647B812B89DB708B1D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59859.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Symphonian - Incarnation Of Reality (2011) [FLAC|Lossless]<Doom Metal, Gothic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59860.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:81AF9CFD5F735E72DF2BAC7D9313B4720A9AAEBC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59861.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E0025B0577BDDE0888D1D6BA3B43485D6DD461C0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59862.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59863.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D87E041CAF687BFA5F348F2F1D77E921702A261A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59864.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:295EE2B23BE523634726718C442BE01AFEBB4591
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59865.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59866.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:696FCF8B4FD54AE0643B2D392726BE61B701DB46
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59867.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:696FCF8B4FD54AE0643B2D392726BE61B701DB46
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59868.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:63BAF4C27FED6B5F6105BCBD9EF47B8F6F17FA9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59869.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:02DEC2D679894ED89F86ABCFDD4B5AF33AF3B84C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59870.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A5D88556631086FD2754E67A204C773B6251FAE1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59871.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:3D70C69D9EB1B344AC165C2974E5C34BD4D06C46
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59872.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:5A440AD845BBD68C29ACB7437DC536EBECCDE353
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59873.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FC2AF6DF3DF857E14797880EAAF9C8740715DB35
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59874.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ YouTube ReVanced Extended 19.11.43 (RVP v2.224.0-dev.1) Mod by VooltMace + micro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59875.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:BABD7B5E795429AC345D4D63C6066E1EAA0CF75D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59876.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:472DD3BDDA32D3EBEC4ECD1F762E66010021D724
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59877.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59878.jpg" />
 </div>
 
 

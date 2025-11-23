@@ -1,3 +1,84 @@
+###  Публикация: 1708658   (112996) от 21.03.2024
+
+Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Folk Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
+02. Uzbekistan (3:40)
+03. The Last Saskatchewan Pirate (4:08)
+04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627C9FCBBC01A7DB06191FB1BBA25FEE377CD15A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708659   (112997) от 21.03.2024
+
+Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
+02. Uzbekistan (3:40)
+03. The Last Saskatchewan Pirate (4:08)
+04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708652   (112998) от 21.03.2024
+
+Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hailed By The Hammer (4:58)
+02. The Devil Will I Do (4:15)
+03. König und Kaiser (feat. The Tribune) (4:02)
+04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708496   (112999) от 21.03.2024
 
 Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
@@ -6,7 +87,7 @@ Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112999.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113000.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113001.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113002.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113003.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113004.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113005.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113006.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113007.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113008.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113009.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ T Bear - The Way Of The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113010.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ magnet:?xt=urn:btih:D4B58B7DA712A1D17A89BDC35A879CC95F6CAFB2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113011.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Hideous Divinity - Unextinct (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical-Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113012.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113013.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ magnet:?xt=urn:btih:366ABC4FB2A442B54188F99DF7CA70AB84809093
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113014.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ Skype 8.115.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113015.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113016.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ KoscHei - Темница (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113017.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113018.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113019.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ magnet:?xt=urn:btih:D62248D2A32C59D24CBDA71595528215A9361DA1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113020.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, R&B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113021.jpg" />
 </div>
 
 
@@ -599,78 +680,6 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, R&B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9127032F5F86801364B33D9DB534577209F86D95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708598   (113022) от 21.03.2024
-
-Елена Дорош | Французское наследство (2024) [MP3, Людмила Пахмутова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пообещав другу помочь с ремонтом, Савва Бехтерев даже предположить не мог, что из-за совершенно незнакомой девицы окажется втянутым в очень неприятную историю. А началось все с убийства старушки, в доме которой преступник искал, но не нашел нечто столь ценное. Всё происходящее не имело к Бехтереву никакого отношения, но именно Савве пришлось подставить плечо юной (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDD79A69D1B4EAA46056834C332CB90CCBD6F2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708631   (113023) от 21.03.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. С легким паром! (2022) [MP3, Оксана Тимошкова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как все было замечательно – сходила женщина в баньку, расслабилась! Вернулась домой в расчудесном настроении. А в кухне на полу лежит труп… Первая ее реакция – мужа убили! Но, слава богу, это оказался не муж. Так кто же он, этот задушенный мужчина с изуродованным кислотой лицом? Хорошо, что у женщины соседка была не кто-нибудь, а частный детектив Татьяна Иванова, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6018266A739AD92F4EA79DE2E2FE8E84E8243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708645   (113024) от 21.03.2024
-
-Марина Болдова | Кольцо блаженной Августины (2022) [MP3, Алла Галицкая]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое кольцо, артефакт созданного в давние времена сообщества ювелиров, в наши дни неожиданно становится предметом охоты многих, на первый взгляд, чужих друг другу людей. Что за тайну скрывает оно, если в один день убиты молодой мужчина и его жена? А наследница кольца даже не подозревает, чем так ценно это на вид недорогое изделие, которое до недавнего времени (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 09:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9ED4BFA37253198F684F748B3B362E7D01287A4
 ```
 
 

@@ -6,7 +6,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D30E6E6293CAB11631720E9DE49B8FF9610B1920
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26661.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A26683EAF497F4982DEAA7E135DA5488CA2FBB8
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26662.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6A8DAB890DD4F431E19899D07CDF151CD7207EF8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26663.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26663.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FastFlix 5.9.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26664.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:77AED9AE204C58568B42EA836786079AAE5E6CB9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26665.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26665.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:9A5C30222B3AD9148ECB3F7FA9FC2BF8BA237144
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26666.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C9A1BFAF16AADA7A32C41D3FACA60968E8F100C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26667.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F7E9260755DC97F123B25BDEF6ED7E76F505A7EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26668.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26668.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:BEB3B8434B783F7D66456CC5C03A28030D92E1C0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26669.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26669.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Medativo Meditation Timer / Таймер Медитации v1.3.7 Mod by Alex.S
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26670.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8B41C80184801BF370B8908BBBC4B4794D544608
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26671.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Balabolka 2.15.0.889 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26672.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26672.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:6E4FBB387E4BCCA72FC52644C6638D5D5DA42C2E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26673.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B4E24BB28B190A27509646FF0CC294BAEF698091
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26674.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:5734849001C599AF4AD8DEB702FE4DEF867E2B64
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26675.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - 50 лучших песен для любимого (2025) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26676.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26676.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:63F39EB27649FF40FB3250C04C92217F24D24C48
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26677.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Subtitle Workshop 6.3.4 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26678.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:8DFA2BA816E833B34029D3451791B6D9BF327632
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26679.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - My Chilled Afternoon: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26680.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:6BCB4D3D0A08F4CAFD5BE12C1FF802772B0E2665
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26681.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.2.55213 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26682.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26682.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8B4593921773EF9A573F5A169648B8D38986285B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26683.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:FFD341B127906EC2331D0F2BE859135ABC37BF68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26684.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - City Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26685.jpg" />
 </div>
 
 

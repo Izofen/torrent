@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104523.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104527.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104545.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aphelion - Humanoid World (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104557.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ablazing Autumn Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104564.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Ablazing Summer Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104566.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - ADE Inside (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104568.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Levitated - Emotional Trance Vol. 4 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104626.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104644.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Mega Fitness Compilation For Weight Lifting 2024 Best Songs 128 Bpm [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104648.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Ancient Egyptian Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Fo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104649.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Leathers - Ultraviolet (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave / Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104650.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Miseria Ultima - Arctic Esotericism (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM / 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104656.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Kazal Records Present - Trance Legends Vol. 1 (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104658.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nero - Into the Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Drum'n'Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104688.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Armin van Buuren - A State Of Trance 1189 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104715.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Siiickbrain - My Masochistic Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104730.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Keep It Trance Vol. 24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104788.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Nothing But... Trancetopia Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104789.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Songspire Records 6 Year Anniversary (2024) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104846.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Melomaniac, Vol.01 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104856.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Ibiza XXL - Best Of Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104869.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Free To Dance, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104871.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Bodrum Summer Festival (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104872.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Armin van Buuren - A State Of Trance 1188 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104874.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bas
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104937.jpg" />
 </div>
 
 

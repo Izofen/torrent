@@ -1,3 +1,77 @@
+###  Публикация: 1689558   (124722) от 02.01.2024
+
+IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124722.jpg" />
+</div>
+
+
+###  Подробнее
+
+C# - это язык программирования, используемый для создания приложений для веба, мобильных устройств, настольных компьютеров и в играх. Мир функционирует на приложениях. Изучая C#, вы осваиваете навык, который миру нужен прямо сейчас. Если вы знаете C#, то варианты карьеры практически безграничны.
+
+Мастер-курс по C# от Тима Кори разработан, чтобы перевести вас из начинающего (   Читать дальше...   )Производство: IAmTimCoreyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 70:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB8BDBDE6D6D1DE2A3AC0161796B3DCD614F1E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689410   (124723) от 02.01.2024
+
+Синдром (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная автомобильная авария переворачивает жизнь Маши и Кирилла. Девушка не узнает мужа — тот становится пугающе идеальным. Все больше странных совпадений, образов и знаков говорит о том, что Маше опасно доверять себе.Производство: Россия / Централ Партнершип, Продюсерский центр «ГОРАД»Жанр: триллер, драмаРежиссер: Антон БорматовАктеры: Оксана Акиньшина, Кирилл Кяро, Алина Алексеева, Евгения Добровольская, Николай Мачульский, Виктор Тереля, Полина Бахтигозина, Елизавета Пинегина, Георгий Шабанов, Кристина АйвазовскаяСубтитры: отсутствуютПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D156E4CF227639692B060FC9CCE1385AAA0BD49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615223   (124724) от 02.01.2024
+
+Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colossal Cave - это классическая текстовая приключенческая игра, также известная как «интерактивная фантастика». Она была создана в 1970-х годах и с тех пор стала известной и влиятельной игрой в истории видеоигр. В игре игрок берет на себя роль искателя приключений, исследующего таинственную систему пещер, решая головоломки и находя по пути сокровища. Геймплей состоит (   Читать дальше...   )Тип издания: LicenseРазработчик: Cygnus EntertainmentЖанр: Adventure, Point-and-click, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2453EC3618A19AFC83919B1157A2033A8F5863A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 421192   (124725) от 02.01.2024
 
 Эрих Мария Ремарк | Три товарища (2002) [MP3, Владимир Антоник]
@@ -6,7 +80,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124725.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ magnet:?xt=urn:btih:676872D7D3B01FCEF821A6287B36E65CE79FE3F4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124726.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:6B5603416E5671F35C9FD032DC354853E2119689
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124727.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:7C7AA3ADB7739F6CC5A18F166F7B3864AE3D8293
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124728.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ magnet:?xt=urn:btih:46B3D6E53C5AA7CF3A23596EA0C507F1E814523C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124729.jpg" />
 </div>
 
 
@@ -130,7 +204,7 @@ magnet:?xt=urn:btih:B06FD92F8EE2F06912B4DB5023050008C38D40E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124730.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ magnet:?xt=urn:btih:8027CBDE40FA691A9BC56EB3EE0277815C77C1FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124731.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ magnet:?xt=urn:btih:756877CFC9287DF70223A06DC96D9E06B15A28A5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124732.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ VA - Радио Рекорд Итоговый Суперчарт 2023 - 100 лу
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124733.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ magnet:?xt=urn:btih:10420C225C34FDC9FA1C389162C5A039E484AAD4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124734.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ magnet:?xt=urn:btih:9AD5A2FE77C1EB06D5A02A7655A6F835C53D1668
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124735.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ magnet:?xt=urn:btih:63961F648A625CA6F82814CD929ADCDCBCB4301F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124736.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ magnet:?xt=urn:btih:FF9F6FAD28F895FCB49DFB48E10C87656EB9D324
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124737.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ magnet:?xt=urn:btih:E70B185EDE11708062DEE82FA9F6600B4B8F1AE9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124738.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ magnet:?xt=urn:btih:11E3FEB6FCA24B684C1E8816187BA1B383C02D67
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124739.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ magnet:?xt=urn:btih:BA1D83A9EBE5584904CDD3F4A0449C9C303DF9E1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124740.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ magnet:?xt=urn:btih:1C8980B2C52079A5E7D08E2844927DE6A546C2E0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124741.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:AC954AF8996B47E9AEBBC5882894472D797F19AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124742.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:DF6BA84C4D4294B2630B79C5EC1AB50C4E173B43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124743.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:B6709A1859D3A3B0FF1732F7D668286977AF5321
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124744.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:FED529BDC9C0306ADF403E6B7A5398C6799EAB93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124745.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:266621BF9F881078ABAF5AF0CF13149EE6FA7B8A
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124746.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:B3CDFEF49BC8464686D380E3FDCEC60148356447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124747.jpg" />
 </div>
 
 
@@ -552,78 +626,6 @@ magnet:?xt=urn:btih:B3CDFEF49BC8464686D380E3FDCEC60148356447
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABDB132C5FD56988F899C3B49BAB92E361F1D77D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689429   (124748) от 02.01.2024
-
-Кентервильское привидение / The Canterville Ghost (2023) WEB-DLRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Отисов приобретает старинный дом в английском поместье и переезжает туда. Но в доме уже 300 лет живет призрак мистера Саймона, который считает дом своим. Все новые владельцы, что заезжали в дом до них, сбегали оттуда через три дня. В этот раз все пошло не так. Отисы, и особенно их дочь Вирджиния, не только не боятся призрака Саймона, но и пытаются ему помочь (   Читать дальше...   )Производство: vВеликобритания / Toonz Media Group, Sprout PicturesЖанр: мультфильм, комедияРежиссер: Ким Бёрдон, Роберт ЧандлерАктеры: Ким Бёрдон, Роберт ЧандлерПеревод: Дублированный (Баритон)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4649068AEA93AEDD6281F02C2D0C4CCE02F6389E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689321   (124749) от 02.01.2024
-
-Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничем не примечательный лысеющий профессор среднего возраста Пол Мэтьюс ведёт обычную профессорскую жизнь, преподаёт в университете и много лет вынашивает идею книги о коллективном разуме муравьёв. Внезапно мужчина становится дико популярным — люди всего мира начинают видеть его во сне. Теперь о Поле трезвонят все СМИ, его хочет рекрутировать агентство талантов, (   Читать дальше...   )Производство: США / A24, Square PegЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайлПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CF473100577C17179420B2E807835EDAA4B22E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689441   (124750) от 02.01.2024
-
-Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Киран Хайндс, Зои Маргарет Коллетти, Ван Кросби, Илиана Норрис, Vienna Norris, Мэгги Кью, Джойнер Лукас, Келлен БойлПеревод: Профессиональный многоголосый (NewStudio, NewComers, Red Head Sound)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Forced, Full, SDH), иврит, украинскиеПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D5ABD06BDE724C72021718826BE5CBF479C679
 ```
 
 

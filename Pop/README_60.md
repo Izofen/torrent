@@ -6,7 +6,7 @@ VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145763.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145813.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145911.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145915.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145978.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145988.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 100 Disco (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146043.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146098.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146144.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sarah Brightman - Gala: The Collection (2016) Limited Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146299.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146340.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146404.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:E3BF664F8E04A365009B8931C38A1C6F5B7AE2E3
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146497.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146669.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Big Pig - You Lucky People (1990) [MP3|320 Kbps] <Electronic Pop Rock, Funk, Fem
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146704.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146779.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ba
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146902.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ABBA - The Definitive Collection (2001) [FLAC|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147013.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147068.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147073.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147090.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147162.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:D482A2C5EEA35F40210195B83CA0A1E02054CB98
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147213.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147245.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147298.jpg" />
 </div>
 
 

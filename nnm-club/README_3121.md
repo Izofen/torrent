@@ -1,3 +1,93 @@
+###  Публикация: 483605   (99867) от 17.04.2012
+
+Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
+01. Lloyd Ft Andrй 3000 - Decidation To My Ex (Miss That)
+02. Carly Rae Jepsen - Call Me Maybe
+03. Train - Drive By
+04. Gavin Degraw - Soldier
+05. Chris Hordijk - Won't You Stay
+06. Katy Perry - Part Of Me
+07. Racoon - Don't Give Up The Fight
+08. Keane - Silenced By The Night
+09. Afrojack & Shermanology - Can't Stop Me(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484525   (99869) от 17.04.2012
+
+Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery 01:33
+ 02. Doubts And Struggles 03:16
+ 03. Crossed Paths 03:02
+ 04. Echoes 02:17
+ 05. Wilfully Blind 03:47
+ 06. No Love, No Regret 03:11
+ 07. Despair 01:09
+ 08. To Conceive/Insight 02:59
+ 09. Discontent 03:11
+ 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484459   (99870) от 17.04.2012
+
+[Wallpapers] Army and military equipment Wallpapers (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484342   (99872) от 17.04.2012
 
 Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
@@ -6,7 +96,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99872.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99877.jpg" />
 </div>
 
 
@@ -63,7 +153,7 @@ VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99878.jpg" />
 </div>
 
 
@@ -96,7 +186,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99880.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99880.jpg" />
 </div>
 
 
@@ -122,7 +212,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99881.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99881.jpg" />
 </div>
 
 
@@ -154,7 +244,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99886.jpg" />
 </div>
 
 
@@ -181,7 +271,7 @@ magnet:?xt=urn:btih:08A9ABC1C386D552AEE33E4F492EBD0530E360CF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99888.jpg" />
 </div>
 
 
@@ -211,7 +301,7 @@ magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99890.jpg" />
 </div>
 
 
@@ -235,7 +325,7 @@ magnet:?xt=urn:btih:DFBB9A748A46ABEFBB2289E3E84895F66413AD73
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99896.jpg" />
 </div>
 
 
@@ -259,7 +349,7 @@ magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99900.jpg" />
 </div>
 
 
@@ -283,7 +373,7 @@ VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99903.jpg" />
 </div>
 
 
@@ -309,7 +399,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99907.jpg" />
 </div>
 
 
@@ -342,7 +432,7 @@ VA - Клубная танцевальная 100-ка (2012) [MP3|160-256 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99909.jpg" />
 </div>
 
 
@@ -375,7 +465,7 @@ magnet:?xt=urn:btih:60B97026394C867087A998905B327E19877DF54C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99911.jpg" />
 </div>
 
 
@@ -399,7 +489,7 @@ magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99913.jpg" />
 </div>
 
 
@@ -423,7 +513,7 @@ Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99915.jpg" />
 </div>
 
 
@@ -456,7 +546,7 @@ magnet:?xt=urn:btih:3D4F37DD46B5FD690D454CAF4943CD5C0A90ECD0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99922.jpg" />
 </div>
 
 
@@ -480,7 +570,7 @@ magnet:?xt=urn:btih:E58750BE7A63C31EC6813C04A25A8AAB23D6F242
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99923.jpg" />
 </div>
 
 
@@ -504,7 +594,7 @@ magnet:?xt=urn:btih:C0A7B91D404EC1A59DE553D36700492A4F92ADB6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99924.jpg" />
 </div>
 
 
@@ -528,7 +618,7 @@ magnet:?xt=urn:btih:9B25BEB3A7E11BC976C068131EF7487B48EB77DA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99925.jpg" />
 </div>
 
 
@@ -555,7 +645,7 @@ magnet:?xt=urn:btih:D36D7B69BB7D59EACFB4324D78B0C44C36614539
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99926.jpg" />
 </div>
 
 
@@ -579,7 +669,7 @@ magnet:?xt=urn:btih:9FA189A072EC6FB74942D63094A7991FD200AB51
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99927.jpg" />
 </div>
 
 
@@ -603,7 +693,7 @@ magnet:?xt=urn:btih:CD9EFC22A1F292B93E3078889922B009C795EFF5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99928.jpg" />
 </div>
 
 
@@ -616,78 +706,6 @@ magnet:?xt=urn:btih:CD9EFC22A1F292B93E3078889922B009C795EFF5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D689DFDBAD1731DEF57BB48FC04A420C4B720745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822208   (99929) от 05.10.2025
-
-UltraUXThemePatcher 4.5.0 [En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие знают из опыта, что дизайн Windows рано или поздно надоедает и вам хочется его как то изменить. И это проблема, потому что для использования сторонних тем вам придется изменять системные файлы, или покупать дорогое программное обеспечение. Теперь этому конец, потому что UltraUXThemePatcher может делать это автоматически. Быстро и бесплатно, потому что если (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150C2257E6ED0C16E5A4C39F7DAE2D1DA6867878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822200   (99930) от 05.10.2025
-
-Растровый клипарт - Adobe Stock - Old Time, Vintage Desks & Boards [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99930.jpg" />
-</div>
-
-
-###  Подробнее
-
-32 стоковых изображений старинных, винтажных столов и досок из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 4098x2306 - 12544x4704
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EDD1F2C792CF6EDAA79900AE80534A2BADA99F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822205   (99931) от 05.10.2025
-
-M.A.S.S. Builder (2019) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99931.jpg" />
-</div>
-
-
-###  Подробнее
-
-M.A.S.S. Builder - это ролевая игра, в которой игроки управляют механическим штурмовым скелетным костюмом (M.A.S.S.) в качестве командира частной военной компании, отправляясь на борьбу с угрозой Кварков. Вы будете создавать, модифицировать и сражаться, чтобы спасти мир, или, по крайней мере, получать удовольствие от создания и настройки своих идеальных механических (   Читать дальше...   )Тип издания: SceneРазработчик: Vermillion DigitalЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
 ```
 
 

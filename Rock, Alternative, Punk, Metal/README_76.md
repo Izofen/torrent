@@ -6,7 +6,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71201.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kilmara - Journey to the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71229.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Defecto - Tribu II (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71237.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dio - The Very Beast Of Dio, Vol. 2 (2012) 2025, BMG Rights Management (US) LLC 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71244.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Simple Minds - Once Upon A Time (1985) Remastered, 2002, Reissue, 2025, UMC [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71254.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71257.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Protester - Непокорённым (2025) [FLAC|Lossless|WEB-DL|tracks] <punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71258.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warwolf - The Final Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71298.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9C632E2DE778928038E45BE2E556E020FFD47056
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71310.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A5FC32F8173612273FB6DA757625E11D07751914
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71312.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ On Atlas' Shoulders - Aion (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71315.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ My Sweet Torment - The Order Of The Shadows (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71322.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71328.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Terrortory - The Black Prism (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71382.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <I
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71388.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:6AD24A9C8F462E2D835FA942B405FB391FCE60BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71396.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ In Extremo - Sterneneisen (2011) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71404.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ In Extremo - Kunstraub (2013) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71411.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Belle Morte - Pearl Hunting (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71417.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Fat Mattress - How Can I Live? Complete Recordings (2025) [MP3|320 Kbps] <Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71421.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Iggy Pop - Live At Montreux Jazz Festival 2023 (2025) [MP3|320 Kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71430.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Rosy Vista - Forty (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71477.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Clouds - Desprins (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71482.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Будем с тобой на связи... (Трибьют Markscheider Ku
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71506.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:66720DD589D9684373A2A649CF13251F94B1E411
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71507.jpg" />
 </div>
 
 

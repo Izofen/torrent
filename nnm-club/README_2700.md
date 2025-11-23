@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70948.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70949.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70950.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70951.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vargas Blues Band - Blues The Healer (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70952.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:C1B473F50AE3039CE8EDB11AFC03C247FF3B42AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70953.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Majestica - Power Train (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70954.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sellout - Все, во что я верю, Сторона А (2025) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70955.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:95247CFA408B1C955AB519D0656D61C15F787E31
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70956.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:1C03EBE12DB62EDD2DEED7FA336B343712C35670
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70957.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70958.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5CC2B8064B0F3CD508238B67A04A447965F4F88E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70959.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:8920ED0EB49A6D8B4592BCDB65D6246D71C4118A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70960.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:60D852FB8B6B482DE9AC92E7BE7B29A1C72BB732
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70961.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DA6ED5B0C88E8B5BFEC4B6FCF95987B65A36BFCE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70962.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:14148EED35EFD3CDFBC58CADA8B4151F33513A8D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70963.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:D21B4955D0465D513291EBA87EA5849C0A30F3EC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70964.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BA9AC872234E9405A5D9A5370DAFBE640E15AF0F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70965.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PARAFRAME - Metropolis (2025) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70966.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Spacesynth Forever 5 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70967.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5C9C0F524C8E1F69AB150F28DB22EE575EDCDBB6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70968.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70969.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:BDB07EACF909C8AC6BF24789B86D1C7934FA4A0D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70970.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70971.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:BA7C7C0CC026AFEFE06C6ECD0467A02053D286E1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70972.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70973.jpg" />
 </div>
 
 

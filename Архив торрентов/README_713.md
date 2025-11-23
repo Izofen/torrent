@@ -1,3 +1,76 @@
+###  Публикация: 1271510   (149431) от 23.12.2018
+
+Universal USB Installer 1.9.8.6 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal USB Installer - бесплатная программа позволяет создавать загрузочные флешки из различных дистрибутивов Linux. Universal USB Installer очень проста в использовании - необходимо выбрать сборку, которая будет записана на носитель и указать расположение образа на жестком диске (присутствует возможность загрузить образ с официального сайта). Также присутствует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE992BCB7E7666D81A948D30B74BFB84A4DE8EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519238   (149434) от 23.12.2021
+
+Krita 5.0.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Krita – профессиональный бесплатный растровый графический редактор как для любителей, так и  для профессиональных художников и иллюстраторов, использующих графические планшеты в процессе создания цифровой живописи как в домашних условиях, так и в игровых студиях, в VFX мастерских и дизайн-студиях.
+Программа имеет широкий функционал. Редактор поддерживает многослойную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0940BF9A7336D0DE63BA27FF1E3344EAA3D51D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086588   (149437) от 25.12.2016
+
+КВН-2016. Высшая лига. Финал (2016.12.24) HDTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132AFC4585FF1A60992D5EF4D907450CAB6EE951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271460   (149441) от 23.12.2018
 
 uTorrent 3.5.5 Build 44954 (Ad-Free) [Multi/Ru]
@@ -6,7 +79,7 @@ uTorrent 3.5.5 Build 44954 (Ad-Free) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149441.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ PowerDirector – Video Editor v12.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149445.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:98D1E78CE59B47FD0CCCA2554B54B816AFFBEE9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149455.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Wise Windows Key Finder 1.0.1.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149464.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:C69DD370A535F2B2AE575794548C869792CEF65C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149468.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ MAGIX Video Pro X10 16.0.1.242 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149470.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:B101F95BB8F036FF9BB5210D8DB8BA19BB73DF95
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149476.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:A796A009228E7E125BD2CEAC294D7F4022BCDD35
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149485.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:4CC7D5434290CE3D7894A9C3F9CB382133779ABE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149486.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:57AC607DEE7E45D597C45946A78A7DBACEB90266
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149492.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ DirPrintOK 4.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149503.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:423A53404CFA255894DE23C95D06D18DC89E50A3
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149722.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Q-Dir 9.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149725.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:0A4B14C4BF54A961357E626532B67B682F1671D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149779.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ Wise Folder Hider Pro 4.2.4.164 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149782.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ AnyTrans for iOS 8.8.1.20201224 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149787.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ iMap Builder: Organisation 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149788.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ magnet:?xt=urn:btih:5473A9E889FFBA31F91E1C62C5D27D421A529C38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149794.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ magnet:?xt=urn:btih:2D802422CA01A6B1A22A190BE1A4B5E8E321CF98
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149795.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Combo Cleaner Premium 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149798.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:054481F9B410493B4A46F0078D34682787FBB40F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149806.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:1612E40F556517831EA34B3BF145081C370479B0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149810.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ Wise Memory Optimizer 3.6.3.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149814.jpg" />
 </div>
 
 
@@ -549,79 +622,6 @@ Wise Memory Optimizer 3.6.3.107 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:593A88C0B139E1E6A5B0B39FD60BB513172740F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519341   (149817) от 23.12.2021
-
-Cockos REAPER for Mac v6.43  [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 Cockos IncorporatedПоддерживаемая ОС: macOS 10.5 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD36D0F907829E85108E77D4D2C9BC89079F2B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677587   (149820) от 18.11.2023
-
-Maxon ZBrush 2024.0 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149820.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка (называемая пиксель) содержит информацию не только (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB7D8F44DD5CB530F42AEF999CD7B8C01497DB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519350   (149826) от 23.12.2021
-
-DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F86D7CDCE9DE9F3EBF839B7DF67EE0E2051A96
 ```
 
 

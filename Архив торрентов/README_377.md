@@ -6,7 +6,7 @@ uTorrent 3.1.3 Stable (build 27060) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88375.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ uTorrent 3.1.3 Stable (build 27060) [Мульти, Русский]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88378.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ UltraEdit 18.00.0.1034 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88382.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ UltraEdit - мощный текстовый редактор для написа
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88393.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ UltraEdit - мощный текстовый редактор для написа
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88394.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9852000D1CBB60C31813842DCBA1447BD0A327DF
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88400.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88402.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88404.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88415.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1E68A45DB11126E4B7BA68B96A22D147E0BE6989
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88427.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1E68A45DB11126E4B7BA68B96A22D147E0BE6989
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88435.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:F31CF8D5CACF575771BF043A4E9458E308D92EE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88436.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Blumenthal Web Builder 2011 11.2.2.131 [Русский, Английский, Н
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88439.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ WeBuilder является революционным все-в-одном ве�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88441.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Auslogics BoostSpeed 5.2.1.10 Portable by PortableApps [Мульти, Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88444.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88449.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88453.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88454.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88466.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tears For Fears - Songs From The Big Chair (1985) [WavPack|Lossless] US Remaster
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88471.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88473.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88480.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88489.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88501.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:C3CDB8D05277F5058BF005A0CF438BDA98F188CE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88508.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ St.World представляет самую волшебную коллекци
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88532.jpg" />
 </div>
 
 

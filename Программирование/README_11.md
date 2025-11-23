@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173326.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sebastian Raschka etc.| Machine Learning With PyTorch and Scikit-Learn [+code] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174726.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174726.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175495.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176323.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176331.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ John Thomas | Data Structure and Algorithms With Python: The Ultimate Guide Towa
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176461.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176461.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177160.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177160.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177247.jpg" />
 </div>
 
 
@@ -196,6 +196,54 @@ magnet:?xt=urn:btih:CA045C43C10AC1055FB6FEBF7D1DF8DA02D711DA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429128   (177342) от 05.12.2020
+
+Хуан Нуньес-Иглесиас и др. | Элегантный SciPy (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга познакомит вас с основополагающими компонентами библиотеки SciPy языка Python. Вы научитесь писать элегантный, ясный, краткий и эффективный программный код благодаря примерам из обширной научной экосистемы Python. Кроме SciPy, вы узнаете много нового про сопутствующие библиотеки, такие как NumPy, Pandas, scikit-image. Издание будет полезно всем программистам (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABE2E49A9B2EC2AAFC57677FEDB28419EEDB1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428920   (178041) от 04.12.2020
+
+Кеннет С. Рубин | Основы Scrum. Практическое руководство по гибкой разработке ПО (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите разрабатывать по методике Scrum программные продукты, способные удовлетворить любого заказчика, то в этой книге вы обнаружите единый источник и исчерпывающее руководство по Scrum, которые вы так долго искали. Автор книги, ведущий специалист по обучению методике Scrum, раскрывает в ней основные ценности, принципы и нормы практики Scrum, а также описывает (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFF6392B2A84E567DDB5E5906ABFE8F4974F0F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666613   (178710) от 05.10.2023
 
 Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
@@ -204,7 +252,7 @@ Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178710.jpg" />
 </div>
 
 
@@ -228,7 +276,7 @@ Mark Simon | Getting Started with SQL and Databases (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178722.jpg" />
 </div>
 
 
@@ -252,7 +300,7 @@ magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178822.jpg" />
 </div>
 
 
@@ -276,7 +324,7 @@ magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179299.jpg" />
 </div>
 
 
@@ -300,7 +348,7 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179885.jpg" />
 </div>
 
 
@@ -324,7 +372,7 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179915.jpg" />
 </div>
 
 
@@ -340,6 +388,31 @@ magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428138   (180372) от 01.12.2020
+
+Рик Гаско | Простой учебник программирования (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это лучший учебник программирования, по крайней мере, из всех доступных на русском языке. Проработав книгу от начала и до конца, читатель получит ясное понимание - что это такое, программирование. Выбранный в дальнейшем конкретный язык программирования неважен, важны принципы.
+В первую очередь это книга для тех, кто, являясь профессионалом в своей области, хочет (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999FB6096684EC5073795FDECB9ED5138A4E8837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665954   (180620) от 02.10.2023
 
 Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
@@ -348,7 +421,7 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180620.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180657.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181802.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181802.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181813.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181820.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Matt Frisbie | Professional JavaScript for Web Developers, 5th Edition (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182038.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ magnet:?xt=urn:btih:0AACE089FDD267F1FF20A89BFA532AA04EEBF27D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182555.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_182555.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ magnet:?xt=urn:btih:62D43BF4962D53AD619CB1C0BAF900F1A0A0494B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182662.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182703.jpg" />
 </div>
 
 
@@ -557,78 +630,6 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4623467A0421F98991FBC83FA1CD4F631145640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665064   (182992) от 29.09.2023
-
-Tiago Rodrigues Antao | Fast Python (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ваше руководство по оптимизации всех этапов процесса анализа данных на языке Python, начиная с написания чистого кода на Python и заканчивая управлением ресурсами современного оборудования и графических процессоров. Вы научитесь переписывать неэффективные структуры данных, улучшать малоэффективный код с помощью многопоточности и упрощать наборы данных без ущерба (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning Publications CoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84736047DC6C66430FF88455B780D531B210BD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664871   (183656) от 28.09.2023
-
-Х. Фултон | Программирование на языке Ruby (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ruby - относительно новый объектно-ориентированный язык, разработанный Юкихиро Мацумото в 1995 году и позаимствовавший некоторые особенности у языков LISP, Smalltalk, Perl, CLU и других. Язык активно развивается и применяется в самых разных областях: от системного администрирования до разработки сложных динамических сайтов. Книга является полноценным руководством (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПрофобразованиеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC3E0BB2DAE4E5C64D5E73AA507E173927414C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664934   (183736) от 28.09.2023
-
-Иван Гришаев | Clojure на производстве. Зипперы, базы данных, REPL (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение книги, изданной три года назад. Мы продолжим изучать Clojure — замечательный язык с акцентом на неизменяемость и асинхронность.По структуре и изложению книга похожа на первый том. Мы подробно рассмотрим несколько тем, чередуя теорию с практикой. Вас ждут зипперы, базы данных и обширное понятие REPL. Материал рассчитан на продвинутую аудиторию. Желательно, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFD08992C9797E3521EFA9C0BA4E2CEA2AFF250
 ```
 
 

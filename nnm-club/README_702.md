@@ -6,7 +6,7 @@ Toon Boom Harmony Premium 24.0.1 Build 23019 (x64) RePack by PooShock [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:97C578396EEF2533706BBFAAF73476462D68A0E6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18577.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Decepticon [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18578.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.508.0.0/dlc) Repack Decepticon
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18579.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.508.0.0/dlc) Repack Decepticon
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18580.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9757CA38FAD029576241C9E091D1BF7267AD396F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18581.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A1FEA2D2981B5C47978ECF9933E95C1131F11CF3
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18582.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:44DA24FD1FC4AFD1760367F00EB1B5C0C1F6CDCA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18583.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:11822440909338A2A26F71F8DD1D31B2B114B278
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18584.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A522BB213AAB0D0BFF11D9AB489793BBEAB1FAF5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18585.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9DD0B6DF1B01445052A42574AFDAACF813DFA824
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18586.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:36FFCCA4A3227FC903DE10E091842DB3AB5D3E79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18587.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18588.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:964A671434532A2E0B377405C218951CE2BE93A6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18589.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A6E8386D871638063B943924D2ED248ABB2771DE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18590.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8C5C5CFDA2530EB96B49EB6B6B441CF49D29EC13
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18591.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:253E65AFD8C64BDA27284FBF6C760E69B9DC5197
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18592.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8EBEBC49AF54EB7FC4E00A9C5A57D5251D62EED7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18593.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:16ECEF3C5191D46AAD046948A64824541EA74C62
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18594.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:6B29B6807C83D22B7D30B4BE68DE6889ACD38236
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18595.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:610D3AF33AF23FD5AFBE6E1CBA519922200669FB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18596.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Topaz Photo AI Pro 4.0.0 Portable by 7997 + Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18597.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18598.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18599.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18600.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:29C96F522C8868EF6A1B66B86B57F6B3141CA4ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18601.jpg" />
 </div>
 
 

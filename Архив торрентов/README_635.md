@@ -6,7 +6,7 @@ Chton - The Devil Builds (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135014.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Microsoft Activation Scripts (MAS) 2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135018.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:382FACD93FCFA43E9F6B72A96AAC15F059CFF44A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135027.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135027.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Start11 Version 2.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135052.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:45501766C5978C6CD01681E209CF7E8377ACDD2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135060.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:86F4118B78662590CBF1DA0B9D2A6347A1C72680
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135070.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135070.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Planet VPN 2.1.26.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135079.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Classic Menu for Office Enterprise 2010 and 2013 5.55 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135086.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135086.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.47
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135145.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Protoxide: Death Race rus [Игра] (Symbian^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135152.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135152.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Henry S. Warren, Jr. | Алгоритмические трюки для прог
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135156.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135158.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135162.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ LuninuX OS 12.10 [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135170.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135170.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ LuninuX OS 12.10 [i386 + amd64] (2xDVD)
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135172.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F13D4A3952420011965495CDBB1438D00C3669A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135178.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ AllDup 4.5.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135184.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Termius for Mac 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135188.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135197.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135197.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135205.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Espresso 2.0.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135213.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Corel AfterShot Pro 1.1.0.30 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135220.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135220.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lucky Patcher 11.0.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135222.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Aiseesoft DVD Software Toolkit Ultimate 6.3.60 Repack by Casper03 [Мульти/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135228.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135228.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aiseesoft DVD Software Toolkit Ultimate - мощный пакет програм
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135239.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ ROSA 2012 GNOME - Alpha (Национальная программная пла�
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135244.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135244.jpg" />
 </div>
 
 

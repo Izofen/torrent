@@ -6,7 +6,7 @@ V.A. - Iconic 80s Pop Rock (2025) [FLAC|Lossless|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Relaxing Chill Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21117.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21259.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Best 80s Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22719.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C7729E0E1E9F9540AF71EC0B35B700A4F4EDF988
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23537.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23715.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Secret Service - When The Night Closes In (1985) 1st Scandinavian Press [APE|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24042.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lady Gaga - Mayhem (2025) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25313.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25452.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27001.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27119.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27119.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28358.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28376.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28463.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28469.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28469.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30093.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30219.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31879.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31887.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31891.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32028.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32197.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32292.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32322.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Wings - Wings At The Speed Of Sound (1976) Japanese Edition, SHM-CD, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32408.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Queen - Hot Space (1982) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32609.jpg" />
 </div>
 
 

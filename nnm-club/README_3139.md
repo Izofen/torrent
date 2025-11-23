@@ -1,3 +1,75 @@
+###  Публикация: 1822455   (100717) от 06.10.2025
+
+Саша Фишер | Звезда заводской многотиражки (Книга 2) (2024) [MP3, Андрей Андриевский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне начало казаться, что только здесь, в Советском Союзе восьмидесятого, я ощутил себя по-настоящему дома. Теперь мне хочется вцепиться в это место и время, врасти в него и не отпускать.Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB3C67F52FEA7F5F63A9D9ECC3ACB42FDDA2A42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822426   (100718) от 06.10.2025
+
+Дарья Донцова | Любительница частного сыска Даша Васильева (Книга 71). Блоха на балу (2024) [MP3, Елена Дельвер]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже у самой ласковой, нежной и нескандальной женщины есть шкаф, в котором бережно хранится летательный аппарат под названием «метла». Не на ней ли улетела девушка Алена, в которую влюбился верный помощник Даши Васильевой? Повелитель ноутбуков и король клавиатуры, компьютерный гений агентства «Тюх» Кузя познакомился с Аленой в сетевой игре «Война двух стран». Почти (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C2D8B79DED18C4491F8708EB1BBD48A09F6103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822427   (100719) от 06.10.2025
+
+Евгений Спицын | Сборник книг. Советская держава в 1945-1991 годах. [7] (2019-2025) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами плод многолетних трудов известного писателя, посвященный истории СССР 1945 - 1985 гг. В нашей историографии, уже давно закрепилось несколько названий той эпохи, в том числе предельно лживые штампы как «хрущёвская слякоть», «брежневский застой», созданный архитекторами и прорабами горбачёвской перестройки. Автор мастерски и беспристрастно на основе архивного (   Читать дальше...   )Жанр: История, Биография, ПублицистикаИздательство: КонцептуалФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC635B6AB766D35C8DCD9FB552920D3BCD5F53C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822429   (100720) от 06.10.2025
 
 Кристин Мэнган | Континентальный роман (2024) [MP3, Григорий Перель, Мария Орлова]
@@ -6,7 +78,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100720.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ RetroX - Favorites Collection - Favorites Collection (2025) [MP3|320 Kbps] <Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100721.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:AD9C48E8935B5F255BA1ED4C6E3177B599F3130E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100722.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:B031972253B7BA1D9C41F93DBE1B75D4B06CAF24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100723.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:4C9A506EF21266DA889374D6D1F59E2D24F184CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100724.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:E23544F2DA8015DE8217770C870CB17D9630159C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100725.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:B42E9B7976F619FDDA992617E92D834AC1AF212A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100726.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Romantic Dreams - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100727.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:C897ED702DFD002BC64B0E92A23F24546BA716AB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100728.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:F590B8BDEAE6DBD5BF70F82409AC6E9C1774289C
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100729.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.7.2.14566) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100730.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ magnet:?xt=urn:btih:04F18744D930DA7CFD3204AE76588B9E97163D94
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100731.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100732.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ StartAllBack 3.9.16 build 5320 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100733.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:9E0A3CA0B3BAF54B14D027091B87C44A670B03B5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100734.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100735.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100736.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100737.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100738.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100739.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100740.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100741.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100742.jpg" />
 </div>
 
 
@@ -570,84 +642,6 @@ magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1677BD523C8F935EEF8C5FD5389CBA386525E6A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822422   (100743) от 06.10.2025
-
-Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yellow Brick Veneer (6:10)
-02.  Don't Want to Follow You (4:48)
-03.  Watching You as You Fall (4:55)
-04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822420   (100744) от 06.10.2025
-
-Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100744.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1595BC7A574BB7FF97E75C1961A2A4AEA234B3FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822419   (100745) от 06.10.2025
-
-Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soul Brass (3:22)
-02.  CITY COLLECTIVE (3:10)
-03.  Piano Strumming (3:11)
-04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1680471   (134153) от 29.11.2023
+
+TikTok 32.2.4 Mod by Dmitry Nechiporenko [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134153.jpg" />
+</div>
+
+
+###  Подробнее
+
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, различные эффекты, шрифты, эмодзи, фильтры (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.11.2023Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D77EE82A54C7522AD12B84063E1DD53E38EA23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594310   (134154) от 25.12.2012
+
+В.Д.Никонов, А.В.Протасов | Бронированные колесные машины 1914-1980 гг. Справочник [2007] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134154.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике содержатся сведения о конструкциях бронированных колесных машин России и СССР с самого их зарождения до середины 80-х годов прошлого века.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3921D9435789D01189E1F7590DF62830223760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680556   (134155) от 29.11.2023
+
+izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой телефон в персонального гида и станьте настоящим путешественником. Откройте для себя новые города, живописные маршруты, необычные музеи и колоритные достопримечательности. Аудиогид поможет вам лучше проникнуться местной атмосферой. Поделитесь с друзьями своими впечатлениями о путешествиях и расскажите им свои истории. Превратите свою поездку в настоящее (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 20.08.2023Разработчик: Informap Technology CenterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593857   (134156) от 25.12.2012
 
 Высокие стены / Les hauts murs (2008) DVDRip [FR]
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134156.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:5239AC8261DD2A346C3E5DADE1A1B9C3C9E4DC2A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134157.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Sumatra PDF 2.2 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134158.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134159.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134160.jpg" />
 </div>
 
 
@@ -140,7 +212,7 @@ WinTools.net 23.12.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134161.jpg" />
 </div>
 
 
@@ -164,7 +236,7 @@ magnet:?xt=urn:btih:15A38DA2E8FB4165A0F71CFA9975BB8E915729EC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134163.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ magnet:?xt=urn:btih:39208F0270B241DF1F66E4439C7AFCB478ED7740
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134164.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ magnet:?xt=urn:btih:B2DF510DE9A76D73F0C376840352C5B6F79FAC3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134165.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134167.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134168.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ magnet:?xt=urn:btih:06F3B2DB5AD9C12E7C185C6A2699C77850FCBB32
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134169.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Light Image Resizer 4.3.4.2 + by PortableAppZ [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134170.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134171.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134172.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:3AB3B06D22984F6F047AAA1AD228CF1B021D9BB8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134173.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:FC7F58672C26DA4204A6BBFBA6937D9C2E23E04C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134175.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Chromium-Gost 119.0.6045.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134177.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ VA - Twenties Rock Fifty Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134179.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:D3171C566643114041F12FB69712DAA424FF292F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134180.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134181.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:1BA346AB53615DDBB44B215689F369BB291CA7B0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134182.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134183.jpg" />
 </div>
 
 
@@ -579,81 +651,6 @@ magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41D924C5C690904922CCCCAB228421FAC219B561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680407   (134184) от 29.11.2023
-
-Луи де Бройль | Электромагнитные волны в волноводах и полых резонаторах (1948) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного французского физика-теоретика содержит изложение основных вопросов теории волноводов и полых резонаторов, которые находят широкое применение в такой важной области техники, как радиолокация. Отличаясь простотой и ясностью изложения, книга, несомненно, будет полезна для физиков и инженеров, работающих в области ультракоротких волн.Жанр: ФизикаИздательство: Государственное издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B2E56C9CBFC3A778C8E6F5EFDEB97117B2BD94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680332   (134185) от 29.11.2023
-
-VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estragur - North Wind [05:06]
-02. Magmatunes - You [05:17]
-03. Ludwig A.F. - Glass [04:34]
-04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680553   (134186) от 29.11.2023
-
-BitComet 2.05 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134186.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitComet - это функциональный, быстрый и простой в освоении клиент, который позволяет работать со ссылками формата Bittorrent. Он поддерживает одновременное скачивание нескольких файлов с возможностью установления приоритета загрузки, может создавать очередность загрузки, имеет возможность быстрой остановки/возобновления закачки файлов. Работает с прокси-сервером, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF962F5D33DF8069ADDDCC635B0C4B3E34DC453
 ```
 
 

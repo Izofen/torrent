@@ -6,7 +6,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158894.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159076.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159096.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159103.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:40305324BEECE3BA9516F4CBF8E3AC476257E879
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159115.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159131.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159137.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159147.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159157.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159159.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:65FF263EFAA2E36F8212042E346CC688DF9716F3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159171.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159176.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159178.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Udemy, Андрей Бегишев | Большой курс Чжун Юань �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159441.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6B05FCCA00A55A1C7980D5227C6EA68A75AA075E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159454.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:645C5E36E4B4E37E3A1C2F31C43A9AF1DD0FC0E7
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159462.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:7A9364A7A769E272F954E509E6A52B09614A8AC6
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159464.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6307B223F3F2DFD00215499F1D74E751B753F829
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159483.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BodyCoach, Александр Бурлаков, Анна Берекетова и
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159495.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5B22020549AD21D1B27C444B2F6668470157BE5C
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159502.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:AA6C3D8C4CD9BFA2C0C923E08F4377EA5E6C5504
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159506.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Domestika, Mina Barrio | Профессиональные селфи и виде
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159511.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy, Gary Hiebner | Mastering Your Drums in Studio One (2023) WEB-DL [AD] [EN,
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159769.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mokosmed, Мария Моргунова | МАКРО-, МИКРО- И УЛЬТР
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159800.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Merion Academy, Олег Филиппов | Основы реляционных 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159920.jpg" />
 </div>
 
 

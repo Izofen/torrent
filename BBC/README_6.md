@@ -6,7 +6,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146886.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151059.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155416.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155568.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156038.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158011.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159543.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163837.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165571.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167085.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167419.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167472.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DBE0FAA3701801535B0D3EC3B14FA7FCD5FD9174
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169946.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170022.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170265.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171678.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174818.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174818.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174904.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174904.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175421.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175421.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:69CAF26C29F67D27A9DADDCBEBB472CDBC080A59
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175993.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175993.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134222.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134224.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TechSmith Camtasia 2023 Studio 2023.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134225.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nature Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134231.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ HQ Wallpapers Perfect Women (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134232.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134233.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vivaldi 6.4.3160.47 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134235.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Animal Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134236.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PDFCool Studio 3.30.121225 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134238.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134239.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sexy Girls Pack Wallpapers (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134242.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wondershare PDFelement 10.1.9.2557 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134243.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CC13F714DD644970338CA2724C6C03B634A9037A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134244.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134245.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sexy Girls Wallpapers (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134246.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Fort Firewall 3.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134247.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ TG Pro (Temperature Gauge Pro) 2.89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134249.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Skype 8.109.0.209 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134251.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:4F82F49C6D05BC011ABF44F5F38A8FA853905B61
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134252.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Hardwell - Hardwell On Air 095 (21.12.2012) [MP3|320 кб/с]<Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134256.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134259.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Kane Roberts - Unsung Radio (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vinegar 2.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134264.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:AF9879B8CE3FA05DC7EBCFFC851AE31CD5106244
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134269.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Inherit Disease - 2 Альбома (2006-2010) Дискография [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134274.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dalindeo - Open Scenes (2007) [MP3|320 кб/с]<Nu Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134276.jpg" />
 </div>
 
 

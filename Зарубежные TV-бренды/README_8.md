@@ -6,7 +6,7 @@ Animal Planet: Живой или вымерший. Флоридский черн
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63642.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Animal Planet: Заповедная Аляска / Into Alaska (2018) HDTV [H.26
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63671.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5FF1606FEA45DB0200B3588C138840760A2BF4F0
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63918.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E80B1CC0EBB3AFD845813B8763470F28960C78BD
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74395.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ BBC: Век эгоизма. Часть 2 – Конструирование со
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75683.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79153.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79548.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9B6B29E5E69C746968AA065AC03635C277B8E083
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79664.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80184.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:648AB158A756618050E1BDF23664031AF20D9610
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80218.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80994.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81397.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81616.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E66BFA6C0A9F69BE20115BAD420F0126329365DE
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81669.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BBC: Век эгоизма. Часть 3 – В твоей голове сиди
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81679.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Animal Planet: Нашествие саранчи: Насекомые, сожра
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81688.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82023.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82063.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:2F4D8BD01415AE83814682FE57861A9B286D482D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84473.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:95B0B330BD7142BC247F005C43A1EB2806F9C818
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85308.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85393.jpg" />
 </div>
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 488105   (90876) от 26.04.2012
+
+[PC] Эмулятор Sony Playstation Portable "Jpcsp" v.0.6. SVN r2540 [Multi14\+] (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда JPCSP выпустила свой новый эмулятор, который позволяет играть в игры от PSP на PC. JPCSP показывает другой уровень стабильности, красочности, яркого геймплея, запуска большого количества игр и существенных исправлений. Графика становится приятнее, играть становится удобнее и интереснее, по сравнению со старыми версиями. Всем приятной игры и побед в виртуальном мире!
+Новая ревизия Jpcsp - эмулятора PSP, на этот раз нам принесла 2 важнейших изменения - полноценную поддержку геймпадов (однако еще возможны проблемы) и встроенный дешифратор лоадеров, способный расшифровывать даже прошивки 6.3х проверено на GoW: Призрак Спарты с прошивкой 6.31, а также на неё пошла игра Tekken 6.
+Сейчас ведется работа над оптимизацией шейдеров под видеокарты из лагеря "красных" (AMD). Частичная поддержка реализована, но пока совместима только с версией catalist 11.1, на 11.2 уже ситуация становится прежней - появляются новые проблемы. Также добавлено несколько новых функций:
+Enable decoding of indexed textures (using (   Читать дальше...   )Язык интерфейса: Русский / Английский / Китайский (Упрощенный) / Китайский (Традиционный) / Француский / Испанский / Немецкий / Литовский / Каталанский / Японский / Польский / Итальянский / Португальский / Португальский (Бразильский)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488372   (90879) от 26.04.2012
+
+Total Commander 7.57а kIT Programs PowerPack 12.4 [Рус]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90879.jpg" />
+</div>
+
+
+###  Подробнее
+
+kIT Programs PowerPack - набор программ, составленный из лучших представителей в своих областях применения. Набор насчитывает десятки различных бесплатных редакторов, просмотрщиков, утилит, способных удовлетворить любые потребности продвинутого пользователя. Единственная условно-бесплатная программа - сам Total Commander.
+
+В основе набора лежит популярный файловый менеджер Total Commander с наиболее востребованными расширениями и плагинами. Визитной карточкой набора является оригинальная панель инструментов Total Commander - удобная и при этом компактная.
+
+Практически все программы, входящие в набор, представлены в виде portable-версий, поэтому kIT Programs PowerPack может устанавливаться и простым копированием, но для удобства пользователей имеется и простой и понятный установщик.
+
+Поддерживаются 32- и 64-битные ОС.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488381   (90881) от 26.04.2012
+
+Даниэль Дефо | Жизнь и удивительные приключения Робинзона Крузо [1955] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами, пожалуй, одна из самых знаменитых в мире историй. Кораблекрушение, необитаемый остров, Пятница…
+Человек, попавший на необитаемый остров без всякой надежды на будущее, но, несмотря на это, сумевший выжить, провести в одиночестве долгих 28 лет и сохранить человеческий облик. Сколько же поколений читателей выросло на этой книге!Жанр: Детская литература, приключенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E324556A4877CC0961707FA2070E1BCE477F9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488633   (90888) от 26.04.2012
 
 Катя Матюшкина | Кот да Винчи. Пираты Кошмарского моря [2010] [MP3]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90888.jpg" />
 </div>
 
 
@@ -30,7 +112,7 @@ magnet:?xt=urn:btih:92EEE843C29A787E842A8A88EA2299106F347BF2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90891.jpg" />
 </div>
 
 
@@ -54,7 +136,7 @@ magnet:?xt=urn:btih:92EEE843C29A787E842A8A88EA2299106F347BF2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90892.jpg" />
 </div>
 
 
@@ -78,7 +160,7 @@ magnet:?xt=urn:btih:B00185473864D7D3FFC55C23554DB3A7CA561BA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90896.jpg" />
 </div>
 
 
@@ -102,7 +184,7 @@ magnet:?xt=urn:btih:4A3DCBAACB3C2358F1D81E6C45042048C1FF06FC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90897.jpg" />
 </div>
 
 
@@ -127,7 +209,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -152,7 +234,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90900.jpg" />
 </div>
 
 
@@ -176,7 +258,7 @@ magnet:?xt=urn:btih:BFA3FB5D1C46BC2768A92B9D926E38F7D2C192C7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90901.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ Ford Focus III. Руководство пользователя [2011] [PDF]
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90902.jpg" />
 </div>
 
 
@@ -224,7 +306,7 @@ magnet:?xt=urn:btih:80A1D8ADF2F1EC56A895236E0000692C19D60279
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90903.jpg" />
 </div>
 
 
@@ -248,7 +330,7 @@ Cracked Horn (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90905.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90907.jpg" />
 </div>
 
 
@@ -296,7 +378,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90908.jpg" />
 </div>
 
 
@@ -320,7 +402,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90914.jpg" />
 </div>
 
 
@@ -344,7 +426,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90915.jpg" />
 </div>
 
 
@@ -370,7 +452,7 @@ Kubuntu 12.04 LTS [i386] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90916.jpg" />
 </div>
 
 
@@ -394,7 +476,7 @@ magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90917.jpg" />
 </div>
 
 
@@ -418,7 +500,7 @@ magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90919.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ magnet:?xt=urn:btih:E62468E2C9C4874BECBD512C53AA542C2C4913BA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90920.jpg" />
 </div>
 
 
@@ -468,7 +550,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90922.jpg" />
 </div>
 
 
@@ -492,7 +574,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90923.jpg" />
 </div>
 
 
@@ -517,7 +599,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90924.jpg" />
 </div>
 
 
@@ -541,85 +623,13 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90928.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Главные герои ситкома – четыре интерна. Они все время попадают в идиотские ситуации, а их руководитель доктор Быков (Охлобыстин) с удовольствием за этим наблюдает. Доводить интернов до белого каления Быкову помогает друг доктор Купитман и мешает главврач больницы Анастасия Кисегач. Почти все сюжеты взяты из реальной врачебной практики. Роль доктора, который помимо своей воли становится руководителем практики у четырех оболтусов-интернов, играет Иван Охлобыстин. (   Читать дальше...   )Жанр: КомедияРежиссер: Максим Пежемский, Заур БолотаевВ ролях: Иван Охлобыстин, Вадим Демчог, Светлана Камынина, Александр Ильин мл., Кристина Асмус, Илья Глинников, Дмитрий ШаракоисПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152818   (90930) от 26.04.2012
-
-Придорожная закусочная (Дом у дороги) / Road House (1989) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далтон (Суэйзи) - вышибала в кафе, а оружие его - холодный рассудок, увесистые кулаки и... степеннь по философии. Уэсли (Газзара) разбогател, вымогая деньги у бизнесменов. Любой крепко подумал бы, прежде чем выступать против Уэсли. Любой, кроме Далтона. Прекрасная докторша (Линч) любит Далтона, но ей за это жестоко мстит Уэсли. Эллиотт играет лучшего друга Далтона, (   Читать дальше...   )Жанр: Боевик, Драма, КриминалРежиссер: Рауди Херрингтон / Rowdy HerringtonАктеры: Патрик Суэйзи / Patrick Swayze, Бен Газзара / Ben Gazzara, Келли Линч / Kelly Lynch, Сэм Эллиотт / Sam Elliott, Джули Майклс / Julie Michaels, Маршалл Тиг / Marshall TeagueПеревод: Авторский (одноголосый)Субтитры: НетФормат: AVIПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488480   (90932) от 26.04.2012
-
-А.С. Кудрявцев | Программирование в Delphi. Учебное пособие [2011] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются общие характеристики и структура программной системы Delphi, графический интерфейс ее среды программирования, основные конструкции используемого языка программирования и технология программирования.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488606   (90933) от 26.04.2012
-
-Неприкасаемые / 1+1 / Intouchables (2011) [720p] BDRip <LINE>
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пострадав в результате несчастного случая, богатый аристократ Филипп нанимает в помощники человека, который менее всего подходит для этой работы, — молодого жителя предместья Дрисса, только что освободившегося из тюрьмы. Несмотря на то, что Филипп прикован к инвалидному креслу, Дриссу удается привнести в размеренную жизнь аристократа дух приключений.Жанр: Драма, КомедияРежиссер: Оливье Накаш, Эрик ТоледаноАктеры: Франсуа Клюзе, Омар Сай, Анн Ле Ни, Одри Флеро, Клотильд Молле, Альба Гайя Крагеде Беллуджи, Сирил Менди, Кристиан Амери, Грегуар Эстерманн, Жозефин де МоПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:52:02
 
 ## Скачать торент
 ```bash

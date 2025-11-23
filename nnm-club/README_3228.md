@@ -1,3 +1,81 @@
+###  Публикация: 1754973   (103609) от 13.10.2024
+
+Белый город | Акафистник семейный (2020) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны акафисты, которые христиане могут читать, молясь о создании семьи и о семейном благополучии. Здесь представлены девять акафистов: Святой Троице, Богородице в честь иконы «Млекопитательница», Ангелу-хранителю, а также святым – от праведных Иоакима и Анны до праведного Алексия (Мечёва), пресвитера Московского.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202DCDC5390D147CCDDDB8F7EF7198EF13487841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754956   (103610) от 13.10.2024
+
+Hydra - Rehydration (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Belong (5:37)
+02. Marionette (5:10)
+03. Still The Same (4:59)
+04. Eye Of The Storm (5:04)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48120E6B162C1079A11D45CCC13BBDACAD5D434E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754987   (103611) от 13.10.2024
+
+Бранимир (Александр Геннадиевич Паршиков) - Ждут домой (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Dark-Folk-Rock, Dark-Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты меня где-то ждёшь [00:03:49]
+02. Вахтовик звонит домой [00:03:52]
+03. Провожал я друга на войну [00:03:41]
+04. Стёпка украл гуся [00:03:20](   Читать дальше...   )Жанр: Acoustic, Dark-Folk-Rock, Dark-ChansonПродолжительность: 00:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755065   (103612) от 13.10.2024
 
 Первая передача на НТВ. Автомобильная передача (13.10.2024) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103612.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103613.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:DB827098FA5C7BA37F75D088E4CE1C5C274E3247
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103614.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103615.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ magnet:?xt=urn:btih:3FD6B7C94BD2F6DE8B3D22896F5CEEA338228A36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103616.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103616.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103617.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Joe Pass - Live In Vegas (1988) 2018, Hi Hat [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103618.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ magnet:?xt=urn:btih:D2E2CB34EA352FBE9A3DE5061A1BC34FE9238B45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103619.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ magnet:?xt=urn:btih:D2E2CB34EA352FBE9A3DE5061A1BC34FE9238B45
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103620.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ magnet:?xt=urn:btih:D668E9940843205BC33471E0307A5E5A9E691192
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103621.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ magnet:?xt=urn:btih:11EBB2E858FD1559FBCADBE3075491D83CF3003F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103622.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ magnet:?xt=urn:btih:1C28A8B4E5AD1A6CA0BF57F6475E43646913B6A6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103623.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103624.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ magnet:?xt=urn:btih:07ACF6420C1F8F9D32C83FAF4B9AA6A88759198E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103625.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ magnet:?xt=urn:btih:7118772007F8ABC8CFF34123EBB36263283F8A3E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103626.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ magnet:?xt=urn:btih:F3D7C81264C1367F4ADF46CDD20AF28B0807CF68
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103627.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:27FECDA6A386B779D1B6AB623DD8CB0972B399DB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103628.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ VA - The Orient Collective - Ancient Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103629.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ magnet:?xt=urn:btih:BCAB4806674CC55883C66BB95AB8889D80121C15
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103630.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Eclipse - Megalomanium II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103631.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) EP [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103632.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ magnet:?xt=urn:btih:881712B4603F02BC92C3ABED673AE2EC6846013C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103633.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ magnet:?xt=urn:btih:F4938C58A750CDB1C29E2BD2316F0EE639F78E2C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103634.jpg" />
 </div>
 
 
@@ -593,78 +671,6 @@ magnet:?xt=urn:btih:F4938C58A750CDB1C29E2BD2316F0EE639F78E2C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C381DF528A10970C2433BC0C02182A0B66CEC560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754988   (103635) от 13.10.2024
-
-Белый город | Акафистник православной матери (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике содержится восемь акафистов: пять – Богородице в честь чудотворных икон и три – святым. Надеемся, что они помогут родителям в их молитвенной заботе о детях. Перед Феодоровской иконой молятся о даровании детей. Названия икон Богородицы «Помощница в родах», «Млекопитательница», «Воспитание» «Прибавление ума» говорят сами за себя. Преподобному Сергию, игумену (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9B08B1FA264EB5EC84558F0B33122C8123A946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754979   (103636) от 13.10.2024
-
-Белый город | Акафистник. Исцели и помилуй (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103636.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике содержится восемь акафистов, которые помогут читателю в молитвенной заботе о своем здоровье и здоровье близких. Первые два акафиста посвящены Спасителю и Богородице (перед Ее иконой «Всецарица» молятся об исцелении от раковых заболеваний), шесть других – святым – свт. Нектарию (к нему также обращаются с просьбой об избавлении от рака), вмч. Пантелеимону, (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754976   (103637) от 13.10.2024
-
-Белый город | Акафистник путешествующим (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103637.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике содержится девять акафистов, которые можно читать во время паломничества и любого путешествия. Первый посвящен Святой Троице, следующие три – Богородице Одигитрии, к помощи и заступничеству Которой мы постоянно прибегаем в своих молитвах, – это акафисты в честь икон Смоленской, Выдропусской и Тихвинской. Два акафиста обращены архангелу Рафаилу и Ангелу (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597ECB215861ADE4D87C29C3BDB93F02D1DD4A47
 ```
 
 

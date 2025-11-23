@@ -6,7 +6,7 @@ The Danger Zone (2025) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10934.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10935.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10943.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10946.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Factorio (2020) [Ru/Multi] (2.0.60/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10952.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.4/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10953.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Zombie Graveyard Simulator (2025) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10964.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Loophole (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10965.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10987.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10989.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10991.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Reus 2 (2024) [Ru/Multi] (1.8.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10992.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10994.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0r18) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10999.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11018.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11026.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11034.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11064.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11105.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11115.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11129.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11131.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11147.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11214.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11222.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11248.jpg" />
 </div>
 
 

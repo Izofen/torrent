@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82403.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82515.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:A131D93CE5D659FA276B973E9D5F66BC9377ABA4
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82728.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83309.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83357.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrum
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83360.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85122.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85997.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87305.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87373.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87506.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87800.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87868.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88229.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:17CCE7AFE4DD9CAA5A69AA8C3A6FCF3D873E8B03
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89102.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:17CCE7AFE4DD9CAA5A69AA8C3A6FCF3D873E8B03
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89375.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:9160CBDD1589153484FFAB4827165532651D3FF0
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89437.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Days of the Trumpet Call - 5 albums (1999-2010) [FLAC/APE|Lossless] <Neoclas
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89613.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apo
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90794.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90944.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94498.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94701.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94708.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94941.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96386.jpg" />
 </div>
 
 
@@ -785,7 +785,7 @@ Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96567.jpg" />
 </div>
 
 

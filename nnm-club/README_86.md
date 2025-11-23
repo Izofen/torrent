@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2274.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2275.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0-552065/dlc) Repack LetsPlay [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2276.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.5-d.8740/dlc) Repack Let'sРlay [Support
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2277.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2278.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jotunnslayer Hordes of Hel (2025) [Ru/Multi] (1.0.2.88095/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2279.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2280.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (2007) [Ru/Multi] (1.10.0.26261) Repack Let'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2281.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2282.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Windows 11 [10.0.26100.6584], Version 24H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2283.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:362F128BEB3151E842E2B92D08B5637B13797095
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2284.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:FDBBA0B6ABBE990F0E3C6CD51DED03C1AA4DA29E
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2285.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:BAD2C4D884FB075C4005B70C5BD01FE54AFE61BC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2286.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:AC64D4D9975A74F4E6442EA5E527781786A4C867
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2287.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Igorrr - Amen (2025) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Metal, Breakcore,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2288.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:0A0977958CF03B30F125E382F56B6713E66C426B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2289.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2290.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CC6198FF0B2DA8CB12FE0078EE5346F46F618BB7
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2291.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:CF480BA3D018AED0C1DBF3E9C09CD25299A5D0F8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2292.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2A969CF46BEB737777DFDA52E60A9CBE9A3381C0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2293.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:08A49343B3502B03F13A4B09276526041E20A690
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2294.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Novembers Doom - Major Arcana (2025) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2295.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2296.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Chasing Demons - Echoes from the Past (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2297.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:227695AF548611BF680393149F22923C3FB856CB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2298.jpg" />
 </div>
 
 

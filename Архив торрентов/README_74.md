@@ -6,7 +6,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21997.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22001.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22008.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ iDownerGo Video Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22016.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22022.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rufus 4.7 (Build 2231) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22026.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5737 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22027.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22037.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Shazam v15.16.0-250327 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22048.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MobiPDF: Редактор и сканер PDF  v11.4.266982 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22052.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EB324B359CA6F44B85662B59520D1711BA7AA26A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22056.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PotPlayer 250404 (1.7.22517) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22062.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ DjVu Reader & Viewer (читалка) v1.0.128 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22072.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FBReader Premium v3.8.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22074.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Firefox Browser 137.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22079.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.35026.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22084.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Aiseesoft Video Converter Ultimate 10.9.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22090.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ DISMTools 0.6.1.25032 (Update 1) + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22111.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Microsoft  Visual C++ Runtimes AIO v0.89.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22119.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22119.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Adobe Premiere Pro 2025 25.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22134.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22135.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Alfa eBooks Manager 9.1.40 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22143.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22143.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Music Collection 3.8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22147.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22147.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wondershare UniConverter 16.4.0.192 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22168.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22168.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AIDA64 v2.08 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22169.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22169.jpg" />
 </div>
 
 

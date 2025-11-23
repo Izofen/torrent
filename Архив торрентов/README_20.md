@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10202.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ CrystalDiskInfo 9.7.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10203.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0CC0C150796AE32F89E654E2FE4E810BF7172FA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10210.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:11438B3B81AB3793B8FE1CC911B4C7498BF13728
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10211.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:11438B3B81AB3793B8FE1CC911B4C7498BF13728
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10214.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:11438B3B81AB3793B8FE1CC911B4C7498BF13728
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10217.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ StartAllBack 3.9.13 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10222.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7909C29FFEA00A070C1968D2BE4B31F69D2354D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10223.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F14E094B5A81FD9360C5E781C25BE3C07CC4F610
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10224.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3F62E8BE296EE6CA61F67CEAFCCD5FA157AF78E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10234.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:939B63002E43338AB1FD63EB65368A45F2533E88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10236.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:C9EB3B0F18A40BE1E720A8BE1F1ACE98F02260DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10239.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F917330E7688551E9DDD287A01D9C05940C517F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10240.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ IObit Driver Booster Pro 12.6.0.620 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10244.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Telegram Desktop 5.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10256.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Music Collection 3.9.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10257.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Jigsawscapes® - Пазлы v4.1.6 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10268.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Auslogics Disk Defrag Pro 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10278.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Display Driver Uninstaller 18.1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10287.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Auslogics SSD Optimizer 2.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10293.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ WinRAR 7.13 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10310.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:150CB84DA75DC416FE63891C10363AEFA7D7BB74
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10313.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:150CB84DA75DC416FE63891C10363AEFA7D7BB74
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10314.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tor Browser Bundle 14.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10316.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10320.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10338.jpg" />
 </div>
 
 

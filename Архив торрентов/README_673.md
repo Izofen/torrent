@@ -1,3 +1,52 @@
+###  Публикация: 1435910   (142300) от 29.12.2020
+
+Irvue 2.7.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 03.10.2020Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E1EA7D7394A6DCF7829DBBB83604792548E1D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195501   (142310) от 29.12.2017
+
+Ummy Video Downloader 1.8.3.0 portable by DRON [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ummy Video Downloader - это полезная программа, которая поможет вам загружать видео HD с YouTube или mp3 Ummy-это самый быстрый и самый простой способ загрузить YouTube видео на ваш компьютер и смотреть их всегда, даже если нет подключения к Интернету. Создайте свой собственный супер сборник музыки и наслаждаться ею в любое время, где вы находитесь.
+Ummy Video Downloader (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7C098392448472E1CCB73AE33731AECB9C3ED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195465   (142313) от 29.12.2017
 
 Permute 2.5 [Multi/Ru]
@@ -6,7 +55,7 @@ Permute 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142313.jpg" />
 </div>
 
 
@@ -32,7 +81,7 @@ magnet:?xt=urn:btih:529CFED6551C52424207190FAF54B5FC10E5E5B8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142319.jpg" />
 </div>
 
 
@@ -56,7 +105,7 @@ magnet:?xt=urn:btih:9FA139942C0029B05110A5687776FF8E6A4F9DB9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142335.jpg" />
 </div>
 
 
@@ -89,7 +138,7 @@ ActivePresenter Professional Edition 7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142344.jpg" />
 </div>
 
 
@@ -114,7 +163,7 @@ magnet:?xt=urn:btih:2597AD10444A6D3334F6C305E7352C5E1566DEEB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142360.jpg" />
 </div>
 
 
@@ -138,7 +187,7 @@ Wondershare PDFelement Pro OCR 10.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142363.jpg" />
 </div>
 
 
@@ -162,7 +211,7 @@ OmniGraffle Pro 7.22.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142369.jpg" />
 </div>
 
 
@@ -186,7 +235,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142380.jpg" />
 </div>
 
 
@@ -210,7 +259,7 @@ BlueStacks App Player 4.32.90.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142382.jpg" />
 </div>
 
 
@@ -235,7 +284,7 @@ MAVEN Music Player Pro 2.48.39 [Ru] - Аудио плеер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142385.jpg" />
 </div>
 
 
@@ -259,7 +308,7 @@ Maxthon Browser 5.1.5.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142410.jpg" />
 </div>
 
 
@@ -284,7 +333,7 @@ SiteSucker 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142414.jpg" />
 </div>
 
 
@@ -309,7 +358,7 @@ The Crypt (Байки из склепа) 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142417.jpg" />
 </div>
 
 
@@ -333,7 +382,7 @@ magnet:?xt=urn:btih:7B4B54829C5BA5F4CCA1418B51F54199F2AA7BE4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142425.jpg" />
 </div>
 
 
@@ -357,7 +406,7 @@ Artstudio Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142426.jpg" />
 </div>
 
 
@@ -381,7 +430,7 @@ GeoGebra 6.0.518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142440.jpg" />
 </div>
 
 
@@ -405,7 +454,7 @@ magnet:?xt=urn:btih:3865C00CC83E4C8D046CC3DC72CFD86343118A47
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142441.jpg" />
 </div>
 
 
@@ -429,7 +478,7 @@ magnet:?xt=urn:btih:82FAD4336D7EEEFA0B04BCD47B4173CC65ACA802
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142446.jpg" />
 </div>
 
 
@@ -462,7 +511,7 @@ CorelDRAW Graphics Suite 2019 21.3.0.755 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142452.jpg" />
 </div>
 
 
@@ -488,7 +537,7 @@ Dism++ 10.1.21.1B Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142454.jpg" />
 </div>
 
 
@@ -512,7 +561,7 @@ magnet:?xt=urn:btih:614A103D8700B5DC0B62192DA096A65E9B8BF250
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142470.jpg" />
 </div>
 
 
@@ -536,7 +585,7 @@ Basilisk 2018.12.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142474.jpg" />
 </div>
 
 
@@ -560,7 +609,7 @@ CleanMyMac 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142477.jpg" />
 </div>
 
 
@@ -587,7 +636,7 @@ magnet:?xt=urn:btih:49D826FD737B6D0E671974949696CFED107B1EB9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142482.jpg" />
 </div>
 
 
@@ -599,54 +648,6 @@ magnet:?xt=urn:btih:49D826FD737B6D0E671974949696CFED107B1EB9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066CF54D0E5774ED50292289FCD949C8A11F26F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272688   (142487) от 28.12.2018
-
-IDAGIO - Classical Music v1.6.8 Premium [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142487.jpg" />
-</div>
-
-
-###  Подробнее
-
-IDAGIO - это первая классическая музыкальная потоковая передача, которая предлагает безупречный поиск, созданный для классической музыки. Наряду с простым в использовании интерфейсом и отличным дизайном пользователи уже подтверждают, что IDAGIO имеет «лучший поиск классической музыки». IDAGIO предлагает кураторские плейлисты, а также обширный каталог записей самого (   Читать дальше...   )Тип издания: Пиратка (Куплена подписка Премиум)Релиз состоялся: 19.12.2018Разработчик: Classical Music Streaming - IDAGIOПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195559   (142491) от 29.12.2017
-
-Открытый микрофон (2017.12.29) SATRip (сезон 2, выпуск 20: Дайджест)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142491.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:45:20Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A9DC14C9E8135461B036E0BE5C416842A8252D
 ```
 
 

@@ -6,7 +6,7 @@ Winxvideo AI 3.5 RePack (& Portable) by elchupacabra (DC 28.08.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44841.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44842.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Serif Affinity Designer 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44843.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ LosslessCut 3.62.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44844.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Topaz Video AI 5.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44845.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser 130.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44846.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Google Chrome 128.0.6613.120 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44847.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Serif Affinity Publisher 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44848.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44849.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0DC2AD556759CA5C1692F9ED6A747D25E19827FF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44850.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44851.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Auslogics Driver Updater 2.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44852.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ LightRay (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44853.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44854.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:888CCDCF7874EC6F60325E111E447229CE40A7B6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44855.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Oofhours Media Tool 29.08.2024 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44856.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ DVDFab UniFab 2.0.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44857.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:95274B7DFE6AC95C2A88B1CE9B48D4C434DC406B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44858.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44859.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ OfficeSuite Pro + PDF v14.7.53184 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44860.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1A20A38E9AC7AE10036FFA4EECAD6C28DDB49FCD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44861.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.5.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44862.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:E3F6267643EDAB9C61301EC9F542E864CFE15C95
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44863.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:A0E5D3DE4865E684440B5683BE79496091D3493B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44864.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Topaz Photo AI 3.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44865.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Topaz Photo AI 3.2.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44866.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24963.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8C0D63E8EB38F140997FE5595524CC7D2238981E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8C0D63E8EB38F140997FE5595524CC7D2238981E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24965.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24965.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Acrobat Pro 2025.001.20432 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24966.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5608 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24967.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24967.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E935CC18C89402BA7A2B179531AE449E7FC8FC65
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24968.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:7F058C29D8CD94C81A14F1E094453031AE914305
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24969.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7F058C29D8CD94C81A14F1E094453031AE914305
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24970.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24971.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:32FAF473EC7B28B53F5BAA59DD872B164CE3B88F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24972.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7860E5040DD3CEBD8A0390901C2AC91EF8F87CCC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24973.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7860E5040DD3CEBD8A0390901C2AC91EF8F87CCC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24974.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C2CD565641591B5AE906FF2847BBE8D8235CD0BD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A6570620C52F8777227CCBC01A447FD59EE47FB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24976.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sonic Academy - KICK 3 1.1.2 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24977.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:259D39D73C71665DB9B85CE89083A30F6A900BFE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24978.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24978.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:A5AA4BF91373F881E5A1AB63F0FF23D8D5EB6666
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24979.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FD2428807E3668632091DA73863AED7EE3DC2A0E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24980.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Vivaldi 7.1.3570.60 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24981.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ WizFile 3.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24982.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:279437400BA29EA49B573C9D102B31A5375FA0A1
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24983.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Lounge Gallery (30 Beautiful Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24984.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24985.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24986.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24987.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:17BAA7EA41D6FA964B8F6B1DCD445A2F1EA49505
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24988.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24988.jpg" />
 </div>
 
 

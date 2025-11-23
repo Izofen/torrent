@@ -6,7 +6,7 @@ VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111438.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ASC - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111486.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aural Imbalance - Infinity Spectrum (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111490.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111527.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Keep It Trance Vol. 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111528.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Bounced Up! (volume 16) (2023) [FLAC|Lossless|WEB-DL|tracks] <Scouse House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111529.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Vintage Culture - Live @ Warung Beach Club 2024 (Opening Fiesta) Itajai, Brazil 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111536.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carter The Unstoppable Sex Machine - 1992_ The Love Album (1992) Remaster, 2023,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111549.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Footsteps On The Dancefloor, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111552.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 10 Years Of Suanda Music - Mixed by Mhammed El Alami (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111556.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Footsteps On The Dancefloor, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111557.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Antarsys - Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111561.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armin van Buuren - A State Of Trance 1168 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111563.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Soft Cell - Torch E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111597.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111600.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Erasure - The Innocents (1988) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111623.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Nothing But... Trancetopia Vol. 13 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111669.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Calming Moments, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111692.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Morning Coffee Retreat: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111736.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Relaxing House & Dance Music (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111830.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Spring Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111836.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Mu
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111880.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Miami Vibes (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techn
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111881.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Pure Synthwave, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111899.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Pure Synthwave, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111903.jpg" />
 </div>
 
 

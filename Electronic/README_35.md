@@ -6,7 +6,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Da
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66599.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66602.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Coven (2022-2025) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Deep house, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66693.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Deep House Touch 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66720.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Santorini Solaire Chill 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66721.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Slow Danse With The Dead - Eternl Mourning (2025) Remastered [MP3|320 Kbps] <Col
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Slow Danse With The Dead - Eternl Mourning (2025) Remastered [FLAC|Lossless|WEB-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66781.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Carlita - fabric presents Carlita (2025) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66797.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Armin van Buuren - A State Of Trance 1225 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66798.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ori Uplift - Uplifting Only Episode 640 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66800.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nora En Pure - Purified Miami (Jungle Island Miami, Miami Music Week, United Sta
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66818.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Shad Shadows - Wunderkammer Desire (2025) [MP3|320 Kbps] <Darkwave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66835.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Oldschool Union - Herra Ja Hidalgo (2025) [MP3|320 Kbps] <EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66843.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Top 11 February 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66851.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Future Sound of Egypt - Spring 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66895.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Chilled Beach Songs (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66896.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66906.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66907.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Armin van Buuren - A State Of Trance 1224 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66912.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Trance Fusion, Vol. 10 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66914.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 10 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66919.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Nothing But... Trancetopia, Vol. 26 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66921.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Ori Uplift - Uplifting Only Episode 639 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66923.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Chill Out Paradise, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66926.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Markus Schulz - In Bloom 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, V
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66933.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Sounds Like Summer, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66938.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1696695   (119366) от 04.02.2024
+
+В курсе / In the Know (2024) WEB-DL [H.264/1080p] (Сезон 1, серии 1-6 из 6) Jaskier
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лорен Каспиан — ведущий программы ″В курсе″, третьей по популярности интервью-передачи на общественном радио. Он благонамеренно лицемерный негодяй. К тому же он стоп-моушн марионетка.Производство: США / Bandera Entertainment, ShadowMachine, Universal Animation StudiosЖанр: мультфильм, ток-шоу, комедияРежиссер: Брэндон Гарднер, Майк Джадж, Зак ВудсАктеры: Зак Вудс, Дж. Смит-Камерон, Карл Тарт, Кэйтлин Рейли, Майк Джадж, Чарли Бушнелл, Кайя Гербер, Кен Бёрнс, Даниэла Вега, Тиган КуинПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские, ИспанскиеПродолжительность: ~ 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6880E5DB7A7C74A97DD9005C0E125C60DE2EDFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696832   (119367) от 04.02.2024
+
+Асса (1987) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надеясь на яркую и безбедную жизнь, девушка связывает свою судьбу с криминальным авторитетом. Но есть и другая жизнь — свободная и с музыкой, жизнь мальчика Бананана. И две эти жизни трагически сталкиваются.Производство: ССCР / Круг, МосфильмЖанр: драма, мелодрама, криминал, история, музыкаРежиссер: Сергей СоловьевАктеры: Сергей Бугаев, Татьяна Друбич, Станислав Говорухин, Натан Эйдельман, Анатолий Сливников, Герман Шорр, Илья Иванов, Александр Баширов, Виктор Цой, Сергей РыженкоСубтитры: ФранцузскиеПродолжительность: 01:16:02 + 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C823C5AD516B55EDE3B2DB9E57AA90AA0F842F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696478   (119368) от 04.02.2024
+
+Объяснялкины (2023) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, комедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Субтитры: Русские (Full, SDH)Продолжительность: 8 x ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7706956097509878B52C1FB67B85F98C70CDDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696779   (119369) от 04.02.2024
 
 Гений / Genius (2024) WEB-DL [H.264/1080p] (сезон 4, серии 1-2 из 8) Jaskier (обновляемая)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119369.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:65EFE9BE258A7B4AF7D1A50D2F859D324707AFF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119370.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B699E04F1A2FC4335A4CF0B6B46D5CA4CC2402B2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119371.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:B0EF193564E3F6A8E8CF5EF14D59AD7189CAB939
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119372.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119373.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:4F4A9E51B16829FF303719F4D17AAD27AAE157BE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119374.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:9D7AE0A699C01071E5B42CB84E0BCB52778BA167
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119375.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:1DF5DDF21F8810D993B96392F4EC765A8858A88C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119376.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:82F79C1BF691886A8FE4B330B44209941AC92E21
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119377.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119378.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:93F825FD67BFC3325D93452CAA45647AE8349F8F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119379.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:31ECC0B15F56886DCDF16076869D84AA7A4CF794
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119380.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Sound Particles - 6FX Bundle 02.2024 VST3, AAX (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119381.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119382.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:9887982EAE798CAD6241D68A93B09EA46674E614
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119383.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Google отключила функцию просмотра кешированн
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119384.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ Google отключает в результатах поиска функцию 
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119385.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:EE0E91C385361B005E92FF88CD69FB4CA7866B48
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119386.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119387.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119388.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ Java SE Runtime Environment 8.0.4010.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119389.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119390.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119391.jpg" />
 </div>
 
 
@@ -556,78 +628,6 @@ Straylight - виртуальный инструмент от компания N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7418CCA96BBCAB05E988BD46DAACA8A548036DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696758   (119392) от 04.02.2024
-
-Грисельда / Griselda (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Jaskier
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119392.jpg" />
-</div>
-
-
-###  Подробнее
-
-История колумбийской наркобаронессы Грисельды Бланко, которой удалось создать один из самых прибыльных картелей в истории.Производство: США / Grand Electric, Latin World Entertainment (LWE)Жанр: криминал, биография, драмаРежиссер: Андрес БайсАктеры: София Вергара, Альберто Герра, Хулиана Айден Мартинес, Мартин Родригес, Хосе Веласкес, Орландо Пинеда, Мартин Фахардо, Ванесса Ферлито, Фреди Йэт, Камило Хименес ВаронПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русский, Английский (Forced, SDH)Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27D7DF63A8FD7CD051E0A85E7F54EFBD06F7700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696613   (119393) от 04.02.2024
-
-Нельская башня / Башня запретной любви / Der Turm der verbotenen Liebe (1968) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на пьесе "Путешествие по Неслю" Александра Дюма-отца, написанной, в свою очередь, по оригинальному тексту Фредерика Гайарде, основанному на историях разврата, касающихся Маргариты, дочери герцога Бургундского и других членов королевских семей Франции и Англии, которые, как говорили, использовали старую сторожевую башню на берегу реки Сены (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / Filmes Cinematografica, Films EGE, Rapid FilmЖанр: драма, приключенияРежиссер: Франц Антель, Фриц УмгельтерАктеры: Тери Тордаи, Жан Пиа, Уши Глас, Вероника Венделл, Мари-Анж Анье, Карлхайнц Феге, Франц Рудник, Йорг Плева, Дада Галлотти, Армандо ФранчолиПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9180180F65A39F8E9A84F42F3B88599C6B27F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696755   (119394) от 04.02.2024
-
-Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shards of Chaos - это визуальная новелла в жанре фэнтези с элементами мистики и детектива. Вы окунетесь в мрачный мир, покинутый богами, где предстоит разгадать тайну магической катастрофы. Главная героиня - наемница Рейн, вынужденная отправиться в опасное путешествие по заброшенному поместью Черной Розы. Ей предстоит найти и спасти юную Леллию, невольно оказавшуюся (   Читать дальше...   )Тип издания: SceneРазработчик: ChaoticwayЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
 ```
 
 

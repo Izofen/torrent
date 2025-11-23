@@ -6,7 +6,7 @@ PDF Extra PDF Editor & Scanner v10.16.26608 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FolderSizes 9.6.492 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PrivaZer Pro 4.0.94 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41255.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D0CAFEF6F1A90E3E52413E2843B72AE7E170803F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41257.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C696F686242BE1A5E34A0F7AE174B8CE212ED9C5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41258.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4B55F875397796AD663D1B5A665C5FFC17DBC680
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41259.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C356CA826A4F069EC395123007374F8243D065CE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41260.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Rob Zombie - Halloween Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41261.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:79FDC77A3BFCECA0533E686CE0BD81AF6D5D94E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41262.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ TikTok 36.7.3 Mod by Dmitry Nechiporenko + Plugin 1.54 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41263.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D034700B27DF91611800B6B6AC5AACC54032EF14
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41264.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tablacus Explorer 24.10.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41265.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C8FDC700E3A6110F578B7C5D877E892A7F2A7E1F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41266.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0F52CC1DF3DEED9B0E7CEF8EB41AF6243DD23138
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41267.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41268.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:AA889E98DAE9314B880B8E10C52EA59F67BCCA26
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41269.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Times & Galaxy / Times and Galaxy (2024) [En] (1.13.5060.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41270.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:28857B930382A1518897330FD4668902CA83C7A2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41271.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7A84B4DF2CF0F2BBAFB00836E25650E5962B75D0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41272.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7332D7BAC24BE7C5CE899DEFF00962A1B6D53876
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41273.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41274.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1CD62C52E7A9705C4CEADBF8E11AA38247BF6686
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41275.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Topaz Video AI 5.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41276.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6F075A71AA75D79EB093F2E15EA3CDA8AE1CC4DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41277.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:77D6FCF5C1615565E5C1FAA001F8C4263C526ACA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41278.jpg" />
 </div>
 
 

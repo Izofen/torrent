@@ -1,3 +1,179 @@
+###  Публикация: 1345960   (165192) от 17.12.2019
+
+LunaRave - Transmigration (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transmigration - Album Trailer 30:30
+02. In Control 07:18
+03. Space Time 08:09
+04. Virtual Circus 06:32(   Читать дальше...   )Жанр: Goa Trance, Full OnПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD883F099BAB9AA5320D3CC4A89D935932B7AC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597809   (165193) от 16.12.2022
+
+Юлиан Тувим | Детям (1949) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов польского поэта - Юлиана Тувима.
+Для детей младшего школьного возраста. Иллюстрации В. Конашевича.Жанр: СтихиПеревод: Е.Благинина, С.Маршак, М.Живов и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A342E9E5BA67F4DBA244BEAC897A052A2CBD387A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516789   (165194) от 12.12.2021
+
+Джефф Нун | Вирт (Книга 01). Вирт (2021) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165194.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вирт» - фантастический роман британского писателя Джеффа Нуна, получивший в 1994 году премию Артура Кларка.
+Роман рассказывает историю Скриббла и его команды «Тайные Райдеры».
+Действие романа происходит в альтернативной версии Манчестера, где общество сформировано «виртом» - общей альтернативной реальностью, доступ в которую можно получить, употребив галлюциногенный (   Читать дальше...   )Жанр: КиберпанкПродолжительность: 08:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169E15ACD9C8FEE55BA3FF243BFE31D707FB0AEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673378   (165195) от 01.11.2023
+
+Зелимо / Zelimo (2001) DVD5 [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165195.jpg" />
+</div>
+
+
+###  Подробнее
+
+О трудной жизни еврейского мальчика из России, оказавшегося в лагере для еврейских детей в США и терпящего всяческие унижения от своих приятелей.Производство: США / IVM Productions Inc.Жанр: драмаРежиссер: Алекс РозенбергАктеры: Сай Бонди, Marek Skupienski, Jake Gomolinski-Ekel, Марио Прадо мл., Кристофер М. Паган, Louis Candelaria, Макс Файнстоун, Татьяна Збировская, Генри Лопез, Адам СигелПеревод: авторский (Антон Алексеев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EC8D5E4EFFB744B5538A043236E48AC14A7487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432129   (165196) от 16.12.2020
+
+Emurasoft EmEditor Professional 20.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165196.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5257938600B685223F8D8CE7434B1F48047F2F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345688   (165197) от 17.12.2019
+
+Алла Шлыкова, Елена Шубина (сост.) | Птичий рынок [сборник] (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165197.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли несколько десятков рассказов и повестей современных писателей: Людмилы Улицкой, Татьяны Толстой, Анны Матвеевой, Евгения Бабушкина, Дмитрия Воденникова.
+Все произведения повествуют о братьях наших меньших, но не только о кошках и собаках разных пород. В сборнике есть рассказ о героическом осле, который спас хозяина. А еще грустная история о четырехлетнем (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EB26790365E5B830D87039C14F6579B302B806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673428   (165198) от 01.11.2023
+
+Extreme Picture Finder 3.65.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для автоматического поиска, скачивания и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически скачать только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон и т.д. Просто укажите начальный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9062AB2C937FF11FC2F318DAA4FF6686A2102860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597938   (165199) от 16.12.2022
 
 Posterino 3 v.3.11.13 [Multi]
@@ -6,7 +182,7 @@ Posterino 3 v.3.11.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165199.jpg" />
 </div>
 
 
@@ -31,7 +207,7 @@ magnet:?xt=urn:btih:3F32398DE25F5A53EDF8AF876B2B75EBF97DBEBF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165200.jpg" />
 </div>
 
 
@@ -55,7 +231,7 @@ Royal Hunt - Dystopia (2020) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165201.jpg" />
 </div>
 
 
@@ -82,7 +258,7 @@ magnet:?xt=urn:btih:0378A1EA1878A2B1A021BAE5EDBE4D9F6AE9B53C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165202.jpg" />
 </div>
 
 
@@ -106,7 +282,7 @@ magnet:?xt=urn:btih:C1098240A1AECEB7DBED9D35902C14B8A208100F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165203.jpg" />
 </div>
 
 
@@ -133,7 +309,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165204.jpg" />
 </div>
 
 
@@ -157,7 +333,7 @@ magnet:?xt=urn:btih:8DE8A3D75B8B9979752CDD2B23A5A7DD3F036D90
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165205.jpg" />
 </div>
 
 
@@ -181,7 +357,7 @@ magnet:?xt=urn:btih:EC7D20B37852116E98914C0365B5C101CE0F6881
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165206.jpg" />
 </div>
 
 
@@ -205,7 +381,7 @@ magnet:?xt=urn:btih:941130554E8554F436FCF91D473F553FF5115BAD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165207.jpg" />
 </div>
 
 
@@ -229,7 +405,7 @@ magnet:?xt=urn:btih:1F32729109A6F178351C2CA294DB05F67B0794C6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165208.jpg" />
 </div>
 
 
@@ -253,7 +429,7 @@ Sketch 61.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165209.jpg" />
 </div>
 
 
@@ -278,7 +454,7 @@ gTasks Pro - for Google Tasks 1.3.27 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165210.jpg" />
 </div>
 
 
@@ -303,7 +479,7 @@ VA - Maor Levi Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165211.jpg" />
 </div>
 
 
@@ -328,7 +504,7 @@ magnet:?xt=urn:btih:73A8FE71F5BDCA9945B0668CD0A96A3E467D1A04
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165212.jpg" />
 </div>
 
 
@@ -353,7 +529,7 @@ magnet:?xt=urn:btih:02A57A59B6CE155055882014C4D5B306C7F34D49
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165213.jpg" />
 </div>
 
 
@@ -377,7 +553,7 @@ Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165214.jpg" />
 </div>
 
 
@@ -404,7 +580,7 @@ magnet:?xt=urn:btih:68EF0A06874FBFAADA45327FF96C606EBA6657C5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165215.jpg" />
 </div>
 
 
@@ -428,7 +604,7 @@ BluffTitler Ultimate 15.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165216.jpg" />
 </div>
 
 
@@ -452,7 +628,7 @@ magnet:?xt=urn:btih:C0F0235A87736E688C9DD46505A6762B0811F7DB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165217.jpg" />
 </div>
 
 
@@ -464,180 +640,6 @@ magnet:?xt=urn:btih:C0F0235A87736E688C9DD46505A6762B0811F7DB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D11DA64335E89D9811892CEADE3723E97DE69CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597823   (165218) от 16.12.2022
-
-Джон МакКрэй | Червь (Книга 10). Паразит (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 03:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6089A229C564563C35397F285B8DC9D14722FCF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516650   (165219) от 12.12.2021
-
-Посылки от папы / Xinling shizhong / Packages from Daddy (2016) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний Лань живет в приморском городке с родителями и старшей сестрой Чэн. Однажды, вернувшись домой из школы, он узнает, что его отец покончил жизнь самоубийством. Лань винит в смерти себя, поскольку утром он накричал на отца. Чэн тоже винит себя, поскольку утром, видя, что отец расстроен, не подошла к нему. В скором времени начинают приходить посылки от папы, (   Читать дальше...   )Производство: Тайвань, Movie Bird FilmsЖанр: СемейныйРежиссер: Цай ИньчуаньАктеры: Фанн Вонг, Ли Лижэнь, Райан Тан, Катрина Юй, Се Фэй, Дин Нин, Жи-Пин Тан, Кэш ЧуанПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FD4BBB7C07EB6B957AFB1D207F95993C8D361D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673480   (165220) от 01.11.2023
-
-Журнал | Canadian Woodworking & Home Improvement №146 (2023) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, издающийся раз в два месяца, адресован тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом номере журналаЖанр: Столярное делоЯзык: АнглийскийИздательство: Sawdust Media Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2E6BEF0464EE8C863DA3AACD1A56A59C269CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432204   (165221) от 16.12.2020
-
-Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Electro, Synth-Goth>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Lost [00:01:16]
-02. Fever [00:04:19]
-03. Trust the Pain [00:03:19]
-04. Undressed [00:04:51](   Читать дальше...   )Жанр: Gothic Electro, Synth-GothПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F9D0880DA2CC5EECCF3ECE5231C3FCEA7EDCAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345981   (165222) от 17.12.2019
-
-VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zalza - Nudel Soppa Blues
-02. Anamanaguchi - Planet
-03. Street of Rage - Round 3
-04. Jredd - Neon Alley(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673382   (165223) от 01.11.2023
-
-Журнал | Зарубежное военное обозрение №11 (ноябрь 2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165223.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Зарубежное военное обозрение» - ежемесячный информационно-аналитический иллюстрированный журнал Министерства обороны СССР и Российской Федерации. «Зарубежное военное обозрение» на различных этапах развития Вооруженных Сил было ведущим открытым военным изданием, освещающим широкий круг вопросов: строительство иностранных армий, военная политика, стратегия и тактика, (   Читать дальше...   )Жанр: Информационно-аналитическое изданиеИздательство: ОАО "ИД "Красная звезда"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BE8215C8E52FFD7300D24C537C38DCF186A062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516674   (165224) от 12.12.2021
-
-Миланский калибр 9 / Milano calibro 9 (1972) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма по роману Джорджо Щербаненко. История закручивается вокруг чемодана с деньгами, который бандиты передавали друг другу, а в результате - появилась бумага вместо денег. Всех подельников пытали и убили. Кроме одного. Это был Уго Пьяцца. Он сел в тюрьму на три года, и после выхода на свободу его сразу же начали преследовать старые подельники, на 100% (   Читать дальше...   )Производство: Италия, Cineproduzioni Daunia 70Жанр: боевик, криминал, триллерРежиссер: Фернандо Ди ЛеоАктеры: Гастоне Москин, Барбара Буше, Марио Адорф, Фрэнк Вулф, Луиджи Пистилли, Иво Гаррани, Филипп Леруа, Лайонел Стэндер, Марио Новелли, Джузеппе КастелланоПеревод: любительский одноголосыйСубтитры: русские, английскиеПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662760CE4E2FEE79CC922CACCE85292CDF2D0DC7
 ```
 
 

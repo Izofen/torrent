@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24751.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0356331966DB87E5C6005BE2D2799A20123F8472
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24752.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CDBABEE0BE3F529BBBEF4430CAC759DAA50DEC53
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24753.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:32BEF9E1569AD7343ACF050308D7FBDA49B9F6EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24754.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3CA0D7B072F92850979BEA85B9F08E19D0763527
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24755.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24756.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7321B0300D024AF26153FE0D0A66A2B1556A1455
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24757.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D64D79A2448A55D8B99981EE281253D245CC5666
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24758.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24759.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B6E5D1A7FA2EB068273B61C8E5CE41B01153B23B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24760.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24760.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ OCCT 13.1.16 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24761.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:54EDC5F10321794E2520072BD740D2FCC526BAAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24762.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24762.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4D205DCA5E99943A1BB15EFAF5A668C5CB52737F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24763.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24763.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24764.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:86A0D7C547F762F334A8264CF5B4192AB87ABE50
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24765.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:4CE745DBF7364A94F8535F81A77CCB19493A7A20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24766.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8B0CCF37FF6FCB3BFEE8F7A7D3093AE67A27B010
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24767.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24767.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6F09AC6CF1B2BEB49A8845A4E1E7BA961E3449F3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24768.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E8CF9CCD0EBFEB428EFBD574D0A8105D7114ECAF
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24769.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24769.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:E22F6B7227784EB51D0D74911E1D1DDB840ED87A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24770.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - The Elegy Of Sunset (2025) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24771.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:47221A75169654C4152B8362C7B76B4BA89AFF74
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24772.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24773.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CE473B138EE1C2A7B0A242DD154CF3D523B2ACA9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24774.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Deep Chill Vibes: Orange Cafe Edition by Marga Sol (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24775.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3A2D6E3779D8A699E53AF83A93A6D294BC5169BF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24776.jpg" />
 </div>
 
 

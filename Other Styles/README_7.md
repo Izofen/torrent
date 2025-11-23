@@ -6,7 +6,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100321.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100480.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100580.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100767.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За ка
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100784.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101240.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101295.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101411.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101575.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ordo Rosarius Equilibrio - 12 albums (1995-2010) [FLAC|Lossless] <Apocalyptic Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101668.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofo
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101773.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102364.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102614.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102614.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .c
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102736.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Danny Wright - Curtain Call (1993) [FLAC|Lossless|tracks + .cue] <New Age, Conte
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102796.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102798.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102802.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102818.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102819.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102824.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102897.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Mannheim Steamroller By Chip Davis - Christmas In The Aire (1995) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102898.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Pam Tillis - Every Time (1998) CD, HDCD, Album, Club Edition [FLAC|Lossless|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103007.jpg" />
 </div>
 
 

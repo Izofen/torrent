@@ -6,7 +6,7 @@ Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96466.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96478.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96480.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:2A3046200C09F1A5E09747E800E549B760D4BA34
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96484.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steve Howe - Time (2011) [FLAC|Lossless]<Progressive rock, Instrumental rock,>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96485.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Steve Howe - Time (2011) [FLAC|Lossless]<Progressive rock, Instrumental rock,>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96487.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3562579860D0D8C2491EE8C5980F7AC6A9B86679
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96489.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3562579860D0D8C2491EE8C5980F7AC6A9B86679
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96491.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96494.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96494.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Sumatra PDF 2.0.5876 (x86/x64) + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96497.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96497.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96499.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96500.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Al MacDowell - Time Peace (1989) [FLAC|Lossless]<Fusion, Contemporary Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96501.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96501.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96504.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ One Year Later - The Sound of a Broken World (2012) [MP3|320 кб/с]<Metalcore,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96506.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F8F11E2E1EADAAAAFB6F912A7F09949F2A218122
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96507.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing (2012) [MP3|320 кб/с]<Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96511.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:C4FED4F9F83631E5A6C6FF558A6607CD2CE97C50
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96513.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:7DC9FAC594D2426BF4C475A8D2C9DDFB59388BF1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96514.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Archie Shepp - I Know About The Life (1981) [FLAC|Lossless]<Free Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96519.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Alexander Zonjic - Reach For The Sky (2001) [FLAC|Lossless]<Funk, Contemporary J
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96520.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MKVToolnix 5.4.0.422 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96525.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96530.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96530.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96534.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - Encoder Operations (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96552.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96552.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Anugama - Healing (2000) [FLAC|Lossless]<New Age, Therapy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96553.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96553.jpg" />
 </div>
 
 

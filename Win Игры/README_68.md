@@ -6,7 +6,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tetris Forever (2024) [Multi] (1.06) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20039.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20040.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20053.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20062.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20063.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20068.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20078.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20083.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Avorion (2020) [Ru/Multi] (2.5.7/dlc) Repack Pioneer
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20091.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20104.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20105.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20116.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20178.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20178.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20181.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20181.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20198.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20226.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20230.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20230.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20234.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20245.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20250.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20251.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Menace from the Deep (2024) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20252.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20255.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20256.jpg" />
 </div>
 
 

@@ -1,3 +1,184 @@
+###  Публикация: 1674642   (160837) от 06.11.2023
+
+Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Living Wallpaper HD & Weather - это подборка привлекательных тематических наборов изображений, которые вдохнут жизнь в ваш рабочий стол. От городских пейзажей и закатов и до далеких галактик. Все это с аккуратно встроенными часами и погодным виджетом. Экран вашего монитора всегда будет особенным. Индивидуализируйте свой погодный виджет и часы, а также создайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 2023 Voros InnovationПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4604D0A562C39FC5799B15106B1687F8BA33ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674696   (160838) от 06.11.2023
+
+1Tap Cleaner Pro 4.44 Mod by CMAPTOC [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160838.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете "навести полный порядок" всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 19.10.2023Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355D5448AEE461E7BEDE787A222145DC5757F434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674546   (160839) от 06.11.2023
+
+David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On
+02. Bloody Mary
+03. Ain't No Love In The Heart Of The City
+04. Steal Away(   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674634   (160840) от 06.11.2023
+
+VA - Magical & Mellow, Poetic, Sensual & Relaxing Instrumentals (2023) [MP3|320 Kbps] <Lounge, Chillout, Smooth-Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Calmness (6:24)
+02. Chillaxing Jazz Kollektion - Gentle Oceans (5:32)
+03. Kool&klean - Paradise (5:21)
+04. Chillaxonic - Aurora (5:13)(   Читать дальше...   )Жанр: Lounge, Chillout, Smooth-Jazz, Easy-ListeningПродолжительность: 02:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F8D9E451436BF1AC989C3DFF5A9F6EF8513CCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674568   (160841) от 06.11.2023
+
+Earthshaker - Back to Nexus (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Back to Nexus
+02 Gambler
+03 夢の果てを
+04 Whisky and Woman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE12654780E59245707BA32BE46FB20830B244F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674595   (160842) от 06.11.2023
+
+Я.А. Угай (ред.) | Практикум по химии и технологии полупроводников (1978) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160842.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дано описание лабораторных работ по химии и технологии полупроводников.
+Пособие предназначено для изучения основных методов физико-химических исследования конденсированных систем (ДТА, тензометрические методы, построение P-T-x диаграмм, методы микроструктурного анализа и микротвердости), различных методов синтеза, кристаллизационной очистки и выращивания (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A844AE8CE7F6C5FF1D33F515AC726860D01B45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674628   (160843) от 06.11.2023
+
+VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus Koch - Morning Breeze (3:50)
+02. Lee Lou - Morning (3:47)
+03. Ottis Blake - Pulses (4:49)
+04. Steven Solveig - Relax and Unwind (4:48)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097F8128B9AF5FF1E1BC9127C40B7C2088DF2BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674621   (160844) от 06.11.2023
 
 VA - This Is Lounge Jazz (2023) [FLAC|Lossless|tracks] <Jazz>
@@ -6,7 +187,7 @@ VA - This Is Lounge Jazz (2023) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160844.jpg" />
 </div>
 
 
@@ -33,7 +214,7 @@ VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160845.jpg" />
 </div>
 
 
@@ -60,7 +241,7 @@ magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160846.jpg" />
 </div>
 
 
@@ -84,7 +265,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160847.jpg" />
 </div>
 
 
@@ -108,7 +289,7 @@ RegCool 1.346 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160848.jpg" />
 </div>
 
 
@@ -132,7 +313,7 @@ BetterTouchTool 4.317 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160849.jpg" />
 </div>
 
 
@@ -156,7 +337,7 @@ magnet:?xt=urn:btih:9E9A6EB4B7BC0D08511CB2A4A469C05C78F6AB0F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160850.jpg" />
 </div>
 
 
@@ -180,7 +361,7 @@ magnet:?xt=urn:btih:A1388666C90A78B3B5E4DC3F7857180449D4AB99
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160851.jpg" />
 </div>
 
 
@@ -204,7 +385,7 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160852.jpg" />
 </div>
 
 
@@ -231,7 +412,7 @@ magnet:?xt=urn:btih:96176F30E7A2F5C771173F6B9FAAC1EBC97C10F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160853.jpg" />
 </div>
 
 
@@ -255,7 +436,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160854.jpg" />
 </div>
 
 
@@ -279,7 +460,7 @@ Steve Pope - The Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160855.jpg" />
 </div>
 
 
@@ -306,7 +487,7 @@ magnet:?xt=urn:btih:A97E8F45032F17242DD8DADD3645086950A39C6A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160856.jpg" />
 </div>
 
 
@@ -330,7 +511,7 @@ magnet:?xt=urn:btih:E715FF5F1176BCCE8C636E52CE5D85C8A8EDB483
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160857.jpg" />
 </div>
 
 
@@ -354,7 +535,7 @@ magnet:?xt=urn:btih:B42190387ED1F7E2725E6B30DA5A0509F036AD61
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160858.jpg" />
 </div>
 
 
@@ -378,7 +559,7 @@ magnet:?xt=urn:btih:27DE8CBCA1F31255D57D1B33574211CE5C9ED17A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160859.jpg" />
 </div>
 
 
@@ -404,7 +585,7 @@ magnet:?xt=urn:btih:F7B90401C94C2E5DDE7232C3A9C9605C05590592
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160860.jpg" />
 </div>
 
 
@@ -431,7 +612,7 @@ DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160861.jpg" />
 </div>
 
 
@@ -458,7 +639,7 @@ magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160862.jpg" />
 </div>
 
 
@@ -469,188 +650,6 @@ magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F30CCDBB465DC0E5E978EA1D1F374B83280819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674633   (160863) от 06.11.2023
-
-Two Witches - The Singles Collection (2005) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Sacrifice (Project Pitchfork Remix)
-02. The Sinner
-03. Requiem
-04. We All Fall Down(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7E04315450BCDE4F83E79586E84855C6D30600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674685   (160864) от 06.11.2023
-
-Stats 2.9.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 05.11.2023Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AAF48F053C247505FDAB0B1BDF68BB57507B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674707   (160865) от 06.11.2023
-
-Tower Pro 10 v.10.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89414309E08A5330CA958D3F4C044AF9D8D1E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674674   (160866) от 06.11.2023
-
-Chico Hamilton Quintet with Eric Dolphy - The Original Ellington Suite (1958) 2000, Capitol [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In A Mellotone [4:19]
-02. In A Sentimental Mood [5:40]
-03. I'm Just A Lucky So And So [5:10]
-04. Just A-Sittin' And A-Rockin' [5:25](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC79A7D77C7303B333A995245E40CAF8D8FC31A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674613   (160867) от 06.11.2023
-
-Dato 5.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195D56BAB8A56B60FFDB67175D6DFB3FF2615765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674623   (160868) от 06.11.2023
-
-Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Absord Music [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Fiesta [10:19]
-02. Tin Tin Deo [7:28]
-03. Manteca~Encore [18:16]
-Продолжительность: 00:36:03Жанр: Big Band, Post-BopПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E811AF1B6F780E0717D294F44F5441700315B38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674802   (160869) от 06.11.2023
-
-Gutter Creek - Fangs To The Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Ditches 03:40
-02. Fangs To The Face 05:09
-03. Defeated 05:18
-04. He's Got Swagger 05:35(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C29DE5B0862C7DF75EA505530BC09C0F14C962
 ```
 
 

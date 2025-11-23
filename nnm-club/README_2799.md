@@ -1,3 +1,75 @@
+###  Публикация: 460985   (79909) от 03.03.2012
+
+Что-то не так с Кевином / We Need to Talk About Kevin (2011) [H.264/720p-LQ] BDRip
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отложив в сторону все личные и профессиональные амбиции, Ева посвящает жизнь рождению и воспитанию сына. Однако их отношения с самого начала оказываются крайне сложными. В пятнадцать лет Кевин совершает непоправимое, и Ева мучается сознанием ответственности и собственной вины. Достаточно ли она любила своего сына? Какова доля ее вины в происшедшем?..Производство: США, ВеликобританияЖанр: Триллер, ДрамаРежиссер: Линн РэмсиАктеры: Тильда Суинтон, Джон Си Райли, Эзра Миллер, Джаспер Ньюэлл, Рок Дер, Эшли Герасимович, Шаван Фэллон, Алекс Манетт, Кеннет Франклин, Лесли Лайлс и др.Перевод: Профессиональный многоголосый закадровыйСубтитры: Английские, русские, французскиеПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A733006C6EEEA8F91DD8DD3ECAFF0A392CB7F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459364   (79913) от 03.03.2012
+
+LG Electronics | Сборник схем и сервис-мануалов по ремонту техники LG [2011] [PDF, xls, csv] [Eng]
+
+>>След.
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит руководства по ремонту и настройке, принципиальные схемы техники LG и дополнительные материалы к ним2011Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461303   (79914) от 03.03.2012
+
+Резня / Carnage (2011) HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Производство: Constantin Film Produktion GmbH / SBS Productions / SPI PolandЖанр: Драма, комедияРежиссер: Роман ПоланскиАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9407D36EB44EEA15049145B8B95E5D8CD101772F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462634   (79925) от 04.03.2012
 
 Журнал | Playboy [Colombia] №11 (2011) [PDF]
@@ -6,7 +78,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79925.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ VA - Club Trance vol.5 (2cd) (1997) [FLAC|Lossless]<Trance, Psy-Trance, Hard Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79926.jpg" />
 </div>
 
 
@@ -63,7 +135,7 @@ VA - Club Trance vol.5 (2cd) (1997) [FLAC|Lossless]<Trance, Psy-Trance, Hard Tra
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79927.jpg" />
 </div>
 
 
@@ -96,7 +168,7 @@ magnet:?xt=urn:btih:BD4BB4D493B74C47D2E02EB164CA500417F9D77D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79929.jpg" />
 </div>
 
 
@@ -120,7 +192,7 @@ magnet:?xt=urn:btih:958E8998796CF91D64602A5F25A75123B173A92A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79932.jpg" />
 </div>
 
 
@@ -144,7 +216,7 @@ magnet:?xt=urn:btih:52A132F5C170A101F88B7D81209C96C38C590433
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79934.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ magnet:?xt=urn:btih:209AD0A9E466105644E8792116F4F7ADD2E8FC9F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79938.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ magnet:?xt=urn:btih:0243CDD1FF021355ED744049F7EB925FEF7ABF81
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79940.jpg" />
 </div>
 
 
@@ -216,7 +288,7 @@ magnet:?xt=urn:btih:2F2A74022EC4955AC4BD596E6079362FA4ACF7F6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79946.jpg" />
 </div>
 
 
@@ -240,7 +312,7 @@ magnet:?xt=urn:btih:027EBE7672042CD348898A77787A8105C7518910
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79949.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ magnet:?xt=urn:btih:A1EAAFD74EB884DBCA64368F908E2DBDA6FF8636
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79950.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ magnet:?xt=urn:btih:83BAA25ACABB281A350AFBDFE039DCE5A8CF23D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79952.jpg" />
 </div>
 
 
@@ -312,7 +384,7 @@ magnet:?xt=urn:btih:4F3DF1F40C75DA5C6A0E624269BB5A9DE19284A2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79959.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ magnet:?xt=urn:btih:B227459757747E2E914E1A6B9F642C8DBCF6FA71
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79963.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:10C0357FBF9B1C05C5887EB5D802FB71A311F49D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79966.jpg" />
 </div>
 
 
@@ -385,7 +457,7 @@ magnet:?xt=urn:btih:7639B94814A243973660E9E8D3F8AEE329AE81B1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79967.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ magnet:?xt=urn:btih:7639B94814A243973660E9E8D3F8AEE329AE81B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79970.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ wallpapers nozomi sasaki
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79971.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ magnet:?xt=urn:btih:12125D33A8D59278A12BB2DAEFDD304FC2E3E333
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79980.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ magnet:?xt=urn:btih:94EC58C658928C5A1E0B22097E2E7470EF0EE896
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79982.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ magnet:?xt=urn:btih:5F07474CCFA45EE61DC50FECE812FC492F61BC16
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79988.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ magnet:?xt=urn:btih:5F07474CCFA45EE61DC50FECE812FC492F61BC16
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80002.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ magnet:?xt=urn:btih:5F07474CCFA45EE61DC50FECE812FC492F61BC16
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80008.jpg" />
 </div>
 
 
@@ -566,80 +638,6 @@ magnet:?xt=urn:btih:5F07474CCFA45EE61DC50FECE812FC492F61BC16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B624E7E3C75561F616CCB8840380F15D975BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461940   (80012) от 04.03.2012
-
-Чудовища из бездны ( Существа забытого мира ) / Creatures the World Forgot (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доисторические времена. После того, как большая часть племени погибает в результате извержения вулкана, суровый воин Мали берет на себя бремя лидерства над оставшимися в живых товарищами. Он ведет их через пустыню на поиски новой плодородной земли. Вскоре дикари встречаются с племенем более развитых людей с белыми волосами. Мали женится на местной девушке, и вскоре та рожает ему мальчиков-близнецов: мирного, спокойного, интеллигентного и сообразительного Тумака и жестокого, воинственного и сурового Рула. Проходит много лет. Когда сыновья Мали вырастают, они начинают соперничать между собой за главенствующее положение в племени, а главное: за обладание очаровательной девушкой Налой…Жанр: ужасы, фантастика, приключенияРежиссер: Дон ЧеффиАктеры: Джули Эдж Брайан О`Шонесси Тони Боннер Робин Джон Марсия Фокс Розали Кратчли Дон Леонард Беверли Блейк Сью УилсонПеревод: ОтсутвуетПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B47E535E816793963D3B90640F0DC6A56296DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462536   (80013) от 04.03.2012
-
-Родственник (2012) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стрельцов много лет не бывал в родных краях — на далеком острове, где расположена старая деревня Стрельня. А когда вернулся — оказалось, что земляки в опасности! И кроме него их некому выручить!
-
-В деревне почти все жители — Стрельцовы. Многие из них родственники. Все жители работают на рыбном комбинате, на котором несколько лет назад полностью сменились руководство и служба безопасности. Появление нового родственника взбудораживает местных жителей, а их поведение, в свою очередь, кажется странным Владимиру…Жанр: Драма, КриминалРежиссер: Антон БорматовПродюсер: Инесса Юрченко, Сергей Щеглов, Алексей РыбинАктеры: Олег Долин, Руслан Барабанов, Виталий Кищенко, Светлана Смирнова (III), Кирилл Полухин, Роман Агеев, Вера СмолинаПеревод: Оригинал (Русский)Продолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6858C4ABA6AE0686198A2CD35F7A46FE2E7FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460098   (80016) от 04.03.2012
-
-Подборка книг | Рынок ценных бумаг [1998-2010] [PDF, DjVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка изданий по теории и практике рынка ценных бумаг и биржевого дела2001-2011Жанр: Учебная литератураФормат: PDF, DjVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8E34BD01E971B6EC4B401931F9ABD4BC6B6A88
 ```
 
 

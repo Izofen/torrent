@@ -6,7 +6,7 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148759.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148803.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148813.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Music News vol.317 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148849.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Greatest Drum Sounds (2019) [MP3|320 Kbps] <Drum And Bass, Bassline>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148855.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Корпоратив 2021 (mixed by Dj V) (2020) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148963.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Music News vol.316 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149045.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149086.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Music News vol.315 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149120.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Nuclear Blast Presents: Best Metal (2015) [MP3|320 кб/с] <Heavy Metal, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149121.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Rain Song Reggae (2015) [MP3|320 кб/с] <Reggae, Blues Soul, Pop Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149207.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Зайцев.нет Новогодняя вечеринка (2020) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149231.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Covers Mix (2015) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149387.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Euphoric Emotions 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149410.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - 100 Самых красивых Новогодних песен (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149457.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Клубная кайфовая вечеринка (2015) [MP3|128-320 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149462.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Options Remake Of Tracks December -B- (2018) [MP3|320 Kbps] <Electronic, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149745.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Корпоратив 2016 (mixed by Dj V) (2015) [MP3|320 кб/с] <Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149762.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150014.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Jazzy And Chic The Perfect Smooth Jazz Selection For Your Dinner (2016) [MP
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150124.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150180.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150185.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150341.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150440.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150503.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150676.jpg" />
 </div>
 
 

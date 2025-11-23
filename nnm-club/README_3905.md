@@ -1,3 +1,79 @@
+###  Публикация: 391525   (121212) от 24.01.2024
+
+Лев Толстой | Новая азбука (2008) [MP3, Евгений Весник]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театральный фонограф.
+«Новая азбука» — сборник рассказов Л.Н. Толстого для детей. В него вошли как знакомые — «Филипок», «Три медведя», так и малоизвестные, но не менее интересные и занимательные рассказы — «Разговорились кошка с лисицею», «Птичка» и др. Каждый из них заключает в себе, подобно басне, определенную мораль и является как бы маленькой притчей. (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказ, сказкаИздательство: 1С-ПаблишингПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4F6C6985A54E9E0574364362F03220F2DEA898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435363   (121213) от 24.01.2024
+
+Лев Толстой | Сказки и басни графа Льва Толстого (2010) [MP3, Татьяна Телегина и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Детская аудиокнига».
+Творчество великого русского писателя Льва Николаевича Толстого пользуется любовью читателей всего мира. Его произведения вошли в сокровищницу мировой литературы. Талант писателя многогранен, романы и повести Л. Толстого, детские рассказы и философские произведения, письма и дневники с особой остротой отразили общечеловеческие и (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказка, басняИздательство: Студия «АРДИС»Продолжительность: 02:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE09DC17924F6A62CE1EA12F4E000013E1795E81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693841   (121214) от 24.01.2024
+
+В России выпустили бриллиантовый Samsung Galaxy S24 Ultra
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121214.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Так выглядит Galaxy S24 Ultra YONG. Фото: Caviar
+Российская ювелирная компания Caviar презентовала первую модификацию флагманского смартфона Galaxy S24 Ultra. Лимитированная версия называется S24 Ultra YONG.Корпус смартфона изготовлен из титана с черным  PVD-покрытием. Сзади находится золотой дракон, который является символом 2024 года. Также «спинка» украшена гравировкой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 391801   (121215) от 24.01.2024
 
 Лев Толстой | Детство. Отрочество. Юность (2007) [MP3, Валерий Захарьев]
@@ -6,7 +82,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121215.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@ magnet:?xt=urn:btih:A3D674A59F3D7C3273A9BFBAD05747123183293D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121216.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:A3D674A59F3D7C3273A9BFBAD05747123183293D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121217.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:0445C028581BD8B0236C9A9F9055B7984F3E51B1
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121218.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121219.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:586C47B24FEAF8466980CFBBA0716D9FA024DBD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121220.jpg" />
 </div>
 
 
@@ -154,7 +230,7 @@ magnet:?xt=urn:btih:C1BFF7CDEEAD35EE20D28C0937ECA7431AD67696
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121221.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ Tor Browser Bundle 13.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121222.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ magnet:?xt=urn:btih:B5727B9FBB11933B8B581107F795CA1A19A064B4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121223.jpg" />
 </div>
 
 
@@ -228,7 +304,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121224.jpg" />
 </div>
 
 
@@ -252,7 +328,7 @@ magnet:?xt=urn:btih:2AD65E73927FF22EC43AC9BA4AA9CAEEC8A15263
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121225.jpg" />
 </div>
 
 
@@ -276,7 +352,7 @@ magnet:?xt=urn:btih:B08EFE10ACF719B68E4F6C0F3182A1F489D1726C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121226.jpg" />
 </div>
 
 
@@ -300,7 +376,7 @@ magnet:?xt=urn:btih:032E367DE2817BF944B8B64DCBB6B443F75DD1AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121227.jpg" />
 </div>
 
 
@@ -324,7 +400,7 @@ magnet:?xt=urn:btih:5EA169A8DE209CEB3237D8BD295BC3EFE6010895
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121228.jpg" />
 </div>
 
 
@@ -348,7 +424,7 @@ magnet:?xt=urn:btih:D190B1C477E5B21F120BACD53D202A2F76565AE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121229.jpg" />
 </div>
 
 
@@ -372,7 +448,7 @@ magnet:?xt=urn:btih:513A2BFACBD30F6746F8F883CC3103B0FBAE5B1F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121230.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ magnet:?xt=urn:btih:1DDCD76E49D7FB8CECB11CE3E818A617D6186C46
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121231.jpg" />
 </div>
 
 
@@ -421,7 +497,7 @@ magnet:?xt=urn:btih:4305EA9543DA9EF73E93522003528FCDA89339E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121232.jpg" />
 </div>
 
 
@@ -445,7 +521,7 @@ magnet:?xt=urn:btih:F9A848A520AF5329A69FEFF634F529E4963E8EA0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121233.jpg" />
 </div>
 
 
@@ -469,7 +545,7 @@ magnet:?xt=urn:btih:7A784158214D7470CC0B5434A8DEB42BB5F91538
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121234.jpg" />
 </div>
 
 
@@ -493,7 +569,7 @@ magnet:?xt=urn:btih:B87F8AF16F5A13C0570A9213266009E78953518E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121235.jpg" />
 </div>
 
 
@@ -517,7 +593,7 @@ magnet:?xt=urn:btih:2E1896CD19F856C03016FAF0BA7D53FC81210F47
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121236.jpg" />
 </div>
 
 
@@ -541,7 +617,7 @@ magnet:?xt=urn:btih:64703E0A1E965DA257BB51D7767C366DDAC54382
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121237.jpg" />
 </div>
 
 
@@ -552,82 +628,6 @@ magnet:?xt=urn:btih:64703E0A1E965DA257BB51D7767C366DDAC54382
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E61E22AEB38DDA0E8073A70BE637D473A2D00CC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694282   (121238) от 24.01.2024
-
-Ventoy 1.0.97 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ventoy - это инструмент с открытым исходным кодом для создания загрузочного USB-накопителя для файлов ISO/WIM/IMG/VHD(x)/EFI не требующий установки.
-С ventoy вам не нужно форматировать диск снова и снова, вам просто нужно скопировать файлы ISO/WIM/IMG/VHD(x)/EFI на USB-накопитель и загрузить их напрямую.
-Вы можете копировать много файлов за раз, и ventoy предоставит (   Читать дальше...   )Разработчик: longpandaЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C701EB40CCCFBAFDE7286642A2786D5028DEFBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391458   (121239) от 24.01.2024
-
-Лев Толстой | Сказки. Басни (2008) [MP3, Вадим Максимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-Лев Толстой в сказках и баснях – это строгие и точные описания, которые всегда пользовались и будут пользоваться высоким спросом у любителей русской литературы. Сказки и басни Толстого заворожат любого, ну а дети будут перечитывать (   Читать дальше...   )Жанр: Русская литература, классика, сказка, басня, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 05:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33E3A5DD08FB94D7F8A1AC0177AC03017FE97DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034031   (121240) от 24.01.2024
-
-Уиджи: Доска Дьявола / Ouija (2014) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания друзей вынуждена столкнуться с их самыми страшными кошмарами, после того, как пробуждает темные силы с помощью спиритической доски.Производство: США / Universal PicturesЖанр: УжасыРежиссер: Стайлз УайтАктеры: Оливия Кук, Ана Кото, Дарен Кагасофф, Бьянка А. Сантос, Дуглас Смит, Шелли Хенниг, Сьерра Хойерманн, Санни Мэй Эллисон, Лин Шэй, Клаудия КацПеревод: Дублированный (BD EUR)Язык субтитров: Русские, английскиеПродолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE31D552C9E1E766AF985ED129048A78C4CDE7BA
 ```
 
 

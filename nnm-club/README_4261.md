@@ -1,3 +1,78 @@
+###  Публикация: 1682693   (130992) от 08.12.2023
+
+Topaz Photo AI 2.1.4 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B8D784440F174099FBB1849D3F4668B6C2F9BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682740   (130993) от 08.12.2023
+
+StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130993.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43ACE20AA41177F0A4A35FDA6FA96562A48A16C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682616   (130994) от 08.12.2023
+
+Алексей Ковтунов | Системный призрак (Книга 6) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130994.jpg" />
+</div>
+
+
+###  Подробнее
+
+— Ну что, Грог? Готово? Написал аннотацию?
+— Да говно вопрос, бери... — Бык вручил мне шуршащую, но почему-то липкую бумажку.
+— Но... Эмм... Тут написано "ЫОДБЖмядлаы лывт"? Ты думаешь, это хорошая аннотация?
+— Говорил же, говно твой вопрос. А я и писать то не умею... — пожал плечами Бык, и невозмутимо потопал куда-то в сторону теплиц.Жанр: Боевая фантастикаИздательство: Аудиокниги своими рукамиПродолжительность: 08:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9515B47E5A37B86AE122550BE20CE7D0675227C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682828   (130996) от 08.12.2023
 
 Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 100% with AI (2023) WEB-DL [EN]
@@ -6,7 +81,7 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130996.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130997.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:1796DF548E08C01D10F41226863592F870A0DB42
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130998.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:5D3C596907C2C74342F49DDA2A0926D6BF933AE4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131000.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ WinISO Standard 6.3.0.4748 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131001.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ WinISO Standard - программа для работы с образами CD 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131002.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:43A09F0B432B4129B94BACFB4E5C89E67FE4F617
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131004.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:7F73AB57EFB8502E35A0CE12144504B614A78F9C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131005.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:6808845E39DBB0B892B6B635269583190C617BB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131006.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:3DDE0494AE5C8140743D632FDD82064573826E9B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131007.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131008.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ VA - Уже Новый год на носу (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131009.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:F693F1D71D4A24E3080F6E797D16AA9A630F8D03
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131010.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131011.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:8815F1E83C2F3096AAFBD73C11CB1D70AAA0B110
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131012.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ Winter Wallpapers (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131013.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131014.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Editi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131018.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131020.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ magnet:?xt=urn:btih:F9898632DFEA8FE4B87263C1BC247D3DF0465D01
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131021.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Microsoft PowerToys 0.76.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131024.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:4DA353F68158EAE3654711AFFE514C0378C8E8E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131026.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ Best HD Wallpapers Pack (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131027.jpg" />
 </div>
 
 
@@ -578,81 +653,6 @@ Best HD Wallpapers Pack (31.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9056A8D24E4A0C117D917009F8F3746CE60C97E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670588   (131028) от 08.12.2023
-
-Дикие псы: в стае / Wild Dogs: Running with the Pack (2022) WEB-DL [H.264/1080p] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с оператором Юльцом Браатведтом (Julz Braatvedt) вы отправитесь в Национальный парк Южная Луангва в Восточной Замбии, чтобы проследить за тремя стаями диких собак в сухой сезон. Работая вместе с Замбийской программой по сохранению плотоядных в месте, где до сих пор свободно разгуливают легендарные дикие животные Африки, Юльц имеет уникальную возможность запечатлеть (   Читать дальше...   )Производство: Великобритания, Icon Films, albert sustainable production certificationЖанр: документальный, природа, флора, фаунаУчастники: Юльц БраатведтПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 6 x ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72076A335180F1539C51DEEB7BC8FF50F968C494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682729   (131029) от 08.12.2023
-
-Венера Хабирова | Хелик в балансе (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого мастер-класс?
-- Если Хелик для вас, как страшный сон, и вы хотите знать о нем всё и быть готовым.. А кто-то только узнал про него и не хочет совершить дорогостоящих ошибок!
-- Уже долго воюете с Хеликом, прошли одну-две эрадикации, а эффекта нет
-- Безрезультатно «мочите Хелика», опираясь не на те анализы (и такое бывает!)(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 02:26:17Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36CF0C7F437AECD3AF1B6658BF303707EBC86EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682663   (131030) от 08.12.2023
-
-Новый парень моей жены / Un novio para mi mujer (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диего устал от своей жены и дико хочет развестись. По его мнению, Люсия уже не так привлекательна, да и вообще стала редкой душнилой. Решив обратиться к профессиональному соблазнителю Флоресу, Диего надеется, что интрижка жены подтолкнет ее к разрыву отношений. Однако под влиянием Флореса Люсия изменяется, становится романтичной, душевной, словом, той самой Люсией, (   Читать дальше...   )Производство: Испания / Arcadia Motion Pictures, Athos Pictures, Institut Català de les Empreses Culturals (ICEC)Жанр: мелодрама, комедияРежиссер: Лаура МаньяАктеры: Диего Мартин, Белен Куэста, Уго Сильва, Хоакин Рейес, Андре Кастро, Рохер Берруэсо, Роза Аморос, Лаура Мингуэлл, Хулия Бонжох, Клаудия РодригесПеревод: Дублированный (Leff Sound)Язык озвучки: русскийСубтитры: русские (forced - hardsub)Продолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C755197A7BC407D4F0064EB8AF2F25D90E5348
 ```
 
 

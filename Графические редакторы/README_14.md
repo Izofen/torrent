@@ -1,3 +1,27 @@
+###  Публикация: 1643364   (210016) от 01.07.2023
+
+Serif Affinity Photo 2.1.1.1847 RePack by AlekseyPopovv [Multi]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo — обеспечивает более высокую скорость, стабильность и эффективность работы и расширяет границы профессионального редактирования фотографий. Редактируете ли вы изображения, ретушируете их или создаете полномасштабные многослойные композиции, это приложение с обширным набором инструментов, специально разработанных для специалистов творческих профессий (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE0FE4B3C1A8495825923AE6D22A9FFC5BFBDB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643619   (210024) от 02.07.2023
 
 Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
@@ -6,7 +30,7 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210024.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210024.jpg" />
 </div>
 
 
@@ -31,7 +55,7 @@ Serif Affinity Publisher 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210040.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210040.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ Corel PhotoMirage 1.0.0.219 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210130.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210130.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ Synfig Studio 1.4.4 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210244.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210244.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210438.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ JixiPix Chromatic Edges 1.0.26 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211950.jpg" />
 </div>
 
 
@@ -152,7 +176,7 @@ Serif Affinity Photo 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212126.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ Serif Affinity Publisher 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212127.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ Serif Affinity Designer 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212128.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ GIMP 3.0.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212164.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ Adobe Photoshop 2025 26.11.1.5 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212233.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ Adobe Photoshop 2025 26.11.1.5 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212280.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ Radiant Photo 2.1.1.790 + Addons Pack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212629.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212629.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ PixPlant 5.0.43 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213174.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213174.jpg" />
 </div>
 
 
@@ -346,7 +370,7 @@ DxO PureRAW 2.0.2 Build 1 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213314.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213314.jpg" />
 </div>
 
 
@@ -372,7 +396,7 @@ Movavi Picverse 1.9.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213340.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213340.jpg" />
 </div>
 
 
@@ -396,7 +420,7 @@ EximiousSoft Logo Designer 3.90 Standart / 3.75 Pro Repack (& Portable) by elchu
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213405.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213405.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ EximiousSoft Vector Icon 3.75 Repack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213416.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213416.jpg" />
 </div>
 
 
@@ -446,7 +470,7 @@ EximiousSoft Business Card Designer 5.11 Standart / 3.75 Pro Repack (& Portable)
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213419.jpg" />
 </div>
 
 
@@ -470,7 +494,7 @@ Adobe Photoshop 2026 27.0.0.25 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213420.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213420.jpg" />
 </div>
 
 
@@ -494,7 +518,7 @@ Adobe Photoshop 2026 27.0.0.25 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213548.jpg" />
 </div>
 
 
@@ -518,7 +542,7 @@ Capture One 23 Enterprise 16.7.0.3201 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213579.jpg" />
 </div>
 
 
@@ -542,7 +566,7 @@ SoftOrbits Photo Retoucher 6.0 [Multi/Ru] (sharewareonsale до 11 декабр�
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214090.jpg" />
 </div>
 
 
@@ -567,7 +591,7 @@ dslrBooth Professional 6.42.2011.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214104.jpg" />
 </div>
 
 
@@ -591,7 +615,7 @@ Capture One Pro 13.0.0.155 (x64) Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219172.jpg" />
 </div>
 
 
@@ -602,30 +626,6 @@ Phase One Capture One PRO - один из лучших профессионал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AB38C38C82CFA1E47ACAA627A84C0073F52CCCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585720   (219841) от 23.10.2022
-
-Adobe Photoshop Lightroom Classic 12.0.0.13 RePack by PooShock [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAE3DF6C727D68A6E7D3949D49FF86BC7458A84
 ```
 
 

@@ -1,3 +1,88 @@
+###  Публикация: 455453   (77363) от 20.02.2012
+
+Фирма / The Firm (Сезон 1, 1-2 серии из 22)(2012) WEB-DLRip (SET)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сериал – продолжение нашумевшей в 1993г. одноименной драмы, в которой молодой юрист, выпускник Гарварда Митч Макдири обнаруживает, что престижная фирма, где он недавно начал работать, прикрывает чикагскую мафию.
+
+10 лет спустя Митч с семьей наконец-то выходят из-под прикрытия Федеральной программы защиты свидетелей. Они намерены вернуть свой прежний статус, положение в обществе и обеспечить себе и детям достойное будущее, однако вскоре понимают, что прежняя угроза висит над ними Дамокловым мечом…Жанр: Боевик, ДрамаРежиссер: Холли ДэйлАктеры: Наташа Калис, Тришиа Хелфер, Джульетт Льюис, Джош Лукас, Шон Мажумдер, Молли Паркер, Каллум Кит Ренни, Паулино Нюнс, Эри Коэн, Дэвид Ричмонд-Пек и др.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454607   (77364) от 20.02.2012
+
+Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, Rock, Synth-pop>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Albinoni Vs Star Wars (Parts 1 & 2) 	4:38 
+02. 		Boom Boom Satellite 	4:22 
+03. 		Hey Jayne Mansfield Superstar!	4:28 
+04.		Super Crook Blues 	3:58
+05. 		Rio Rocks!	5:17 
+06. 		Success	3:48
+07. 		Dancerama 	4:45
+08. 		Orgasm 	3:27 
+09. 		M.A.D. (Mutual Assured Destruction) 	5:32 
+10.		Is This The Future! 	2:36Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:00 / 01:16:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455653   (77370) от 20.02.2012
+
+Одна ночь с королем / One Night with the King (2006) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в персидском городе Сузы. Король Ксеркс созывает всех на пир. Хадасса, красивая еврейская сирота, решает поехать с караваном в Иерусалим, чтобы увидеть Святую землю, вместе с другом Джесси Бен-Джозефом. Они приходят на пир короля, который тот устраивает накануне войны, ведомой, чтобы отомстить за смерть своего отца, Дария. Хадасса и Джесси видят, как королева Вашти отказывается приходить на праздник короля, так как она против войны, и созывает свой пир, говоря королю, что не станет унижаться и не придет на его пир.
+
+Король решает в таком случае лишить Вашти титула королевы и выбрать себе новую жену среди девушек Суз. Хадасса по рекомендации ее дяди Мордекая меняет свое имя на Эсфирь (в честь вавилонской богини Иштар). Во дворце за кандидатками следит королевский евнух Хигай. Девушкам предоставлены одежды, косметика, украшения - все, что понравится королю в свою единственную ночь. Эсфирь нравится Хигаю, благодаря своей находчивости и целостности, и он предлагает ей читать королю в ее (   Читать дальше...   )Жанр: ДрамаРежиссер: Майкл О. СажбелАктеры: Тиффани Дюпон, Люк Госс, Джон Ноубл, Омар Шариф, Джон Рис-Дэвис, Томми Листер, Джеймс Кэллис, Питер О’Тул, Джавен Кэмпбелл...Перевод: Двуголосый закадровыйПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454235   (77372) от 20.02.2012
 
 Как три мушкетера / Jagir (1984) DVD5
@@ -6,7 +91,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77372.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@ magnet:?xt=urn:btih:DABD1FE6C253637F6AC03C0E53F714D51A4097F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77381.jpg" />
 </div>
 
 
@@ -54,7 +139,7 @@ magnet:?xt=urn:btih:2D82BDAE34D85A4CDA32FF2E99F2FD8254CDD3AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77395.jpg" />
 </div>
 
 
@@ -79,7 +164,7 @@ VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77398.jpg" />
 </div>
 
 
@@ -112,7 +197,7 @@ magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77402.jpg" />
 </div>
 
 
@@ -136,7 +221,7 @@ magnet:?xt=urn:btih:00EBC62A33C7406BE39B2E9A3DAAC89F8EC713BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77409.jpg" />
 </div>
 
 
@@ -162,7 +247,7 @@ magnet:?xt=urn:btih:0055DBA350CFDD7929A308481B9167D75952B5F2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77410.jpg" />
 </div>
 
 
@@ -186,7 +271,7 @@ Suzuki TIS
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77411.jpg" />
 </div>
 
 
@@ -211,7 +296,7 @@ magnet:?xt=urn:btih:F826653378C96D389E368426F16A1D56DC5B1135
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77414.jpg" />
 </div>
 
 
@@ -235,7 +320,7 @@ Usavich 4 / Усавич [ТВ-4] [2011, TV, 13 серий] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77416.jpg" />
 </div>
 
 
@@ -259,7 +344,7 @@ magnet:?xt=urn:btih:93E1BE9758EA734F4B3589967925DC1743FD231E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77417.jpg" />
 </div>
 
 
@@ -283,7 +368,7 @@ FLVPlayer4Free 4.6.0.0 [Multi/Русский]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77424.jpg" />
 </div>
 
 
@@ -307,7 +392,7 @@ FlvPlayer4Free - медиаплеер для удобного воспроизв
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77426.jpg" />
 </div>
 
 
@@ -331,7 +416,7 @@ magnet:?xt=urn:btih:341EB7BFA7224A4B417754EACE9863BF947DB8FE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77430.jpg" />
 </div>
 
 
@@ -356,7 +441,7 @@ Eufloria - это  инди-игра, в  которой  вам  предсто
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77433.jpg" />
 </div>
 
 
@@ -380,7 +465,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77435.jpg" />
 </div>
 
 
@@ -413,7 +498,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77438.jpg" />
 </div>
 
 
@@ -446,7 +531,7 @@ magnet:?xt=urn:btih:09962C0E1A1303EFD11E395BC832A76031BBA84C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77439.jpg" />
 </div>
 
 
@@ -470,7 +555,7 @@ magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77440.jpg" />
 </div>
 
 
@@ -494,7 +579,7 @@ magnet:?xt=urn:btih:7E6806DC7C378EDA31039D93BC5F21BF03E733EA
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77442.jpg" />
 </div>
 
 
@@ -518,7 +603,7 @@ Need For Speed: Porsche Unleashed [Cider] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77450.jpg" />
 </div>
 
 
@@ -544,7 +629,7 @@ Windows 7 Ultimate SP1 (x64) by Loginvovchyk с программами {Февр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77458.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77475.jpg" />
 </div>
 
 
@@ -587,90 +672,6 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456037   (77476) от 21.02.2012
-
-VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эffekt - Замерзаю
- 02. Vincent Did It - Dynamo
- 03. Egor - Breathe (Radio Edit)
- 04. Claude Kelly - Don't Turn Out The Lights
- 05. Gregory Sirakuza Feat. Mirami - Miramimania (House Remix)
- 06. Suck The Clatter - Dance With You (Radio Edit)
- 07. K.1.M Feat. Аня Скворцова - Причина-Это Ты
- 08. Daddy Yankee Feat. Don Omar - Lovumba (Official Remix)
- 09. Sara Oks - Rebel Girl
- 10. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)2012Жанр: popПродолжительность: 06:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454266   (77487) от 21.02.2012
-
-Юстейн Гордер | Мир Софии (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга норвежского писателя Юстейна Гордера адресована прежде всего детям, но будет интересна и взрослым. Это захватывающий рассказ о таком сложном предмете, как философия. История мировой мысли предстает здесь как череда неожиданных открытий, которые совершает главная героиня - девочка по имени София, - получая письма от незнакомого, загадочного философа.
-
-       "Кто, (   Читать дальше...   )Жанр: Роман, философияПродолжительность: 19:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ED2B86AD1A1A51514F21CCDA80BF0785C2D12A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456049   (77488) от 21.02.2012
-
-А.Кочаров | Удивительный мир животных. Тигры [2004] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто там бесшумно крадется в высокой траве? Тигр! Полосы на роскошной меховой мантии делают его практически невидимым. Следуй за ним, и ты узнаешь, как очаровательный тигренок превращается в самую крупную на земле хищную кошку, каким образом он выживает в диких зарослях... и ещё многое-многое другое.
-Для младшего школьного возраста.Жанр: Детская литература, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADB3523C45A097321F55810509FEFDE1E11B86B
 ```
 
 

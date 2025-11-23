@@ -1,3 +1,149 @@
+###  Публикация: 1830493   (205613) от 26.10.2025
+
+3D print - Cults3D - Tanuki Figures - Hornet - Hollow Knight: Silksong [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто противостоял Мечтам, Королям и Теням с Гвоздем в руке… этот подарок для вас.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0828EAFDF6FB05E9BF6B425A17B0CBE2477F483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830614   (205624) от 27.10.2025
+
+3D модели - Kitbash3D - Enchanted Interiors [BLEND, FBX, SC, OBJ, MAX, C4D, PNG, UASSET, MA]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в мир, где заклинания мерцают в свете свечей, а судьба написана рунами. Enchanted Interiors создает коллекцию богато детализированных фэнтезийных миров — от кабинета волшебника, полного тайных знаний, до темного логова некроманта, от зала благородного короля до обветшалого арсенала паладина. Каждое пространство наполнено захватывающим реквизитом — зельями, (   Читать дальше...   )Формат: BLEND, FBX, SC, OBJ, MAX, C4D, PNG, UASSET, MA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8554C92B8433959BB22E0EC31F6013B0851EA7C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830686   (205638) от 27.10.2025
+
+Звуковые библиотеки - BOOM Library - Cyber Weapons [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека BOOM с гордостью представляет CYBER WEAPONS — библиотеку звуковых эффектов нового поколения для футуристического, современного и научно-фантастического оружия. От небольших лазеров, предназначенных для пистолетов, до разрушающих планету лучей — этот комплект предлагает полный выбор.
+Создавайте собственные творения с помощью набора Construction Kit, содержащего (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830606   (205670) от 27.10.2025
+
+Шрифты - Creative Market - Cobrale - Family Grotesk - 291794327 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cobrale — это современное семейство шрифтов без засечек, сочетающее в себе выразительность и яркую универсальность. Разработанный в трёх различных стилях: Regular, Medium и Bold, он предлагает гибкость для широкого спектра дизайнерских задач, от минималистичных редакционных макетов до эффектных заголовков. Этот шрифт обладает чистым гротескным характером, чёткими (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFF8347FE59F2599946CF2AD1689CA18C7C1757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830561   (205703) от 27.10.2025
+
+Шрифты - Behance  - Denis Kukushkin - Sjz [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный рукописный шрифт SJZ с базовой поддержкой латиницы и кириллицы. Версия шрифта 0.1. В будущем он будет совершенствоваться.
+SJZ бесплатен для личного и коммерческого использования.Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179BEBF387D0B3398B30DD570CDA94E03C3AAC24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830942   (205711) от 27.10.2025
+
+Пресеты - Life Through Optics - LTO 1.0 Preset Pack [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205711.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 мощных пресетов Lightroom, созданных для улучшения ваших изображений, даже если вы только начинаете.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E98CE5EB35773ABD3C38C7455D87690EE39F26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830940   (205713) от 27.10.2025
 
 Шрифты - Envato - Bubblegum - Modern Classy Script Font - TMJB6FB [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +152,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205713.jpg" />
 </div>
 
 
@@ -32,7 +178,7 @@ magnet:?xt=urn:btih:C7F50BA9F1A4B0BDA6856BF69FD052E0FA8BE93B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206128.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206128.jpg" />
 </div>
 
 
@@ -56,7 +202,7 @@ magnet:?xt=urn:btih:F9B87CEB0AAA9776308F07DD4A736F5B5BF9AB58
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206209.jpg" />
 </div>
 
 
@@ -80,7 +226,7 @@ magnet:?xt=urn:btih:8979F8913B38762D2FB8695BE9FE82C9A8FFBEC4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206456.jpg" />
 </div>
 
 
@@ -106,7 +252,7 @@ magnet:?xt=urn:btih:A988880AEDA7506DF438B4038B5A6908DE14875A
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208319.jpg" />
 </div>
 
 
@@ -130,7 +276,7 @@ magnet:?xt=urn:btih:B4529539F1253A84A129A19A29E2DB24604DE2F5
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208454.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208454.jpg" />
 </div>
 
 
@@ -154,7 +300,7 @@ magnet:?xt=urn:btih:7125BCFFEAE44E1EEE41F85F10EAD7ADA9E9B1A0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208711.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208711.jpg" />
 </div>
 
 
@@ -178,7 +324,7 @@ magnet:?xt=urn:btih:90004FBD9009D2DD8F40E1F0F3108CA49B591EBD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208719.jpg" />
 </div>
 
 
@@ -202,7 +348,7 @@ magnet:?xt=urn:btih:0F45AA73D181BE4670EB2BCD252CA81DBFA6A47E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208726.jpg" />
 </div>
 
 
@@ -226,7 +372,7 @@ magnet:?xt=urn:btih:DA818FC1F10AE00C273F6EF628B4B2B320268160
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208738.jpg" />
 </div>
 
 
@@ -250,7 +396,7 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part Two [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210029.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210029.jpg" />
 </div>
 
 
@@ -274,7 +420,7 @@ magnet:?xt=urn:btih:309167515A14C628D7CD7C4ED080B6C9A1F60E08
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210062.jpg" />
 </div>
 
 
@@ -298,7 +444,7 @@ magnet:?xt=urn:btih:6087D96F9BAAA45259498B84194E11723B76B357
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210172.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210172.jpg" />
 </div>
 
 
@@ -323,7 +469,7 @@ magnet:?xt=urn:btih:FA31C5CC6396D833E6365C3AC3C53C3151239DDF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210187.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210187.jpg" />
 </div>
 
 
@@ -347,7 +493,7 @@ magnet:?xt=urn:btih:64ECF4371EB8F5ECCEAC202FFF5EFC1202E3A360
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210307.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210307.jpg" />
 </div>
 
 
@@ -372,7 +518,7 @@ magnet:?xt=urn:btih:42724817460BD7E3349E75B1630E492CC6BBCAEE
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210959.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210959.jpg" />
 </div>
 
 
@@ -396,7 +542,7 @@ magnet:?xt=urn:btih:A93DDF47E0B97BB1B07AEB452A013D1792AF6696
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211096.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211096.jpg" />
 </div>
 
 
@@ -423,7 +569,7 @@ magnet:?xt=urn:btih:89B361D11095B457EECEA4AFDF49D840364AD242
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211101.jpg" />
 </div>
 
 
@@ -449,7 +595,7 @@ magnet:?xt=urn:btih:8513FB429B9B1D6FBAB0C12834D7B570626D6406
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211105.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211105.jpg" />
 </div>
 
 
@@ -475,7 +621,7 @@ magnet:?xt=urn:btih:26C5D390E98FBD434ED203C1F437ED806C0D004D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211124.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211124.jpg" />
 </div>
 
 
@@ -488,152 +634,6 @@ magnet:?xt=urn:btih:26C5D390E98FBD434ED203C1F437ED806C0D004D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CBE8D65DF3B431C6813999474CB9C28A48F6B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601559   (211126) от 01.01.2023
-
-Векторный клипарт - Cartoon Character Rabbit [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Набор векторных новогодних зайчиков
-7 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88D2781295A0E1C3443BBB8B20DB02B4759BCAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601577   (211149) от 01.01.2023
-
-3D print - Keqing [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нрав и взгляды Кэ Цин многим могут не понравится. Но она парирует их аргументы с той же легкостью как расправится со Стражем руин. Этот персонаж хорош как в нанесении физического так и электро урона. А ее потрясающий в плане красоты Взрыв стихии не оставит никого равнодушным. Если в вашем отряде не хватает немного электричества то она та кто вам нужен.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB2D8D8D1D2800F34BD4EB682A3807C21672FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601722   (211155) от 01.01.2023
-
-Растровый клипарт - Super Wings [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 288x250-3600x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C251E696D3D89E2225E7B436D3AC4F2DE2426053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567632   (211244) от 03.08.2022
-
-Растровый клипарт - GraphicRiver - ArtBox - Artistic Mockup Kit - 12147534 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211244.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArtBox - Небольшой набор для художников.Формат: PSDРазрешение файлов: 6305x2011-9329x7573
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD24EC09B9870F8ED06420C6DBDE9256E228D00B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567215   (211429) от 01.08.2022
-
-Растровый клипарт - Design Cuts - Herbs & Spices – Isolated Food Items [PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 110+ элементов, которые позволяют генерировать композиции кухонного стола. Высококачественные ресурсы с видом сверху: специи, травы, соусы, кухонные принадлежности и многое другое. Доступно в .PNG без фона и в .PSD форматах. Также в набор входят уже 4 готовых сцены.Формат: PNG, PSDРазрешение файлов: 332x1624-4000x3278
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BF68121600810255B8FED95634A5CED443B37B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639824   (211543) от 14.06.2023
-
-Растровый клипарт - Creative Market - Cake My Day! The Sweetest Scene Gen. - 4698853 [PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот макет и генератор сцен позволяет вам создать свою собственную оригинальную сцену или использовать наши готовые баннеры, посты в Instagram. Вы также можете просто перетаскивать элементы в Photoshop и создавать свою собственную сцену. Все элементы созданы на основе фотографий, в большом разрешении и отличного качества, что позволяет создавать действительно огромные (   Читать дальше...   )Формат: PSD, JPGРазрешение файлов: 1000x1000-5459x3198
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D76F5E110EBCA861A933135B61CCE3A343A29A2
 ```
 
 

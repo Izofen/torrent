@@ -1,3 +1,86 @@
+###  Публикация: 465653   (81161) от 10.03.2012
+
+Час волка / Vargtimmen (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предыстория картины: в руки режиссера попадает дневник покойного художника Юхана Борга. Он и ложится в основу истории, которую рассказывает жена Борга, истории о дневнике, о муже, о своей жизни с художником, мучимом "демонами" и бесссонницей. Но еще больше - снами, или состояниями, пограничными меж снами и явью, еженощно в "час волка" (время между тремя и четырьмя часами утра, когда подымает голову вся на свете нечисть) терзавшими автора этих записей, покуда не свели его преждевременно в могилу.Жанр: Ужасы, ДрамаРежиссер: Ингмар БергманАктеры: Макс фон Сюдов, Лив Ульман, Гертруд Фрид, Георг Рюдеберг, Эрланд Юсефсон, Найма Вифстранд, Ульф Юханссон, Гудрун Брост, Бертиль Андерберг, Ингрид ТулинПеревод: Одноголосый закадровыйПродолжительность: 01:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1735F52C1E0C9E6CC5FE815DECB4F6A1F17C033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464568   (81162) от 10.03.2012
+
+Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heavy/Power-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Fire
+02. Hell For Sale!
+03. He's The Man
+04. Starts 'N' Stripes
+05. America
+06. Atomic
+07. Rising Sun
+08. No Matter
+09. Up An' Down
+10. Don't Bring Me Down(   Читать дальше...   )1989-1992Жанр: Heavy/Power-metalПродолжительность: 02:43:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465578   (81164) от 10.03.2012
+
+Петр Столыпин. Моя надежда на Бога (2010) DVDRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Аркадьевич Столыпин еще при жизни стал образцом чести и совести в русской политике, его государственные таланты вызывали восхищение не только в самой России, но и за ее пределами.
+Заселение Сибири, раскрепощение народного труда, преодоление бедности и безграмотности, многие другие преобразования реформатора обеспечили будущее России в ХХ столетии.
+Национальные проекты Столыпина, его надежды и предостережения сегодня побуждают государственную мысль к серьезной и ответственной работе. Но чтобы в полной мере воспользоваться наследием выдающегося премьера, необходимо усвоить и тот дух, которым жил реформатор, который был в основе его государственной интуиции, его политических и нравственных убеждений. Именно об этой духовной грани в личности Петра Столыпина и рассказывает наш фильм.Жанр: ДокументальныйРежиссер: Д. СтруковПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465807   (81174) от 10.03.2012
 
 Красавчик Джо / Beautiful Joe (2000) DVD5
@@ -6,7 +89,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81174.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81175.jpg" />
 </div>
 
 
@@ -54,7 +137,7 @@ magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81177.jpg" />
 </div>
 
 
@@ -78,7 +161,7 @@ magnet:?xt=urn:btih:C35590CD1EC9EBECE2683CA460BE8E91E0552DCA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81178.jpg" />
 </div>
 
 
@@ -102,7 +185,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81180.jpg" />
 </div>
 
 
@@ -126,7 +209,7 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81183.jpg" />
 </div>
 
 
@@ -151,7 +234,7 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81184.jpg" />
 </div>
 
 
@@ -178,7 +261,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81186.jpg" />
 </div>
 
 
@@ -204,7 +287,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81187.jpg" />
 </div>
 
 
@@ -230,7 +313,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81191.jpg" />
 </div>
 
 
@@ -260,7 +343,7 @@ magnet:?xt=urn:btih:F1AD7561C4008EF57926C09C401433F9BA6FEB38
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81192.jpg" />
 </div>
 
 
@@ -291,7 +374,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81194.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81197.jpg" />
 </div>
 
 
@@ -348,7 +431,7 @@ magnet:?xt=urn:btih:36AB5E64E8DC1C785A9EF3AC032CF6EADB2D7D4C
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81204.jpg" />
 </div>
 
 
@@ -372,7 +455,7 @@ magnet:?xt=urn:btih:871D1300AFF56486A2FFF8D0648B134A138AA691
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81206.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81211.jpg" />
 </div>
 
 
@@ -426,7 +509,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81213.jpg" />
 </div>
 
 
@@ -450,7 +533,7 @@ VCMG - SSSS (2012) [MP3|320 kbps]<Techno, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81216.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ magnet:?xt=urn:btih:5021F13F36231ADDA564117254941EFC54A3021C
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81217.jpg" />
 </div>
 
 
@@ -508,7 +591,7 @@ magnet:?xt=urn:btih:5C48B040CC73043E7CEF0D5967DF41BC821A7B15
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81218.jpg" />
 </div>
 
 
@@ -532,7 +615,7 @@ magnet:?xt=urn:btih:1E0B8545A60E1833FC6CBA8FF0B2295D1B19D7CA
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81219.jpg" />
 </div>
 
 
@@ -556,7 +639,7 @@ magnet:?xt=urn:btih:9BA3D4EA12B547F0FBCFEBA4D647A146396FDA22
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81221.jpg" />
 </div>
 
 
@@ -580,7 +663,7 @@ magnet:?xt=urn:btih:5902AE069428EA3A117CD31E3E6240A39C9402E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81222.jpg" />
 </div>
 
 
@@ -591,82 +674,6 @@ magnet:?xt=urn:btih:5902AE069428EA3A117CD31E3E6240A39C9402E8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94CC91B185A5328DE6C4376C8EBF2E5B606723D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465582   (81224) от 10.03.2012
-
-СупердискотЭка / Супердискотека 90-х (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81224.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Гости СупердискотЭки 90-х смогут поставить челку, поиграть в классики и бутылочку, зайти в гастроном и заняться выжиганием на уроке труда.01. Intro
-02. Татьяна Буланова - Мой сон
-03. Ненси - Дым сигарет с ментолом
-04. Наталья Королева - Желтые тюльпаны(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE7DE87DF4664E5E1F8B2A927AB0AE42D37FF8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465503   (81225) от 10.03.2012
-
-В.П. Шейнов | Манипулирование сознанием [2011] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81225.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрываются сущность и психологические основы манипулирования сознанием, описаны механизмы используемых при этом психологических воздействий. Создана и обоснована модель манипулирования сознанием и показано, как она работает — в избирательных кампаниях, пропаганде, информационно-психологических операциях, в политической и коммерческой рекламе.  Продемонстрированы неограниченные возможности современных средств массовой информации в части манипуляции сознанием и предложена система защиты от ее разрушительного воздействия.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E5DD79C74201AB77877F4A4542664BB1F70775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465311   (81226) от 10.03.2012
-
-Kidou Senshi Z Gundam -Hoshi wo Tsugu Mono / Mobile Suit Zeta Gundam: A New Translation -Heir to the Stars- / Мобильный воин Зета ГАНДАМ - Новый перевод (фильм первый) [2005] DVDrip raw
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия "Mobile Suit Zeta Gundam: A New Translation" большей частью состоит из обработанных с помощью современных дигитальных технологий эпизодов ТВ-сериала 1985-86 годов Zeta Gundam, связанных некоторыми уже сейчас снятыми сценами. Фильм снят в рамках торжеств, посвящённых 25-летию эпопеи Gundam.Жанр: приключения, фантастика, меха, драмаРежиссер: Томино ЁсиюкиПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA305E8089D0CB735516551135D8A917F9D08EE
 ```
 
 

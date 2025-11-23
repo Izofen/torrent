@@ -1,3 +1,81 @@
+###  Публикация: 1759564   (103271) от 09.11.2024
+
+Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indómito
+02. Niño invisible
+03. Megalomanía
+04. Bella Luna(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43ACB77347BF619F70E2673CF598124AC60ECC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759579   (103272) от 09.11.2024
+
+Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [1:56]
+02. Love Me or Leave Me [1:40]
+03. As Long As I Live [4:12]
+04. You're The Top [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A7AA3F38AAA47CA35F38E51C26F837FB006F18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759534   (103273) от 09.11.2024
+
+PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.11.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441D48B4D954658C03E9AD1522C30FE1CC05CFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759540   (103274) от 09.11.2024
 
 VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
@@ -6,7 +84,7 @@ VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103274.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103275.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103276.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ VA - Techno Club Vol. 73 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103277.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ PhotoDirector v19.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103278.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:FA6E0D77E674E5616FDC20BD1FDEA02EBDCB1BA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103279.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103280.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:B912882D8A012B218575251FCDC0CB852FFE0DA4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103281.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ magnet:?xt=urn:btih:52AABDA731C73AFBB8BDF267149017FEA87F07F3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103282.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ magnet:?xt=urn:btih:14BC92F8A3B20DEC3F738AE8559461130C7AA51B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103283.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Photo Editor v11.0 Pro Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103284.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ magnet:?xt=urn:btih:75EB6CBFE999BFADC36A73E27B1187D794B16211
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103285.jpg" />
 </div>
 
 
@@ -317,7 +395,7 @@ magnet:?xt=urn:btih:DC7BE874FD5079C88DBAE472331122B9F77963D4
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103286.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ VA - Pretty Little Deep-House Friends, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103287.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ Stranger Vision - Faust Act 1: Prelude To Darkness (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103288.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Distant Past - Solaris (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103289.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Massacre - Necrolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103290.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ magnet:?xt=urn:btih:7A9C911EF0F73D69623DD2CAA5EB01D819B449A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103291.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103291.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ magnet:?xt=urn:btih:7A9C911EF0F73D69623DD2CAA5EB01D819B449A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103292.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ Katharsis - Evading Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103293.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ magnet:?xt=urn:btih:4099FC3F9BA62CC1B217075A34514FB45BD43754
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103294.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ Tungsten - The Grand Inferno (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103295.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103296.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AEB1BE6A06035FC9DDA1FB54DDBF11AB5452F82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759177   (103297) от 07.11.2024
-
-Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festival Belo Horizonte, Brazil 2024-09-14) (2024-11-06) [MP3|320 Kbps] <Melodic House, Techno, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT & Vintage Culture - ID w/Celeda - The Underground (Acappella)
-02. Adriatique & Argy - ID
-03. SCRIPT - Higher
-04. Max Styler & Gorgon City - Touch(   Читать дальше...   )Жанр: Melodic House, Techno, Tech HouseПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B617D4F41753BDFFFD960AD52C570160D2B92E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759130   (103298) от 07.11.2024
-
-Мужчины-болваны / De dumme Mandfolk (1913) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая веселая история и, если отбросить технические отличия, совершенно современная. Две молодые девушки, энергичные, озорные, вошли, как говорится, в пору. Им хочется личного счастья (что вполне естественно) и они дают брачное объявление. Ведь легче выбирать из бОльшего количества вариантов. А еще хочется поозорничать и можно назначить одно и тоже время и место (   Читать дальше...   )Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Sofus WolderАктеры: Фредерик Бух, Alma Hinding, Фредерик Якобсен, Holger Syndergaard, Лиззи Талер, Birger von Cotta-SchønbergПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8AAFA4C4C8D183C992E297F0E83BEB83D2DC41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759311   (103299) от 07.11.2024
-
-Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet Me On The Corner (3:51)
-02. Let's Go Rent A Video (4:31)
-03. The Neon Phantom (3:51)
-04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CC84AA0325E8E61AD95FFBD09D4C51EAFD46C4
 ```
 
 

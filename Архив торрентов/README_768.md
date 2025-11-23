@@ -1,3 +1,78 @@
+###  Публикация: 958217   (158353) от 21.12.2015
+
+Ad-Aware Free Antivirus+ 11.8.856.8535 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз.
+В дополнении к собственной антишпионской технологии Ad-Aware 11 использует один из лучших на сегодняшний день антивирусный движок Bitdefender, что позволяет обеспечивать (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C398BEF185BCCE977EE5821527116F781E1A2E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645653   (158357) от 21.12.2015
+
+Семеро и стерва / Sept hommes et une garce (1967) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северная Италия, революционная французская армия ведет боевые действия против австрийцев.
+ Дочь итальянского графа Карлотта, отказывается бежать от наступающих войск Наполеона Бонапарта, предпочитая завоевывать своим очарованием французских офицеров.
+ Доржеваль и Дюпра - капитаны наполеоновской армии, в компании пяти солдат и сумасбродной девицы оказываются в расположении (   Читать дальше...   )Жанр: ПриключенияРежиссер: Бернар БордериАктеры: Жан Маре, Марилу Толо, Сидни Чаплин, Филипп Лемэр, Ги Бедос, Флорин Пьерсик, Этторе Манни, Жоэлль Бернар, Эме Якобеску, Серж АйалаПеревод: Любительский (одноголосый)Продолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBFEBD7F6FF5FC7CF597A1EF28CCC5356333382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967811   (158360) от 21.12.2015
+
+CCleaner 5.13.5460 Professional | Business | Technician Edition [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158360.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25172F68C2AFFF1A7B54D63B2D2B4347CD1E03D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967643   (158361) от 21.12.2015
 
 The Bat! Professional 7.1.4 RePack (& Portable) by D!akov [Multi/Ru]
@@ -6,7 +81,7 @@ The Bat! Professional 7.1.4 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158361.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ FileMenu Tools 7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158365.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Everything 1.4.0.713 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158372.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:7B7DECCB9F62C0ECA449AEDB697D59CBF9DC541C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158375.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ AirServer 6.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158376.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:7EA49A39D22A5BD690EE78D079694EB8AC378F3E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158377.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Aurora HDR Pro 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158382.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ SoftColor PhotoEQ 10.0 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158390.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:777618F454D5721656444FEED7A9281B9A1A4E49
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158395.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ AdwCleaner 5.026 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158399.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ Glary Utilities Pro 5.41.0.61 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158403.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ Method Man - The Meth Lab (2015) [MP3|~256 кб/с] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158405.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ PhoneClean Pro 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158407.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ Hoozuki no Reitetsu / Хладнокровный Ходзуки [2014, TV, 13 ep
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158408.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ magnet:?xt=urn:btih:296903F3DAB8331B91E786A438228D321E12D38F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158409.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ CCleaner 5.13.5460 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158422.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ Reflector 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158425.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:60C983BBAC7F07116D0B493A58100BA1C6953CBF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158427.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:2DF309E023851EC85A519B9C44808B957E9EDA6E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158431.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ Cyberfox 43.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158434.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ K-Lite Codec Pack Update 11.7.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158436.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Farhad Mahdavi - Tehran Echoes (Extended Mixes) (2015) [MP3|320 кб/с] <Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158439.jpg" />
 </div>
 
 
@@ -546,7 +621,7 @@ Comedy Woman  (2015.12.11) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158459.jpg" />
 </div>
 
 
@@ -557,81 +632,6 @@ Comedy Woman  (2015.12.11) WEB-DL [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBE1652D3E35D64DFC4EC28F7EBCC287858098F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967841   (158461) от 21.12.2015
-
-Slimjet 6.0.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0659A3AD4314005E8FFD9C72717D69F2304257A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967694   (158470) от 21.12.2015
-
-Подарок Мэгги / Дары волхвов / Gift of the Magi (2010) HDTVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодожены Джим и Мэгги живут в тесной квартирке и едва сводят концы с концами. Окончательно их добивает поломка автомобиля. Пара соглашается отказаться от подарков на Рождество в этом году, но в тайне друг для друга они готовят что-то грандиозное.Производство: СШАЖанр: ДрамаРежиссер: Лиза МулкахиАктеры: Марла Соколофф, Марк Веббер, Мишель Бимиш, Глайннис Кассон, Томас Грубе, Гари Хецлер, Имонн Хант, Джерри МакКанн, Бэрри МакГовернПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C86D0AB9D38A2E2275A85759193C9C80A03E019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967531   (158478) от 21.12.2015
-
-Skyzoo - Music For My Friends (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Day, Always (3:12)
-02. Suicide Doors (4:52)
-03. The Moments That Matter (feat. Kay Cola) (3:48)
-04. Luxury (feat. WestsideGunn) (3:42)(   Читать дальше...   )Производство: First Generation Rich, Inc., Empire Distribution – ERE-CD-180Жанр: Hip HopПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8B8A6EEBD0E632436F6D2482CB274A5F1FE65
 ```
 
 

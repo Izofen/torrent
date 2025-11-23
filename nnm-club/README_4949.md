@@ -1,3 +1,184 @@
+###  Публикация: 1086377   (153443) от 24.12.2016
+
+VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gareth Emery - Reckless
+002. Alan Morris Ft. Jess Morgan - Made Of Light (Radio Edit)
+003. Armin Van Buuren - Freefall (Manse Remix)
+004. Maarten De Jong & Katty Heath - All That Matters (Radio Edit)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 06:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913ABCF6200DF262C641EEE842C8689935EDD0E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677066   (153445) от 16.11.2023
+
+Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Later [5:56]
+02. Blue & Sentimental [3:04]
+03. Bar Wars [7:03]
+04. The Breeze and I [4:56](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6355CFC3CBE234E030627EA4FC330C1E941D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738413   (153446) от 25.12.2013
+
+Frank Riggio - Psychexcess I - Presentism (2012) [Hymen Records] [FLAC|Lossless]<Glitch, IDM, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Errance (3:02)
+02. Presentism (4:13)
+03. Higher Ailleurs (5:41)
+04. Looking For Occultism III (3:08)(   Читать дальше...   )Жанр: Glitch, IDM, Downtempo, ExperimentalПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E272B3D3C34DD00891BCB9406FE89B51153621BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 42416   (153447) от 20.12.2021
+
+Грир Чайлдерс | Великолепная фигура за 15 минут в день (2005) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описан комплекс несложных упражнений (в том числе дыхательных), доступных как женщинам, так и мужчинам, вполне далеким от профессионального спорта, йоги и иных систем формирования тела и характера. Эти упражнения помогают избавиться от лишнего веса, обеспечивают прекрасную фигуру и самочувствие, стойкость к любым болезням, активную работоспособность и жизнерадостное (   Читать дальше...   )Жанр: Спорт / ФитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258A876456BBDCCB129D1D389F14812FAA8D247D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968619   (153448) от 24.12.2015
+
+Forecast Bar 2.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2015Разработчик: Real Casual Games, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE972F24AA16EDC2978F7E4C416E33A83B32559D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271007   (153449) от 21.12.2018
+
+Реставратор (2018) SATRip [H.264] (сезон 1, серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад детдомовка Ася Новогодняя чуть не угодила в тюрьму, но сумела выйти на верную стезю. Теперь у нее новая жизнь, своя квартира и хорошая работа в дорогом ресторане. Но когда убивают директора детдома, который был ей вместо отца, Асе приходится вспомнить криминальные навыки - не для того, чтобы нарушать закон, а для того, чтобы помочь правосудию и найти (   Читать дальше...   )Производство: Россия / ХитФильмПродакшнЖанр: детективРежиссер: Карен ЗахаровАктеры: Софья Ардова, Алексей Митин, Владислав Ветров, Александр Шам, Анатолий Кот, Алёна Яковлева, Ирина Чериченко, Илья Оболонков, Виктор ВасильевПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EAD073455578D11FD63CC3F33DCA7862B13DF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600894   (153450) от 29.12.2022
+
+Три мудреца против Санты / Reyes contra Santa (2022) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три короля, которым надоело, что Санта-Клаус становится более популярным под Рождество, решили противостоять ему, не зная, что эта война разбудит гораздо более опасного общего врага, Крампуса.Производство: Испания, Morena Films S.L.Жанр: КомедияРежиссер: Пако КабальероАктеры: Карра Элехальде, Давид Вердагер, Матиас Яник, Андрес Альмейда, Адаль Рамонес, Ева Угарте, Иса Монтальбан, Луис Сакристан, Карина Колокольчикова, Лаура КиросПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: русский, испанскийСубтитры: отсутствуютПродолжительность: 01:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FE672E2168DCF4F78FEAA3D20D7C3D3023D9EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588887   (153451) от 14.12.2012
 
 Incantation - Vanquish In Vengeance (2012) [MP3|320 кб/с]<Death Metal>
@@ -6,7 +187,7 @@ Incantation - Vanquish In Vengeance (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153451.jpg" />
 </div>
 
 
@@ -39,7 +220,7 @@ magnet:?xt=urn:btih:206CF0CAC367FFCFE19BABE501F4989A150984E5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153452.jpg" />
 </div>
 
 
@@ -65,7 +246,7 @@ Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153454.jpg" />
 </div>
 
 
@@ -92,7 +273,7 @@ magnet:?xt=urn:btih:A01DE2F21AA895A97AE46F9F727B87B75AFCEBFB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153455.jpg" />
 </div>
 
 
@@ -117,7 +298,7 @@ magnet:?xt=urn:btih:308DFA18D03A71185A8E84EA819B74655F869BDE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153456.jpg" />
 </div>
 
 
@@ -144,7 +325,7 @@ magnet:?xt=urn:btih:6CEB4DC5A98427BA2A86611A603B955B6DC62E18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153457.jpg" />
 </div>
 
 
@@ -170,7 +351,7 @@ E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153459.jpg" />
 </div>
 
 
@@ -197,7 +378,7 @@ magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153460.jpg" />
 </div>
 
 
@@ -222,7 +403,7 @@ magnet:?xt=urn:btih:3C73A683856ABE961ED7AEA3823B52CC449AE595
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153461.jpg" />
 </div>
 
 
@@ -246,7 +427,7 @@ magnet:?xt=urn:btih:B096E6243AD66FE3394DDA758E1F8F4673B68B49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153462.jpg" />
 </div>
 
 
@@ -271,7 +452,7 @@ magnet:?xt=urn:btih:C156896C412149A6BEC2F18DD72441B57CE4FBB7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153463.jpg" />
 </div>
 
 
@@ -295,7 +476,7 @@ magnet:?xt=urn:btih:F5000138F243EDEB9C9A237D0D3DD3688EE7B369
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153465.jpg" />
 </div>
 
 
@@ -322,7 +503,7 @@ magnet:?xt=urn:btih:23C0E71CF3CAFBB74A0658A6856B0EA7352C0828
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153466.jpg" />
 </div>
 
 
@@ -346,7 +527,7 @@ Hypertoad - God please destroy humanity (2016) ЕР [MP3|320 Kbps] <Instrumental
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153468.jpg" />
 </div>
 
 
@@ -373,7 +554,7 @@ Auslogics BoostSpeed 10.0.1.0  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153469.jpg" />
 </div>
 
 
@@ -397,7 +578,7 @@ magnet:?xt=urn:btih:4DBD4E114F20C5437C804179D243780EDE7BB2BA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153471.jpg" />
 </div>
 
 
@@ -421,7 +602,7 @@ magnet:?xt=urn:btih:E3B27C6F16377B4A08C681F844648F6051F0A1F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153472.jpg" />
 </div>
 
 
@@ -445,7 +626,7 @@ magnet:?xt=urn:btih:983F8C1604F43F57090F78B2DEB69D960A623480
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153474.jpg" />
 </div>
 
 
@@ -472,7 +653,7 @@ magnet:?xt=urn:btih:582A94E62FC11E514C4B508CE4EC4734DBF491DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153476.jpg" />
 </div>
 
 
@@ -483,178 +664,6 @@ magnet:?xt=urn:btih:582A94E62FC11E514C4B508CE4EC4734DBF491DA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D259B1A7F69801BD631EA6F6130310C26B48779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677068   (153477) от 16.11.2023
-
-Grant Green - Remembering (1961) 2013, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [8:15]
-02. If I Had You [7:09]
-03. Love Walked In [6:33]
-04. I'll Remember April [9:10](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A33533CE82EE4A6C7E7269DB8557B70189D19D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434202   (153478) от 23.12.2020
-
-Tapatunya | Сборник произведений [8 книг] (2019-2020) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она была странной, она была старше, порой от неё пахло безумией. И она была любовницей его собственного отца — женщина, которую так хотелось ненавидеть. От которой нужно было держаться как можно дальше. Женщина, под кроватью которой жили чудовища, и к которой он возвращался снова и снова.Жанр: Современные любовные романы, Детективная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A8A911927E703324FCA564A23034F6128CC9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968567   (153479) от 24.12.2015
-
-WinUtilities Professional Edition 12.25 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153479.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FDAEF8C447087F840679299AC12C521162812F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677171   (153480) от 16.11.2023
-
-Наша банда. Каждый сам за себя / Our Gang. Every Man for Himself (1924) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда арендует спортзал для тренировок. Ну, это для души. А деньги зарабатывет бизнесом по чистке обуви. Но вот чего-то бизнес не очень ладится...Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Энди Сэмюэл, Сонни Лой, Чарльз Де Брик, Рэймонд Де Брик, Монти О’ГрейдиПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF02E78DE8BB7A2A45DC950D347F3060B6619379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086446   (153481) от 24.12.2016
-
-Scrutiny 6.8.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny -  программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует  XML / HTML / .csv / .dot  карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2016Разработчик: PeacockmediaПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C1D8274B2084992B98FA55163C37CA46932663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434270   (153482) от 23.12.2020
-
-Artlantis 2021 v9.5.2.25095 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artlantis  – профессиональный набор инструментов, предназначенный для создания изображений и видеороликов высокого качества на основе 3D-моделей. В процессе работы пользователь может применять различные текстуры, изменять цвета проекта и параметры источников света. Программа также включает в себя инструменты, позволяющие редактировать свойства существующих материалов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2020Разработчик: AbventПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A758C2080D5D9A81F56121BB6AA3E38EF93D3BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501012   (153484) от 20.12.2021
-
-Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир постоянно умирает [2021, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопреки распространённым поверьям об ужасающей природе вампиров, у них довольно много слабостей: чеснок — их главный враг, а солнечный свет и кол в сердце смертельны для этих хрупких существ. Наш герой Дралук, что, судя по зловещим рассказам местных жителей, обитает в пугающем замке на окраине, очень раним и от каждого дуновения ветерка готов превратиться в кучку (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: комедияРежиссер: Кодзина ХиросиПеревод: Funimation; WakanimЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5419944191261D5C819C51F1E39E6C59E8E13DAD
 ```
 
 

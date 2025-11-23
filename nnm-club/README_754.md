@@ -6,7 +6,7 @@ Bandicam 8.1.1.2518 RePack (& Portable) by elchupacabra (DC 23.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19928.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19929.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F6EC9F419A2225DE662016E2D328D3E2523FD64C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19930.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5FABAA31998CE9F4EB212159B12DF84930C14489
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19931.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:40D4A75BB76FA64D2F7B740F1FA0E7128844B45E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19932.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19933.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:92974D7713C8AEDEC2C5DE0640AD7A0559A52541
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19934.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:92974D7713C8AEDEC2C5DE0640AD7A0559A52541
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19935.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:036BF59C9F6823E5225AC0C0ADE35824268B97A3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19936.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:61F21FA1F37919427468F4F86E6C0E289213CB51
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19937.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:8A3910A3F7BDE31B5F083887E35209CEC18A2F3D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19938.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:0493CE012B3E2D30D1A236257DA5AD5562B133D4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19939.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:779F246F765C978DCEE82A4359577F8F5D182404
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19940.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Photoshop 2024 25.12.3.1067 Light (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19941.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1D006015BFE516A482F0D09380F9E397AE776E8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19942.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E86BC96B91B37B756760F1AF0B806A9A1D0B780C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19943.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E3F746376CEBE97E650B317779B3E50A8C340B1D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19944.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:315FD3AFEF7A342701D5BC740532F5CCC79E1800
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19945.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:84F735EC8919AF6F985287F33F1C953C36E659F9
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19946.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19946.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19947.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:6BEBC5DD26F0BE426F295433B9B5A949813AD14C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19948.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Udemy, Chloe Gendron | Accelerate Your Learning with Master Studies in Pen and I
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19949.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19949.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:D9B13CD336EAD79A69E69A2277D4BF84756587DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19950.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ WPS Office + PDF v18.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19951.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:F41F3901313C0BD1AF3333DED66D4D4477FD092E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19952.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19953.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1701374   (116506) от 20.02.2024
+
+Благовест | Сила любви. По творениям преподобного Ефрема Сирина (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116506.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге, вышедшей в серии «Святые отцы о христианской любви», о необходимости стяжания и неустанного возгревания в себе чувства любви с читателями говорит преподобный Ефрем Сирин. В его творениях слово «любовь» выражает все грани бытия: любовь человека к ближнему своему, любовь человека к Богу и любовь Бога к человеку. Всё взаимопроникает и существовать по отдельности (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999165E5E5616DBC19FC7AEB77C115CB8EC590C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701284   (116507) от 20.02.2024
+
+File & Image Uploader 8.4.1 Portable + Skins [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116507.jpg" />
+</div>
+
+
+###  Подробнее
+
+File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F3A53306283FE95CAF330B2C2C0B775DADD6E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701266   (116508) от 20.02.2024
+
+Romuvos - Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Snake Dance (00:05:09)
+02 - Sun And The Morning Star (00:05:23)
+03 - World Tree (00:06:04)
+04 - Become As One (00:04:51)(   Читать дальше...   )Жанр: Epic Folk, Viking MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87086B6E0761C00DADE1C0EBAC207F040E8A402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701410   (116509) от 20.02.2024
 
 FireAlpaca 2.11.16 + Standalone [Multi/Ru]
@@ -6,7 +81,7 @@ FireAlpaca 2.11.16 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116509.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Capture One 23 Enterprise 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116510.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116511.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:C54114DA702447F822278E4A0F8B4D78793E8687
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116512.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Skype 8.113.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116513.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:B48463E293B9E3629FF9025D2ECC2F77B0BE80B2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116514.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ GeoGebra 6.0.826.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116515.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ Albert Cummings - Strong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116516.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ PhotoDirector v18.10.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116517.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:FA366D006A0F55BEE06CE24593533FB37790388A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116518.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:D3A93482FCEDB87381C382310EB1CDF78E5AE57B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116519.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ magnet:?xt=urn:btih:87444156526B01778A95C32EEFA1C23347BE0095
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116520.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:14980268F135D19603EB3948731912378730BEE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116521.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:B6C1EE65A7FFA659196F5829D893C82CC65B0496
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116522.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ PhotoMill X 2.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116523.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:7BA03F290E1C62AD36E60292BE640C8AEC199F94
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116524.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ Stats 2.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116525.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ magnet:?xt=urn:btih:A080C682672117C9186273E5ADB8C1F44117D83B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116526.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ magnet:?xt=urn:btih:352F086BA1278562199209E59AB694D38922D287
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116527.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116528.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ Skype 8.113.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116529.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ magnet:?xt=urn:btih:1D445C80B1D7717FAC5E9A019C3AFDCB1D760642
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116530.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:EA1323E5D62A098CF6E76C35E9BFFF3B4AD32775
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116531.jpg" />
 </div>
 
 
@@ -556,79 +631,6 @@ magnet:?xt=urn:btih:EA1323E5D62A098CF6E76C35E9BFFF3B4AD32775
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F3322A6BD0CD90E6DFC6F7A7249DFE8C1377A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701346   (116532) от 20.02.2024
-
-Waterfox Current G6.0.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F792523AAE0582AA0F0F1D88138AC30A1C77AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701193   (116533) от 20.02.2024
-
-Ирина Млодик | В туннеле магического мышления (2024) [MP3, Ольга Чижова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Ирины Млодик, опытного психотерапевта, автора множества научно-популярных публикаций, посвящена магическому мышлению. Что это такое, когда и как возникает, как проявляется и для чего нам нужно? Почему мы, даже становясь взрослыми, продолжаем верить в волшебные таблетки, тайные знания и простые способы решения сложных проблем? Что нам остается, когда вместе (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 06:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128ED60121C73356390F505C4295C54802CBC82B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701324   (116534) от 20.02.2024
-
-Сегодня (1929) WEBRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм показывает мир строящегося социализма и мир переживающего глубокий развал, обреченного на гибель капитализма. Строительство и пуск промышленных предприятий электростанций, железных дорог (Днепрогэс, Турксиб и др.). Американский образ жизни в США в 30-е годы.
-Шуб использовала прием чередования кадров советской и американской кинохроник, чтобы показать превосходство (   Читать дальше...   )Производство: СССР, Союзкино (Москва), ВельтфильмЖанр: документальный, история, немое киноРежиссер: Эсфирь ШубСубтитры: русские (интертитры)Продолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF143A99D305934F9163900700781F592B2C7E5
 ```
 
 

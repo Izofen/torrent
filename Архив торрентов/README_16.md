@@ -6,7 +6,7 @@ MyLanViewer 6.5.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2BD7168310214A311E94AA170C0F6573EB536F1B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8956.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:41678C4320A97886258309533A71A4DAB72B5157
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8957.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blackmagic Design DaVinci Resolve Studio 20.1 Build 20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8960.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:39FF545292BFBEBFB19772FC63E5A6EE19A25BD2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8980.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9422C9603FA76799AC8CA92A73595EB8378484B9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8986.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AIMP 5.40.2690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8995.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OCCT 14.2.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9002.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Any Video Downloader Pro 9.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9010.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Driver Store Explorer 0.12.100 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9016.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Capture One 23 Enterprise 16.6.4.3044 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9025.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:77FEEBA4F47C9F74B5D57216131C0258287757B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9035.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:77FEEBA4F47C9F74B5D57216131C0258287757B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9060.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:77FEEBA4F47C9F74B5D57216131C0258287757B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9063.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:77FEEBA4F47C9F74B5D57216131C0258287757B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9066.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:EFFDAB924E386B01F23FA29AC3CA8D13050C0B65
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9072.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9086.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:40A73CEA1E45E8C4D02011BB26845456B096945F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9091.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ YT Downloader 9.15.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9095.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ YT Downloader 9.15.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9103.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.11 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9135.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) HDTVRip [720p
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9143.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:9A6D3C3B6E0CBFBB8AEAEF92EF2AFDC2C57E35EE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9166.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v26 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9173.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:FB03E3138A31956E5AB0512CE07E7A5BB7A84DFD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9175.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:DB04C057C541B72E6B7BE9D8C32EA51A51CAB504
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9182.jpg" />
 </div>
 
 

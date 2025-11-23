@@ -1,3 +1,81 @@
+###  Публикация: 1525300   (129149) от 21.01.2022
+
+Томас Харди | Тэсс из рода д'Эрбервиллей (2020) [MP3, Валентина Емельянова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе Томаса Харди (Томаса Гарди, Thomas Hardy) (1840–1928), ставшего классикой английской литературы, рассказывается о печальной судьбе девушки, наделённой красотой и тонко чувствующей душой. Проклятие, лежащее на Тэсс, обрекает её расплачиваться за преступления некогда могущественных предков. Готовая пожертвовать собой ради близких, она протестует против грубого (   Читать дальше...   )Жанр: Зарубежная классика, Классическая прозаПеревод: Александра КривцоваИздательство: АРДИСПродолжительность: 18:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88512F8A55EC51FF36A7FE17F3B2C71F82BACE79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525627   (129150) от 21.01.2022
+
+Giant - Shifting Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shifting Time
+02. Let Our Love Win
+03. Never Die Young
+04. Don't Say A Word(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A749870F15682E27E62B2FA477A8B818D0CFF292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525564   (129151) от 21.01.2022
+
+Gerry Rafferty - Essential (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baker Street (06:06)
+ 02. Right Down the Line (04:28)
+ 03. The Ark (05:40)
+ 04. Night Owl (06:09)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EC2D4F02A1666A0C83B1EEAFF9070B3AE89CB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525619   (129152) от 21.01.2022
 
 Мишель Бюсси | Я слишком долго мечтала (2020) [MP3, Марина Лисовец]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129152.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129153.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:75093B23F8F62F5C04F922F600315366A8BB456D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129154.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Rectangle Pro 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129155.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129156.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:6337B643FDD2FB9F8432BECF32786C83BB5F232E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129159.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129160.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129162.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129164.jpg" />
 </div>
 
 
@@ -237,7 +315,7 @@ magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129166.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129167.jpg" />
 </div>
 
 
@@ -288,7 +366,7 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129169.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129170.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129171.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129172.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129174.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129175.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulfu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129177.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129178.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129184.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129186.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129188.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129189.jpg" />
 </div>
 
 
@@ -608,84 +686,6 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525545   (129190) от 21.01.2022
-
-Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris by Night (3:51)
- 02. Sourire (4:26)
- 03. Seine (3:39)
- 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
-
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525578   (129192) от 21.01.2022
-
-Firefox Browser 96.0.2 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
 ```
 
 

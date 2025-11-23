@@ -1,3 +1,150 @@
+###  Публикация: 1272688   (142487) от 28.12.2018
+
+IDAGIO - Classical Music v1.6.8 Premium [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142487.jpg" />
+</div>
+
+
+###  Подробнее
+
+IDAGIO - это первая классическая музыкальная потоковая передача, которая предлагает безупречный поиск, созданный для классической музыки. Наряду с простым в использовании интерфейсом и отличным дизайном пользователи уже подтверждают, что IDAGIO имеет «лучший поиск классической музыки». IDAGIO предлагает кураторские плейлисты, а также обширный каталог записей самого (   Читать дальше...   )Тип издания: Пиратка (Куплена подписка Премиум)Релиз состоялся: 19.12.2018Разработчик: Classical Music Streaming - IDAGIOПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970221   (142488) от 29.12.2015
+
+Дарья Донцова | Бермудский треугольник черной вдовы (2015) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бригаду Татьяны Сергеевой обратилась Инна Валерьевна Голикова. Она явно сверх меры любит своего сорокалетнего сыночка и не хочет, чтобы тот женился. Алексей – успешный бизнесмен, владелец сети магазинов. Он прямо заявил матери, что встретил судьбу в лице некой Веры Лазаревой, намерен сочетаться браком и жить отдельно. Его невеста не невинная девочка, в прошлом (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96DFA0BF740CDA70D19955F0E9BB0F1FD372F3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970031   (142490) от 29.12.2015
+
+Линда Бут Свини, Деннис Медоуз | Сборник игр для развития системного мышления (2007) [DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые в сборнике практические упражнения и игры направлены на развитие системного мышления, обучение работе в команде, формирование творческого подхода к выполнению любых заданий. Книга адресована учителям средних школ, преподавателям вузов, психологам, педагогам дополнительного образования, всем, кто заинтересован в игровых, активных методах обучения и стремится (   Читать дальше...   )Жанр: ПсихологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514AD5B808F39B7AFCE39E449FE4D63B7489370C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195559   (142491) от 29.12.2017
+
+Открытый микрофон (2017.12.29) SATRip (сезон 2, выпуск 20: Дайджест)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142491.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:45:20Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A9DC14C9E8135461B036E0BE5C416842A8252D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520558   (142492) от 28.12.2021
+
+XoBrooklynne - My Crown: The Album (2021) [AAC|~308 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:56)
+02. My Crown (2:50)
+03. My Crown (Jillian's Version) (2:49)
+04. Crying In The Club (2:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35963D59113B5ADCDB83488595A17C82CD3F3332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435840   (142493) от 29.12.2020
+
+Растровый клипарт - Fotolia - New Year and Christmas stock photos №68 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4320x4096-9212x3247
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D79F6E703A4BFDB586005EB596CF9CCA3EA9A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825960   (142494) от 28.12.2018
 
 Владимир Колычев | Отступники (2014) [FB2]
@@ -6,7 +153,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142494.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ magnet:?xt=urn:btih:BCDD7E074C1E586AA425C9B0E50BB6A939C28C6D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142495.jpg" />
 </div>
 
 
@@ -54,7 +201,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142497.jpg" />
 </div>
 
 
@@ -78,7 +225,7 @@ Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142498.jpg" />
 </div>
 
 
@@ -105,7 +252,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142499.jpg" />
 </div>
 
 
@@ -132,7 +279,7 @@ magnet:?xt=urn:btih:CDE365A06BBAF150365BC37A4E1D0DA488C7A1C8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142500.jpg" />
 </div>
 
 
@@ -156,7 +303,7 @@ magnet:?xt=urn:btih:1C7A5154E8CFBEF8A15C502606290954F457B163
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142501.jpg" />
 </div>
 
 
@@ -180,7 +327,7 @@ magnet:?xt=urn:btih:E45AC20186598A452EB7C67BF9CC87782934A531
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142502.jpg" />
 </div>
 
 
@@ -204,7 +351,7 @@ MediaHuman YouTube Downloader 3.9.9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142503.jpg" />
 </div>
 
 
@@ -228,7 +375,7 @@ magnet:?xt=urn:btih:37E8B6B6FBBF58250C7EAC0DE30C6CE375789B4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142504.jpg" />
 </div>
 
 
@@ -253,7 +400,7 @@ magnet:?xt=urn:btih:EFB1DC0A3F2E21C5174C1182D69A9D471C4FFC1F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142506.jpg" />
 </div>
 
 
@@ -277,7 +424,7 @@ VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142508.jpg" />
 </div>
 
 
@@ -304,7 +451,7 @@ Firetask | Task List & Planner 4.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142509.jpg" />
 </div>
 
 
@@ -329,7 +476,7 @@ magnet:?xt=urn:btih:0B032B2036F95AC3516BA0189455FB2DA5AEA95D
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142510.jpg" />
 </div>
 
 
@@ -353,7 +500,7 @@ VA - 4 Years of Hoofbeats Music (2020) [AAC|~334 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142511.jpg" />
 </div>
 
 
@@ -380,7 +527,7 @@ magnet:?xt=urn:btih:875FC793AA2889B55B28CC44E88466F8B00FBE2A
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142512.jpg" />
 </div>
 
 
@@ -406,7 +553,7 @@ magnet:?xt=urn:btih:875FC793AA2889B55B28CC44E88466F8B00FBE2A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142513.jpg" />
 </div>
 
 
@@ -430,7 +577,7 @@ magnet:?xt=urn:btih:E9D10D32B481656EDD1BCB3647F75486F4E4ADFB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142514.jpg" />
 </div>
 
 
@@ -454,7 +601,7 @@ magnet:?xt=urn:btih:FE3A4A754B650C99C76EBC22A99BAFAC678D4B41
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142516.jpg" />
 </div>
 
 
@@ -478,7 +625,7 @@ magnet:?xt=urn:btih:A3F5DCCE5110FE4DF228AE1E5D8A03F9CA46DA69
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142517.jpg" />
 </div>
 
 
@@ -489,156 +636,6 @@ magnet:?xt=urn:btih:A3F5DCCE5110FE4DF228AE1E5D8A03F9CA46DA69
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AC8A5FDBF59BCC5414C8386DF6F53778E0EAC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272302   (142519) от 28.12.2018
-
-Пегги Сью вышла замуж / Peggy Sue Got Married (1986) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда очень хочется прожить жизнь заново. Во всяком случае — кое-что подправить. У Пегги Сью всё хорошо — есть милые дети, есть работа. Вот только брак трещит по швам. Сразу после развода Пегги отправляется на бал выпускников школы, где ее с восторгом выбирают королевой.
-Это дает ей шанс вернуться в конец 1950-х, когда «Бич Бойз» пели песенку «Красотка Пегги Сью», (   Читать дальше...   )Производство: США / TriStar Pictures, Rastar Pictures, Zoetrope StudiosЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Френсис Форд КопполаАктеры: Кэтлин Тёрнер, Николас Кейдж, Бэрри Миллер, Кэтрин Хикс, Джоан Аллен, Кевин Дж. О’Коннор, Джим Керри, Лиза Джейн Перски, Люсинда Дженни, Уил Шрайнер, Барбара Харрис, Дон Мюррэй, София Коппола, Морин О’Салливан, Леон Эймс, Рэнди Борн, Хелен Хант, Дон Старк, Маршалл Креншоу, Крис Донато, Роберт Креншоу, Том Тили, Кен Грэнтхем, Джинджер ТейлорПеревод: Многоголосый закадровый (Первый канал), Двуголосый закадровый (Кармен Видео), Одноголосый закадровый (Алексей Михалёв)Субтитры: русские, английскиеПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202F2E16091F5596862344F4AD5DFB0DA59DBEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087653   (142520) от 29.12.2016
-
-История «Eagles» / History of the Eagles (2013) BDRemux [H.264/1080p] [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142520.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни и творчестве, о распаде и воссоединении рассказывают сами участники группы «Eagles»Производство: США | Jigsaw ProductionsЖанр: документальныйРежиссер: Элисон ЭллвудПеревод: ОтсутствуетЯзык субтитров: Русский, английскийПродолжительность: 2:00:00 + 1:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFDF78637FC824D629D49CD64907A18662DF4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970161   (142521) от 29.12.2015
-
-Корин Свит | Медитация для занятых людей. Восстановление внутренней гармонии где бы вы ни были (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы несемся на работу на всех парах, а когда застреваем в пробке, терзаемся из-за того, что двигаемся недостаточно быстро. Мы экономим время, поедая фастфуд на ходу. Чтобы справиться с вечно растущими списками дел, мы становимся многозадачными. Мы таращимся в телефоны во время разговора с друзьями. Опустив голову и уставившись на экраны, мы не смотрим другим в глаза (   Читать дальше...   )Жанр: Психология, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662F053166DBA1DAFE44676B1A55F1CA72E8AC5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195421   (142523) от 29.12.2017
-
-Студия Союз (2017.12.28) WEB-DL [H.264/720p-LQ] (выпуск 21: Дайджест)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F61204A35AFAAA31CA37510E3DB6318085BAC06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679030   (142524) от 23.11.2023
-
-Imparity - Tales Of Rust And Bones (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hermetic Seal Of Light [00:08:25]
-02. Rust And Debris [00:06:52]
-03. Watch The World Go By [00:07:18]
-04. The Truth Of Bones [00:08:10](   Читать дальше...   )Жанр: Doom, Gothic Metal, Female VocalsПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE317E11CDF2023E3A989625530462FE190C4AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088017   (142525) от 29.12.2016
-
-Елизавета Дворецкая | Две жены для Святослава (2016) [FB2]
-
->>Художественная литература
->>Историческая проза, Мифы и Легенды
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый роман цикла «Княгиня Ольга».
-
-Еще мальчиком Святослав, сын Ольги и Игоря, принял на себя бремя власти. Увлеченный ратными делами, юноша и не думал о женитьбе, меж тем с детства по политическим соображениям ему были предназначены две невесты. Кого же выбрать – смолянскую княжну Прияну, о которой уже идет слава ведуньи, или древлянскую Горяну, дочь родителей-христиан?.. (   Читать дальше...   )Жанр: Историческая литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517E4132D7C8EBD3994A47B15F48DA04882BFAC1
 ```
 
 

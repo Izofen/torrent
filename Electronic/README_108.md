@@ -6,7 +6,7 @@ VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164388.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164403.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164435.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Romana & Gazwa Kain - The Best Of Lounge: Mystic Lounge (2001) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164466.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vangarde - The Best Of Lounge: The Orange Lounge Suite (2001) [FLAC|Lossless|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164479.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164532.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164613.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - A State Of Trance Year Mix (Mixed by Armin van Buuren) (2022) 2CD [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164882.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Christmas Dance Party 2019-2020 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165064.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165082.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Enhanced Music Best Of (Mixed by Tritonal) (2022) [MP3|320 Kbps] <Trance, P
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165113.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165120.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165127.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Abora Recordings: Best Of 2021 (Mixed By Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165138.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sopor Aeternus & The Ensemble Of Shadows - ALONE AT SAM’s - An Evening with...
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165162.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - FSOE 750 - Kings & Queens (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165168.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Maor Levi Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165211.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Got
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165221.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Deep Trance Showcase II (2023) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165346.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165410.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC 2.0|44.1/24|tracks|WEB-DL] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165596.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Christ. - Discography 25 Releases (1998-2014) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165721.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Boris Brejcha - 22 5th album (2016) [MP3|320 кб/с] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165727.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Jazz Leaves Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165770.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165852.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Fresh Family. Fresh Animal'z Bassball (1998) Resort Records [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165885.jpg" />
 </div>
 
 

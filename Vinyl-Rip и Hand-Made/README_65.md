@@ -1,3 +1,111 @@
+###  Публикация: 1626464   (255201) от 14.04.2023
+
+Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Piece Of The Action 3:37
+A2 Midnight Reservation 3:42
+A3 It's Got To Be Love 3:08
+A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625981   (255266) от 12.04.2023
+
+Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Run For Your Life 4:08
+A2 10, 9, 8, 7, 6, 5, 4  4:24
+A3 I Do It All For You 4:04
+A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625644   (255296) от 11.04.2023
+
+Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
+2015 - Major / Bye Julia (Triptych EP)
+2017 - Burst
+2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625760   (255300) от 11.04.2023
+
+Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Waiting On The Border Line (3:46)
+A2. How Do You Feel Now (4:51)
+A3. Back To The Wall (5:12)
+A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625753   (255302) от 11.04.2023
 
 Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
@@ -6,7 +114,7 @@ Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255302.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255302.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255306.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255306.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255339.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255339.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255414.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255414.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255435.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255518.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255518.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255537.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255537.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257520.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257750.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257750.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257817.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257817.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257818.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257818.jpg" />
 </div>
 
 
@@ -289,6 +397,67 @@ A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Чит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500216   (258112) от 24.05.2012
+
+Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Metal Heart [5:18]
+2 - Screaming for a Love Bite [4:19]
+3 - Up to the Limit [5:00]
+4 - Head Over Heals [5:55]
+5 - Love Child [4:40]
+6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500918   (258384) от 25.05.2012
+
+Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258384.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1 - Running on Faith (Unplugged) - [06:15]
+C2 - Motherless Child - [02:58]
+C3 - Change the World - [03:55]
+C4 - My Father's Eyes - [05:22]
+
+D1 - Riding With the King - [04:23]
+D2 - Sweet Home Chicago - [05:16]
+D3 - If I Had Possession Over Judgment Day - [03:26]
+D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+нет
 ```
 
 

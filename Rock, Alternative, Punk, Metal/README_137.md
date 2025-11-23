@@ -6,7 +6,7 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109634.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109635.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109637.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109638.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109639.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109642.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109645.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Burial Rot - Do Not Desecrate the Sleep of the Dead (2020) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109666.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109668.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Southwicked - Death's Crown (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109673.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109689.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109715.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ In Flames - Colony (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109718.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Burden of Oath - Shattered Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109720.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Fjordheksa - Ashlad (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109721.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fange - Perdition (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, sludge, doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109722.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Sc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109726.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109727.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FA4EFAE6092AD68C70FF3D4A3DF41C67239877F8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109729.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:7B49AE5E60A77083E49F98B4D5FAD21D05AAF099
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109730.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Warlord - Free Spirit Soar (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109731.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ It Will Last - Mankind (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109732.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mr. Coma - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109734.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ JD Miller - Empyrean (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109736.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ogdimora - Songs for the Gremlins (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109738.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109748.jpg" />
 </div>
 
 

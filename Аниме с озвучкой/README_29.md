@@ -1,3 +1,27 @@
+###  Публикация: 491522   (246706) от 04.05.2012
+
+Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_246706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая поп-певица Киригоэ Мима, пытается перейти из мира музыки в индустрию ТВ-сериалов и прославиться как актриса, но, похоже, не всем ее поклонникам понравилось такое решение, и - началось: странный телефонный звонок, факс, конверт со взрывчаткой. А плюс к тому в интернете обнаружилась страничка с якобы ее дневником...Жанр: аниме, мультфильм, ужасы, триллер, драмаРежиссер: Кон Сатоси / Kon Satoshi / 今敏Актеры: Джанко Ивао, Рика Матсумото, Shinpachi Tsuji, Masaaki Фkura, Ёсуке Акимото, Ёку Шиоя, Хидеуки Хори, Еми Синохара, Масаши Эбара, Киёюки ЯнадаПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA75B8EA424D7AE1A82F269B05EE15017DA7922F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579531   (246744) от 26.07.2023
 
 Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021, Movie] BDRip 800p HEVC 10-bit raw+rus
@@ -6,7 +30,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246744.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246744.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:CAD153DF7756E2C31AC0330B79E90DA134DCA154
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246784.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247000.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247000.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ magnet:?xt=urn:btih:2EF5832D4F7DC0FD65C09959B7CDF4B33F2496BA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247050.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247050.jpg" />
 </div>
 
 
@@ -104,7 +128,7 @@ magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247135.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247135.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247215.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247215.jpg" />
 </div>
 
 
@@ -154,7 +178,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247406.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247406.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ magnet:?xt=urn:btih:F377F2664FCE8CB1D076A785B5B9E4A06F001E78
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247411.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247411.jpg" />
 </div>
 
 
@@ -203,7 +227,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247434.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247434.jpg" />
 </div>
 
 
@@ -227,7 +251,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247436.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247436.jpg" />
 </div>
 
 
@@ -252,7 +276,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247475.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -277,7 +301,7 @@ magnet:?xt=urn:btih:AF8F1C02F5F75ADBDDC12EC39DBF957F1117BCAF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247493.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -302,7 +326,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247535.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247535.jpg" />
 </div>
 
 
@@ -326,7 +350,7 @@ Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249317.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249317.jpg" />
 </div>
 
 
@@ -350,7 +374,7 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250129.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250129.jpg" />
 </div>
 
 
@@ -374,7 +398,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250244.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250244.jpg" />
 </div>
 
 
@@ -401,7 +425,7 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254233.jpg" />
 </div>
 
 
@@ -425,7 +449,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254995.jpg" />
 </div>
 
 
@@ -449,7 +473,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254996.jpg" />
 </div>
 
 
@@ -473,7 +497,7 @@ magnet:?xt=urn:btih:3C87DB8450E0C7B5EEB71A59D72907E18557E95E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255462.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255462.jpg" />
 </div>
 
 
@@ -497,7 +521,7 @@ magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255491.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255491.jpg" />
 </div>
 
 
@@ -522,7 +546,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256544.jpg" />
 </div>
 
 
@@ -550,7 +574,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257549.jpg" />
 </div>
 
 

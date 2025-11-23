@@ -1,3 +1,84 @@
+###  Публикация: 965969   (222117) от 16.12.2015
+
+Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов российской альтернативной хип-хоп группы Anacondaz.Акуле плевать (Official Music Video) :: 04:18
+ Беляши (Official Music Video) :: 04:06
+ Бесит (Official Music Video) :: 02:50
+ Вызывай (п.у. DJ MOS) :: 02:31(   Читать дальше...   )Жанр: Pauzern Rap, Hip-HopПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7518212777648772B76304668770265593A4A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965949   (222154) от 16.12.2015
+
+ВИА "Самоцветы" Фильм-концерт (1973) TVRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт с участием ВИА "Самоцветы"01.За того парня
+02.Налетели дожди
+03.Верба
+04.Чаривна бойкивчанка(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: МузыкаРежиссер: Юрий МаликовПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D28E32634DCCB2A4899008A01F8C994B5BCEE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268587   (222452) от 13.12.2018
+
+Сборник клипов - Christmas & Happy New Year Collection от ALEXnROCK (2018) WEBRip [H.264/720p-LQ/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подарок слушателям к наступающему Новому году! Рожденственские и новогодние клипы на все времена. Ремастеринг видео и звука. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro Christmas
+001 Darlene Love - All Alone On Christmas
+002 Kylie Minogue - It's The Most Wonderful Time Of The Year
+003 Cascada - Last Christmas(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879B46EA051DC2A7F6D2AAC52C722CA2B8DFB1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269006   (222735) от 13.12.2018
 
 Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
@@ -6,7 +87,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222735.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222735.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Pain - We Come in Peace (Live at Debaser Medis Stockholm) (2012) BDRip [720]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222933.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223829.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223829.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:C0CD3B6756EB5BAFD9A1FCABBBF73D60B7AAC6C2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223905.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223905.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ magnet:?xt=urn:btih:AB4A65746037CECFE08E2E64CD7E646BA0DC681C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225199.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225199.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ magnet:?xt=urn:btih:43AFB10F978001E6DEE83659F04E149CB13AF3C3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225266.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225266.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225379.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225379.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ magnet:?xt=urn:btih:1AD691863888AE1BCC0B22A3845398D622D9B85B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225411.jpg" />
 </div>
 
 
@@ -209,7 +290,7 @@ magnet:?xt=urn:btih:0E7CBAFD995BE198DCCE7E36647C863FCA8283C7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225493.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225493.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ Adele - At The BBC (2015) HDTVRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225515.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225637.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225637.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225674.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225674.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ magnet:?xt=urn:btih:15E21A4619CDBC461D754C660A3A813F1E59A897
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225857.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225872.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225872.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225895.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225900.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ magnet:?xt=urn:btih:8E4AC6A74F19CC56CFEE0D5A2D530CCCE9ADE7D3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226061.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ magnet:?xt=urn:btih:05416768C1536EC301616FD812F3A2F27D76C6AF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226174.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226174.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ magnet:?xt=urn:btih:6334079D589FB932DD962A62126369CF53B4740B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227672.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ magnet:?xt=urn:btih:2195144A2A934803BEC1CD06EBCFC56A4B4D04A3
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227792.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227792.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_228900.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229323.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229323.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229407.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229407.jpg" />
 </div>
 
 
@@ -583,85 +664,6 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268089   (229441) от 09.12.2018
-
-Квартирник на НТВ у Маргулиса. Владимир Пресняков (12.08.2018) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229441.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске «Квартирника» — советский и российский эстрадный певец, музыкант-клавишник, композитор, аранжировщик, танцор брейк-данса и актер Владимир Пресняков — младший. Евгений Маргулис вспомнил, как долго он уговаривал артиста прийти к нему, и пошутил на тему инициалов своего гостя. Кроме того, хозяин вечера рассказал, что Пресняков-младший пел с группой «Круиз». (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4D5DAFDE1D30F66A939C077DFB5F40276FE442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964792   (229852) от 12.12.2015
-
-Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_229852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа ECHOES к своему двадцатилетнему юбилею презентовала свой новый альбом, посвящённый уникальной музыке группы Pink Floyd! Совершенно новая трактовка известных песен Pink Floyd на полностью аккустических инструментах! ECHOES является одной из наиболее успешных и устойчивых Pink Floyd трибьют-групп в Германии. Начиная с 1995 года и по настоящее время (   Читать дальше...   )1. Shine On You Crazy Diamond
-2. Have A Cigar
-3. Us And Them
-4. High Hopes(   Читать дальше...   )Релиз состоялся: 16.10.2015Производство: GermanyЖанр: Progressive rockПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B34ED98509E56F75702BBE06700DFF21A8B546B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274842   (230250) от 11.06.2022
-
-Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230250.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1 "Bombay Calling"
- "Bombay Calling" - издаваемый ранее дважды этот альбом имеет различие  в том, что здесь добавлен отрывками концертов в Сеуле.Производство: © 2008 Eagle Rock Entertainment LtdЖанр: Hard rockФормат: DVD VideoПродолжительность: DVD1 - 01:53:00 (+55 мин бонус)
-DVD2 - 02:02:00 (+26 мин бонус)
-DVD3 - 01:48:00 (+25 мин интервью)
-DVD4 - 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA41A15756909FFA239B02B393565BDBF3D35DCA
 ```
 
 

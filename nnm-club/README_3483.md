@@ -1,3 +1,78 @@
+###  Публикация: 1720636   (110240) от 04.05.2024
+
+Поедем, поедим! Красная Поляна: кулинарные вершины, скоростные склоны и музей друзей  (04.05.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» снова отправились на самый популярный курорт в России. Что еще они не видели в Сочи? Оказалось, что очень многое! Итальянец прокатился на самых скоростных склонах и изучил «медленный туризм», зашел в музей друзей и узнал, где греки зимуют. И покорил еще и кулинарные вершины: попробовал горную уху и раклет, приготовил кинзмари (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DBCECA9956D591458DD206A085AC6B68261995
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720703   (110241) от 04.05.2024
+
+Журнал | Юный ученый №4 (78) (2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB07861B1B61EC1F32015910AE6A3E877AFA7CC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720656   (110242) от 04.05.2024
+
+VA - New Music Friday (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N & Dellahouse - No More (original mix) (05:34)
+02. Abee Sash - When I First Saw You (Mant Deep Remix) (04:44)
+03. Deepsan - Beating Heart (original mix) (03:09)
+04. Cristian Ferrer & Deep Strips - Cristian Ferrer & DEnd Of The Night (radio edit) (03:42)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA419E41DA5651A0851BEF344E1156A83F05EC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720544   (110243) от 04.05.2024
 
 PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
@@ -6,7 +81,7 @@ PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110243.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ P.O.D. - Veritas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal / Rapcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110244.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110245.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110246.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Lucky Patcher 11.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110247.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:EF3300DB63CB3721D0948DD400E114721C0BDE17
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110248.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:0BC98F4BF1E3A5AE4D324EF6F2AF9120DAF3E005
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110249.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:B4D84EA9A43CCB9EF90BFBF54AC6C5C76F46EC0E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110250.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:A6130A4F22BF12C29D0B4EBF06DD00CE5C389C7B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110251.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ magnet:?xt=urn:btih:06AC4EE92A3D0DCDB221459CFD37A24D29A3101D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110252.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:A663D733DA32E5F1A99949B94C8D911463BFCB72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110253.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ magnet:?xt=urn:btih:F1C3F08FFD55D63E39F2D4A6D458D872AA2D12A2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110254.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ YT Downloader 9.7.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110255.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ magnet:?xt=urn:btih:560C4EA9D15B5104899E300D61A5BBF494C54749
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110256.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ magnet:?xt=urn:btih:04BBB664F051C8C940D95CA0A10A949F1BCF2BAA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110257.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ Tablacus Explorer 24.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110258.jpg" />
 </div>
 
 
@@ -404,7 +479,7 @@ magnet:?xt=urn:btih:7E972E6A785C7ACE5F0D2AF138B6CA201BDF86B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110259.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ Aiseesoft Video Converter Ultimate 10.8.8 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110260.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ TweakNow WinSecret Plus! 5.5.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110261.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ Tracktion Software & Dawesome - Novum 1.17 VSTi 3 (x64) RePack by TCD + Content 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110262.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ Pirate Queen - Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110263.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ Garbage - Lie To Me (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110264.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ ApowerREC 1.6.9.6 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110265.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ ApowerREC - это программа которая может записыва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D57BEF6F16B818F547F0CEF1E7161856B3DCB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720565   (110266) от 04.05.2024
-
-Павел Безручко | Практики регулярного менеджмента (2020) [MP3, Сергей Битюцкий]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из книги вы узнаете о том, как правильно планировать, делегировать и контролировать работу, давать обратную связь, проводить совещания, подбирать и развивать сотрудников, проводить оценку их эффективности и потенциала и принимать верные кадровые решения. Хотя все перечисленное – часть стандартной управленческой работы, именно здесь у многих руководителей по прежнему (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПаблишерПродолжительность: 05:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBACC274D6CA1D83E4F7621F353F3D3A965ACF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720796   (110267) от 04.05.2024
-
-4K YouTube to MP3 5.3.0.0085 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110267.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E94F0CE0147AEC3DCADC1E6BC7AC8B83B00F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720748   (110268) от 04.05.2024
-
-ApowerREC 1.6.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110268.jpg" />
-</div>
-
-
-###  Подробнее
-
-ApowerREC - это программа которая может записывать что угодно на вашем экране, включая ваши действия на рабочем столе, видео в прямом эфире, веб-встречи, переговоры в онлайн чатах и так далее. Вы можете захватывать свою работу на полном экране или в специально настроенной области вместе со звуком, софт способен поддерживать синхронизацию видео с аудио потоком, это (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFF7AA8F7169FCF8C41B471CBB5DD2D44A3FFF8
 ```
 
 

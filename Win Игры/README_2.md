@@ -6,7 +6,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_716.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_724.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_727.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_730.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniver
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_734.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_737.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chimeras 14: The Lost Film (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_791.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_809.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_831.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_849.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_853.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_865.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_867.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_877.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_878.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_884.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:A971580136666036DE264BE2086238A00D274F3E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_887.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_899.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_908.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6) License GOG [Patche
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_909.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_915.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_916.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_922.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_930.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_940.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack Other s [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1053.jpg" />
 </div>
 
 

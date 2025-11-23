@@ -6,7 +6,7 @@ Luminar Neo 1.24.4.14984 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13092.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack 19.0.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13095.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:06D23A6F4E1AEACBCF0F4221D193334279C63E2F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13097.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adobe Illustrator 2025 29.6.1.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13099.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13103.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13109.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2468B479D6B7D68A6FB14687316BAAC006982652
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13122.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2468B479D6B7D68A6FB14687316BAAC006982652
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13125.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ HEU KMS Activator 63.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13128.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:388787DC70780C96DFD8E42D6FB59EB56C462BDA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13129.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:388787DC70780C96DFD8E42D6FB59EB56C462BDA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13131.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:65F0EC33AEDABBC378C969E3105BE266FE0D3F31
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13134.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.579 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13139.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Steinberg - SpectraLayers Pro 11 11.0.70 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13147.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:5066BA9863355FBB8B6CBF27A06DED64834C22D1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13149.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C56CC5338D1CE05C1117E345D0C655D3DD772A03
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13153.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ CPU-Z v1.51 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13154.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Magic Eraser / Магический ластик v2.22.3 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13157.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Electrical Calculations Pro / Электрические расчеты v10.5.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13159.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Revo Uninstaller Mobile v3.4.230G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13166.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ SHAREit Premium: Pure Share v1.1.89 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13171.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Allavsoft Video Downloader Converter 3.28.1.9305 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13179.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:795744922DFBB59E671745E6F6D0FA5FD89699DC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13193.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Revo Registry Cleaner Pro 1.5.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13199.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:715FEAF14382E4B659273E5FDCC5B385F21988B2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13207.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ByeByeDPI v1.5.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13208.jpg" />
 </div>
 
 

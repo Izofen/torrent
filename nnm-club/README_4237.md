@@ -1,3 +1,75 @@
+###  Публикация: 1520479   (130155) от 19.01.2022
+
+Все ждут Рождества 2: Люси и магический кристалл / Julemandens datter 2 (2020) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко на севере в Гренландии живет двенадцатилетняя Люси с матерью и отцом, который больше всего известен как Дед Мороз. Люси — первая девочка в классе Санта-Клауса в международной Рождественской школе. В тот день, когда Рождественская машина должна запустить производство рождественских подарков, пропадает магический кристалл, который питает машину. В краже этого (   Читать дальше...   )Производство: Дания / Deluca FilmЖанр: Фэнтези, приключения, семейныйРежиссер: Кристиан ДюэкьерАктеры: Элла Теста Куск, Бертил Смит, Мартин Бух, Миа Лине, Ульф Пилгаард, Хеннинг Енсен, Кристиан Халкен, Нильс Мартин Эриксен, Эйнар Ханс Йенсен, Thea GlindorfПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01C4A23B27B594252569F635721B1F8A52D0CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490910   (130156) от 02.05.2012
+
+Монстры в лесах / Monsters in the Woods (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемочная группа одного малобюджетного хоррора выбирается в дикую местность для съемок одного из эпизодов этого фильма. Однако, вскоре они оказываются сами героями самого настоящего фильма ужасов, т. к. их начинает преследовать стая чудовищ, обитающих в этом лесу.Жанр: УжасыРежиссер: Джейсон ХортонАктеры: Гленн Пламмер, Ли Перкинс, Линда Белла, Эдвард Хендершотт, Клаудия Переа, Блейн Кейд, Глэдис Отеро, Эштон Бланчард, Пол Мишко, Курт МегаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:20:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525180   (130157) от 19.01.2022
+
+3D Buzz | Mathematics Volume I: Algebra (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том I начинается с введения ряда основных понятий алгебры, таких как порядок операций, алгебраических законов, перегруппировки уравнений. Есть бесчисленное множество сценариев в области компьютерной графики и программирования в целом, где уравнение может сформулировать правило (или набор правил), которые регулируют то, что вы пытаетесь сделать. Следовательно, умение (   Читать дальше...   )Производство: 3D BuzzЖанр: МатематикаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576356129BEB2F7C36490752D7B016A4DF11E939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525278   (130158) от 19.01.2022
 
 UnHackMe 13.30.2022.0111 RePack by Umbrella Corporation [Ru]
@@ -6,7 +78,7 @@ UnHackMe 13.30.2022.0111 RePack by Umbrella Corporation [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130158.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:94B1CA3673308524145E79C512491DC3041E2E35
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130159.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:59ACFEB194915D66DD08933AF215DDA853F2FF17
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130161.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Canon EOS DIGITAL Solution Disk 25.0 [En/Fr/It/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130163.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Canon EOS DIGITAL Solution Disk из комплектации камер Canon E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130164.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:450F08DE75B3D481003A85919165304853FC3D8F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130166.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ VMware Workstation Player 16.2.2 build 19200509 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130167.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:D949DC8381704A0A4220CAFA62BA2295328D2050
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130168.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:B53DFF2C6D5A8A3F57F3F016AB229ADEDA84CBAD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130169.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Ashampoo WinOptimizer 19.00.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130170.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Ashampoo UnInstaller 11.00.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130171.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130172.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130176.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:4E69E6BD094AB55C8C32E6E82EA9334011DF132A
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130177.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:49F6F27D9B9B7E9AE458152937731E33B2B3F8A3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130178.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:49F6F27D9B9B7E9AE458152937731E33B2B3F8A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130179.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:6441CDB56A2B32FAB7010B3DD37BA1BD058CC3F9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130180.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ magnet:?xt=urn:btih:AD7C9E7DA1D96BF8975EE537361049AC40DEFBA9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130181.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ magnet:?xt=urn:btih:E04949C2C4FD13D45D01E2F66D49C7924B94E5EA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130184.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:9121D89B33F332BBF70417E9F7C567753D08E37A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130185.jpg" />
 </div>
 
 
@@ -560,86 +632,6 @@ magnet:?xt=urn:btih:9121D89B33F332BBF70417E9F7C567753D08E37A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A012A29AD602DABD7A0A737C73B8848009E0FC64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490858   (130186) от 02.05.2012
-
-Anthropics Portrait Professional Studio v10.9.3 RePack by wadimus [2012,ENG\RUS]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Portrait Professional - автономная программа для обработки фотопортретов от компании Anthropics Technology. В ней реализована уникальная технология, которая поволит вам быстро устранять основные недостатки лица на фотографии всего лишь за несколько кликов в полуавтоматическом режиме.
-Программа устраняет морщины и дефекты кожи, изменяет форму лица, превращая полные или тощие лица в более худенькие и наоборот, улучшает черты лица, делая их более правильными и привлекательными.
-
-Универсальные графические редакторы типа Photoshop имеют достаточно средств для улучшения фотографий. Однако неподготовленному пользователю часто бывает сложно разобраться с тонкостями использования многочисленных инструментов.
-
-В результате на то, чтобы выполнить такие часто используемые операции, как устранение морщин, отбеливание зубов, удаление пигментных пятен и пр., уходит достаточно много времени и сил. Portrait Professional – это простая программа, которая ориентирована исключительно на улучшение портретных снимков. С ее помощью можно (   Читать дальше...   )Название программы: Anthropics Portrait Professional StudioЯзык интерфейса: ENG\RUS
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525099   (130189) от 19.01.2022
-
-Трагедия Макбета / The Tragedy of Macbeth (2021) WEB-DL [H.264/720p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличившись на поле боя во славу Шотландии, лорды Макбет и Банко встречают трёх ведьм, которые предсказывают, что первый станет таном кавдорским и даже королём, а второй — предком династии королей. Вскоре Макбет получает в своё распоряжение Кавдор и начинает задумываться о престоле. Следуя наущениям честолюбивой жены, он решает убить остановившегося в его замке короля (   Читать дальше...   )Производство: США / A24, IAC FilmsЖанр: Драма, фэнтезиРежиссер: Джоэл КоэнАктеры: Дензел Вашингтон, Фрэнсис МакДорманд, Алекс Хэсселл, Берти Карвел, Брендан Глисон, Кори Хоукинс, Гарри Меллинг, Майлз Андерсон, Мэтт Хельм, Моусес ИнгрэмПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full, SDH), украинские (forced, full), английские, эстонские, латвийские, литовские, французские, немецкие, испанские, китайскиеПродолжительность: 01:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272D5C172C1536B7D175BE1861878B836211F3E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490796   (130190) от 02.05.2012
-
-Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Kid in Town
-02. Wasted Time
-03. Peaceful Easy Feeling
-04. I Can't Tell You Why(   Читать дальше...   )Жанр: Rock, country rock, soft rock, folk rockРежиссер: Carol DoddsАктеры: Glenn Frey, Joe Walsh, Timothy B. Schmit, Don HenleyПеревод: ОтсутствуетПродолжительность: 02:44:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 

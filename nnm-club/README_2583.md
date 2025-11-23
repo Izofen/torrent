@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67906.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CFC19ECCCA606D0E16D1FD953D510AED08ABF3B3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67907.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A0058C355A190E45F163ED9D1A3090340E6F5048
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67908.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:62BB97F76E239544E749E39AA3FA7FEB49503D14
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67909.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Material Pods: батарея AirPods v6.65 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67910.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2C67EBF7229055637C0D5E3DD12B463560CBC005
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67911.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TikTok Private Plus v39.5.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67912.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F409A538E2A3DCA0C396C4BD3C2A91724CCB5ED9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67913.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:27F736B2CEC134AACC05ED19E5E91FAFFA148608
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67914.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Triangle Square - Compilation (2025) [MP3|320 Kbps] <Electronic, Deep House Remi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67915.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:AB6E6043E6ED601A0F0DE23E37AB4345114115EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67916.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:784CD3D4B5C817EC09616BD94CECAB246C5652B3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67917.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:2F5DAB5EA2DBA407D4900232DD8F1A70C8FB5492
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67918.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F212872E93C3790F8E7B3140FC0EBBB81273B623
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67919.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67920.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C138BD3B2BA1229987584BA63B42E10D0069EB9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67921.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:219FCB3C998B4BDA6FBEFEF5945D8ADC026C183F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67922.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:219FCB3C998B4BDA6FBEFEF5945D8ADC026C183F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67923.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9480A75DE36FA8E80F977438A6308B05A0E6AB5B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67924.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:34023AB454BC87E796C05A596FAE189C08A6D441
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67925.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:43C09B03145221DCCADC83791FEDA3DCD281BD4A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67926.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:462DC1F71438285D5ED12C904874D8FA033CFD23
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67927.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:43CAB12597CA533E81A728D94F6935EBFC6F8957
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67928.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:02237A543B9EF6BAA5398BE26E3D403EF91AA245
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67929.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D30B6FB68D74B335C26BD550FA061278C4E0CF45
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67930.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67931.jpg" />
 </div>
 
 

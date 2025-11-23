@@ -6,7 +6,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Kobezzza, Андрей Кобец | IndexedDB в действии (2025) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10703.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11110.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11146.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11161.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11424.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11439.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11597.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11598.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11611.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11612.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11627.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11631.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11639.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11646.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11825.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11828.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11834.jpg" />
 </div>
 
 

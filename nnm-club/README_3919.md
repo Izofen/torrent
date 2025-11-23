@@ -1,3 +1,76 @@
+###  Публикация: 1693823   (121576) от 22.01.2024
+
+Инферно / Inferno (2016) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некий миллиардер в порыве искреннего человеколюбия решает убить половину населения планеты. В своей уютной лаборантской он выводит особый штамм смертельного вируса, способного заразить 95 процентов людей за пару суток. Будучи не в силах упустить красоту момента, он зашифровывает точные координаты пакета с адским варевом в "Инферно" - первой части "Божественной (   Читать дальше...   )Производство: США, Венгрия / Columbia Pictures, Imagine Entertainment, LStar CapitalЖанр: боевик, триллер, драма, криминал, детектив, приключенияРежиссер: Рон ХовардАктеры: Том Хэнкс, Фелисити Джонс, Омар Си, Ирфан Кхан, Сидсе Бабетт Кнудсен, Бен Фостер, Ана Улару, Ида Дарвиш, Паоло Антонио Симиони, Алессандро ГримальдиПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (full, forced)Продолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2793A931788DF0F54548DE8DDA4D78C2C84BD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823207   (121577) от 10.10.2025
+
+НХЛ 2025-2026. Нью-Йорк Айлендерс - Питтсбург Пингвинз (09.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121577.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 октября 2025, пятница 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 016 зрителей (96% при вместимости 18 673)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Дэн Келли (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE31C502DA9F3BF7850BCE47ECC6D85C670B196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693749   (121578) от 22.01.2024
+
+Стальная хватка / The Iron Claw (2023) CamRip [H.264] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их жизнь — изнурительные тренировки перед грядущим сражением. Каждый раз, выходя на арену, они рискуют остаться здесь навсегда. Толпа приветствует могучих юношей, готовых развлекать их ради мимолетной славы. Но они — не гладиаторы в Древнем Риме. А дети некогда знаменитого бойца, который теперь полностью сконцентрирован на карьере своих четырёх сыновей. Рано или (   Читать дальше...   )Производство: США, Великобритания | A24, Access Entertainment, BBC FilmЖанр: биография, спорт, драмаРежиссер: Шон ДуркинАктеры: Зак Эфрон, Джереми Аллен Уайт, Харрис Дикинсон, Мора Тирни, Стэнли Саймонс, Лили Джеймс, Холт Маккэллани, Челси Эдмундсон, Грейди Уилсон, Валентайн НьюкомерПеревод: ДублированныйЯзык озвучки: Русский, украинскийСубтитры: отсутствуютПродолжительность: 02:04:53Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823206   (121579) от 10.10.2025
 
 Повар небесной гостиницы [ТВ-2] | Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 [2025, TV, 1 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +79,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Process Monitor 3.96 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121580.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121581.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ uTorrent Pro 3.6.0 Build 47006 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121582.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121583.jpg" />
 </div>
 
 
@@ -132,7 +205,7 @@ magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121584.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Process Explorer 17.05 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121585.jpg" />
 </div>
 
 
@@ -183,7 +256,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121586.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ magnet:?xt=urn:btih:88A64A20745E4107C8FCA95D688B793A8E886099
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121587.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121588.jpg" />
 </div>
 
 
@@ -255,7 +328,7 @@ magnet:?xt=urn:btih:CAFB6A5D5474C128EAE0B57C2BA2ED7D665D01BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121589.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ magnet:?xt=urn:btih:F6F32DE5D82DADBC89026F84264AE3AA7E53992F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121590.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ magnet:?xt=urn:btih:FB1D53ECCE975C5A08150A528C19E6C0A23595ED
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121591.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ SIV (System Information Viewer) 5.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121592.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ Bayside - The Walking Wounded (2007) Gold Edition [FLAC|Lossless]<Rock / Punk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121593.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ HDCleaner 2.063 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121594.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ magnet:?xt=urn:btih:1D55035FB64C75D16248039991F65D3DED8A1FB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121595.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:1959775672F752552FF4B71ACD2F1DBA81E5A894
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121596.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ magnet:?xt=urn:btih:AEA36F0A6B6E4B843F2903575D489A412173C768
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121597.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ Sketch 99.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121598.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ Download Master 7.1.1.1727 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121599.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ Shazam 14.9.0-240119 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121600.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:FA8383A51C9D6ABAF2CC718966CDF79C7261B9E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121601.jpg" />
 </div>
 
 
@@ -562,78 +635,6 @@ magnet:?xt=urn:btih:FA8383A51C9D6ABAF2CC718966CDF79C7261B9E7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:980BECFAFBEA8EF9AAA4F7C3D13F3A672A4B3EF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693810   (121602) от 22.01.2024
-
-CCleaner Pro: ПО для очистки 24.01.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121602.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 15.01.2024Разработчик: PiriformПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57AEA32E7A1AC0850AFF49C5DC634787C331BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693876   (121603) от 22.01.2024
-
-Серж Винтеркей | Антидемон (Книга 10) (2024) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокланы Эйсона попадают в плен, и он не готов это так оставить. Он не знает, сколько сил придется потратить, чтобы их освободить, но не остановится, пока не добьется своего. Тем временем события на фронте с Сисерией приобретают новый размах после того, как король проводит реформу в армии, выгодную для Эйсона. Все, что от него требуется – показать, на что он способен (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 07:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78401FD2CE8D0E02C640812EE5FB293BCB10ED4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693848   (121604) от 22.01.2024
-
-Дина Беленко | Думай как художник (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь генерировать идеи для фотографий с историей: 10 видеоуроков с упражнениями, домашнее задание, обратная связь. Я разработала курс, ориентированный на тех, кто хочет снимать осмысленные, уникальные фотографии, которые благодаря своей уникальности стоят в 2-3 раза больше средней цены по рынку. Вам не придется слушать длинные лекции и гадать, как применить (   Читать дальше...   )Жанр: ФотографияЯзык озвучки: РусскийПродолжительность: 01:38:35Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34628DEC533CC9F265F96A50133600C6B0935D70
 ```
 
 

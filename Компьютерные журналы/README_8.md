@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164320.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:94AE0905A452096A91691DD2D06D9E36FA824922
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9299B252A4853B4E51B5DBD317C65A253E9A3E5F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168767.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6A96AE242D81DA446E18496A9530BD2929D6E944
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168790.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3F32A68AF7499E37B06A181EB7B3DF8509B6724A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168831.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6282F826514373F848A4470806F0FAABF5AF27DE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169432.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:FFF0C1AB0105A32BD408759855C0B82F6B419E40
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169807.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E30F959EB4E0486729542A9954254B9F0529B1ED
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170358.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E2DE60E256D3501929433216F337EFC9E25BDA44
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170649.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3337A2A522575AE1CC332086E942BBA40901D3D6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170671.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:ED097F6378F79B6F4B465ACBBBBD635D07A2FB4A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170705.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E5E75611C41B6F195734DB6725BFBD294773EAD9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170707.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F8A7E8CAE0433122BD0AE3A47313F370DDDC2A54
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170734.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6FF084947F1D85423B3CB5FBF9B4B2C878D502B5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170737.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:DC4A4F3AA74A364DF09BE8D18A001E9A4272AFDE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172249.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:BF3DDFE2E67F454D3327A4503829A587A7C29C6E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172272.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:3C89903026D2FEDBE5F9E70C3A3FFD778C99232D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172280.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:75AE47DBDCDD57536536FF1467AD141774A9F1DA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173743.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173743.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:151F47317889F4E34A0262A6062174E1316169A7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173938.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:2368AD404C8B755C12B186D0E0BB3606CED1FFD3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178833.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178833.jpg" />
 </div>
 
 
@@ -478,6 +478,31 @@ magnet:?xt=urn:btih:071E24582EAF20BC18F0431B3866B587125581DA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426669   (179873) от 02.12.2020
+
+Подшивка | Системный администратор №1-12 (194-205) (2019) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179873.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
+Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D0BBAC4181571387BC9023EF236AB4AD4AD42B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593409   (181065) от 26.11.2022
 
 Журнал | The MagPi №124 (2022) [PDF][En]
@@ -486,7 +511,7 @@ magnet:?xt=urn:btih:071E24582EAF20BC18F0431B3866B587125581DA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181065.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181065.jpg" />
 </div>
 
 
@@ -510,7 +535,7 @@ magnet:?xt=urn:btih:9B155D942541EA1161D8C9CC82E80EAC5BDBE5E5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186216.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186216.jpg" />
 </div>
 
 
@@ -534,7 +559,7 @@ magnet:?xt=urn:btih:CA7F032E47094E6764E91412D9278FE0D88A8320
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186229.jpg" />
 </div>
 
 
@@ -558,7 +583,7 @@ magnet:?xt=urn:btih:B4C72A83AF57A073AE46BBBBC75893B195C1AD5F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186245.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186245.jpg" />
 </div>
 
 
@@ -582,7 +607,7 @@ magnet:?xt=urn:btih:C07794776A1666DC87152C2AD62907D15B22F59D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186252.jpg" />
 </div>
 
 
@@ -593,30 +618,6 @@ magnet:?xt=urn:btih:C07794776A1666DC87152C2AD62907D15B22F59D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2BA034EDA9C447956D61DADED29BB6F24C7ED12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661132   (188786) от 14.09.2023
-
-Журнал | UPgrade №7 (881) (сентябрь 2023) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188786.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналИздательство: ВенетоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC41F12D17B5EB6850FD66B4598F0306EC9A1D
 ```
 
 

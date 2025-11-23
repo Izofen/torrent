@@ -1,3 +1,102 @@
+###  Публикация: 1431046   (169084) от 12.12.2020
+
+Alarm Clock Pro 13 v13.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
+
+Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEBFDBD35B08F7128D1EBA0A7F9FB7018595F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515545   (169085) от 07.12.2021
+
+VeraCrypt 1.25.4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169085.jpg" />
+</div>
+
+
+###  Подробнее
+
+VeraCrypt - бесплатный инструмент для шифрования «на лету», форк закрытого проекта TrueCrypt с открытым исходным кодом. VeraCrypt примечателен заменой используемого в TrueCrypt алгоритма RIPEMD-160 на SHA-512 и SHA-256, увеличением числа итераций хэширования, упрощением процесса сборки для Linux и OS X, устранением проблем, выявленных в процессе аудита исходных текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2D9A57BEA6388137847F970E2DF245D70B6090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344922   (169086) от 12.12.2019
+
+Сэнди Холл | Немножко по-другому (2019) [EPUB]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лия и Гейб ходят на один курс писательского мастерства. Они узнают одинаковые отсылки к поп-культуре, заказывают одну и ту же китайскую еду и зависают в одних и тех же местах. Но, как это часто бывает, Лия слишком неприступна, а Гейб слишком застенчив, чтобы у них что-то могло получиться.
+Для всех вокруг очевидно, что эти ребята созданы друг для друга. Друзья, однокурсники (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB6A377D339F5F9D32F6ED286832CE7F7216E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431230   (169088) от 12.12.2020
+
+SyncBird Pro 3.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169088.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: MiniCreoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBDD0E7896FA5FB47274F73FE668C2B8DD1C59C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515628   (169091) от 07.12.2021
 
 Telegram Desktop 3.3.0 + Portable [Multi/Ru]
@@ -6,7 +105,7 @@ Telegram Desktop 3.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169091.jpg" />
 </div>
 
 
@@ -32,7 +131,7 @@ Debut Professional 6.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169094.jpg" />
 </div>
 
 
@@ -56,7 +155,7 @@ Windows 10 Manager 3.5.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169097.jpg" />
 </div>
 
 
@@ -80,7 +179,7 @@ Hookshot 1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169098.jpg" />
 </div>
 
 
@@ -104,7 +203,7 @@ Teorex Inpaint 10.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169108.jpg" />
 </div>
 
 
@@ -128,7 +227,7 @@ DxO ViewPoint 4 v.4.1.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169109.jpg" />
 </div>
 
 
@@ -153,7 +252,7 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169110.jpg" />
 </div>
 
 
@@ -177,7 +276,7 @@ Volume2 1.1.7.441 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169111.jpg" />
 </div>
 
 
@@ -201,7 +300,7 @@ Grids for Instagram 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169123.jpg" />
 </div>
 
 
@@ -225,7 +324,7 @@ WinMerge 2.16.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169125.jpg" />
 </div>
 
 
@@ -250,7 +349,7 @@ magnet:?xt=urn:btih:48100A6AF14A1E3EBE01B3F99F944149ACCA03EE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169129.jpg" />
 </div>
 
 
@@ -274,7 +373,7 @@ iPulse 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169135.jpg" />
 </div>
 
 
@@ -298,7 +397,7 @@ magnet:?xt=urn:btih:8ABE76AF98942348C6CC00685BE23263EC84C00C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169140.jpg" />
 </div>
 
 
@@ -322,7 +421,7 @@ FanControl V173 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169147.jpg" />
 </div>
 
 
@@ -346,7 +445,7 @@ uTorrent 3.5.5 Build 45852 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169148.jpg" />
 </div>
 
 
@@ -370,7 +469,7 @@ FoldersSynchronizer 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169161.jpg" />
 </div>
 
 
@@ -395,7 +494,7 @@ PictureThis - Plant Identification v3.68 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169162.jpg" />
 </div>
 
 
@@ -419,7 +518,7 @@ CCleaner 5.75.8238 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169167.jpg" />
 </div>
 
 
@@ -443,7 +542,7 @@ Skype 8.79.0.95 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169171.jpg" />
 </div>
 
 
@@ -467,7 +566,7 @@ Skype 8.79.0.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169185.jpg" />
 </div>
 
 
@@ -491,7 +590,7 @@ PopClip 2022.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169187.jpg" />
 </div>
 
 
@@ -516,7 +615,7 @@ magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169188.jpg" />
 </div>
 
 
@@ -527,105 +626,6 @@ magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E66F49E2E207D49C74A4CDFE4E9A93F4C483E2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596793   (169192) от 11.12.2022
-
-Rectangle Pro 2.7.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5546A9B816A26C62702C3D71C671AC2D3A00AA8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344795   (169197) от 12.12.2019
-
-SnapMotion 4.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169197.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapMotion - приложение которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B17F68BD55463A14F9C2A1198F1ACA51F1B623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515576   (169198) от 07.12.2021
-
-Overloud TH-U Premium 1.4.6 STANDALONE, VST, VST3, AAX (x64) + Library RePack by VR [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169198.jpg" />
-</div>
-
-
-###  Подробнее
-
-TH-U - это самая большая в мире коллекция в едином программном обеспечении, включающая более 239 моделей усилителей, кабинетов, эффектов и микрофонов, включая официально авторизованные модели известных производителей. Кульминация революционной технологии DSP позволяет пользователям менять местами лампы предусилителя и лампы усилителя мощности и даже изменять вариацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4B21BBEC9AE5B91519D95BECB06132658B69B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515420   (169204) от 07.12.2021
-
-CyberLink PowerDirector Ultimate 20.1.2405.0 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169204.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C3A6E9DDD26D4392DC077E9C3D411731E55834
 ```
 
 

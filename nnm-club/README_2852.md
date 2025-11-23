@@ -1,3 +1,75 @@
+###  Публикация: 470234   (83082) от 19.03.2012
+
+Послание / The Message (1976) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военный, Драма, ВестернРежиссер: Мустафа Аккад / Moustapha AkkadАктеры: Энтони Куинн - ХАМЗА, Ирен Папас - ХИНТ, Майкл Ансара - АБУ СУФЬЯН, Джонни Секка - БИЛЯЛ, Майкл Форест - ХАЛИД, Дэмиен Томас - ЗАЙДПеревод: Одноголосый закадровыйПродолжительность: 2:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A58E9CAE14F853E06F95414B82805A899EA4B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469699   (83083) от 19.03.2012
+
+А.Бузуев, А.Мерцалов | Школа бильярда / Эффективная методика обучения (2008) DVDRip
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уроки игры на русском бильярде от Аслана Бузуева, Антона МерцаловаЖанр: СпортПродолжительность: 2 х 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABA0521259C37A2F3E3DE9C8B86DE0E8864AD01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470175   (83093) от 19.03.2012
+
+Картинки - Самураи.Гравюры Куниёси Утагава [JPEG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 2041*2710...2570*3880Формат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F5004EE113837348352894293274AFC76BA466
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470563   (83094) от 19.03.2012
 
 Рыбацкая правда. Ловля щуки на поверхностные приманки (2009) TVRip
@@ -6,7 +78,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83094.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83095.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83096.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83097.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83098.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ magnet:?xt=urn:btih:44C5BB47C5EBCCFFCEDE1C641364BF55796F42AF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83099.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:99CE1644AAB0DED44D416A0E5BACC4670C6B0A4D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83100.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:99CE1644AAB0DED44D416A0E5BACC4670C6B0A4D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83102.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ magnet:?xt=urn:btih:DEB3E010F61987C6AAD10BA189B63CF62F4008BC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83106.jpg" />
 </div>
 
 
@@ -240,7 +312,7 @@ magnet:?xt=urn:btih:0F12E9396C4FD1AF5B383878E0FABC06FF0641EE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83107.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ magnet:?xt=urn:btih:E984BEB65666B92F1AB673EEABB973F43E8933F2
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83108.jpg" />
 </div>
 
 
@@ -290,7 +362,7 @@ magnet:?xt=urn:btih:A8A53E5168A8FCDAAAAE005ED00B12EE827F9DC7
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83109.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ magnet:?xt=urn:btih:05232813218F0A5FCC2E12D6744482BF9B0CE8D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83110.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ magnet:?xt=urn:btih:40292268754A9CB9B0B8ECFB8D2AAE7636F0A701
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83111.jpg" />
 </div>
 
 
@@ -362,7 +434,7 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83113.jpg" />
 </div>
 
 
@@ -386,7 +458,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83114.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83115.jpg" />
 </div>
 
 
@@ -435,7 +507,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83117.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ WinMate 0.9.15 [Английский, Русский, Шведский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83118.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ WinMate 0.9.15 [Английский, Русский, Шведский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83123.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ magnet:?xt=urn:btih:04E60AEA5DDD227674AF02B2F608B0DB03BDBF99
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83127.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83128.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83129.jpg" />
 </div>
 
 
@@ -569,79 +641,6 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDE722D99003F7F1400CEAADE640A96BE1847EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470269   (83130) от 19.03.2012
-
-Лучшее лето нашей жизни (1-4 серии из 4) (2012) SATRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы покорить столицу, бывшей провинциалке Маше пришлось смириться с потерей любимого. Жизнь ее побила, но Маша не сдалась. Она довольно молода и привлекательна, самостоятельно воспитывает 12-летнюю дочь, ее карьера на телевидении сложилась удачно, а в личной жизни не везет. Иногда она встречается со своим начальником, но он безнадежно женат. Однажды Маша снимает репортаж про работу пожарных, после которого в ее жизнь врывается нежданная любовь. Павел совершенно не похож на тех мужчин, с которыми она встречалась прежде. Но их чувства подвергнутся серьезным испытаниям.Жанр: МелодрамаРежиссер: Светлана Музыченко (Зонова)Актеры: Анна Здор, Владимир Фекленко, Александр Арсентьев, Ольга Волкова, Александр Ефимов, Светлана Колпакова, Сергей Фролов, Марианна Шульц, Ольга Онищенко, Александр Никольский, Алексей Барабаш, Елизавета Зарубина, Елизавета ВодолазскаяПродолжительность: ~ 00:47:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470396   (83131) от 19.03.2012
-
-Александр Мазин | Легион против империи (2011) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Римская империя. Третий век от Рождества Христова. Богатая имперская провинция Сирия. Мирная провинция. Но на ее границах уже скапливаются войска шахиншаха Ардашира, повелителя персов, свергшего парфянскую династию и рвущегося к новым битвам и к новым победам Наместник Сирии Геннадий Павел (в прошлом подполковник Геннадий Черепанов) и его друг военный легат Первого Германского легиона Алексий Виктор (когда-то его звали Алексеем Коршуновым) должны остановить персов. Их силы ограниченны, но рассчитывать (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD8D9CACC441BAD29B8F10EC8435115DD57D05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470337   (83132) от 19.03.2012
-
-Соцсети строят свой маленький Интернет: этаж Интернет-магазинов уже готов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виталий Ситницкий из «Инфоротора» представил, к чему приведет развитие социальных сетей через 15 лет. Сценарий включает в себя смерть поисковых систем и отрасли веб-разработок.Дробление приложений соцсетей на отраслевые сегменты неизбежно, глобализация своего «уютненького» Интернета внутри каждой крупной соцсети активно этому способствует. «Уютненькая» соцсеть становится Интернетом в Интернете, где границы на выход охраняются все тщательнее.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

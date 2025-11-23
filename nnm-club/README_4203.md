@@ -1,3 +1,80 @@
+###  Публикация: 294354   (128979) от 22.01.2022
+
+Николь Ленар-Виру | Умная сказка. Гадкий утенок (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развиваем мышление, память и наблюдательность! Задания на развитие логики для детей 3-5 лет. Эта сказка содержит игровые задания, которые помогут развить наблюдательность ребенка, его умение запоминать, мыслить и анализировать. Задания расположены внизу каждой страницы, отдельно от текста сказки, поэтому они не будут мешать читать и перечитывать сказку. Ребенок воспримет (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9ED9CD7B46BBB31DBE345A5780C70F33CF2F4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525814   (128980) от 22.01.2022
+
+Александра Кибзий | Пилатес на каждый день (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никаких сложностей и огромного числа тренировок. Регулярные занятия, которые помогут вам понять свое тело, получать результаты и гарантировать себе активную и энергичную жизнь.
+Пилатес на каждый день подойдет для всех: новичков и профи любого возраста. И это реально выдох для многих, я уверена
+
+Что вас ждет:(   Читать дальше...   )Жанр: ВидеокурсПродолжительность: 21:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525855   (128981) от 22.01.2022
+
+Дмитрий Шумаков | Технология монтажа водяного теплого пола (2015) WEB-DL [Пакет VIP]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертое издание единственного в рунете наглядного и практического видеокурса по монтажу систем водяного теплого пола.
+Отснятый полностью с нуля видеокурс шаг за шагом расскажет Вам, как своими руками смонтировать и запустить одну из самых экономичных и самую комфортную систему отопления.
+Когда Вы всерьез начнете применять информацию из курса «Технология монтажа (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 13:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666801024AF154D91290AF1F8879D96B3D6CC3F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824137   (128982) от 14.10.2025
 
 VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
@@ -6,7 +83,7 @@ VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128982.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128983.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128984.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:9A31AD57AF7F904E10BB2DE57CE05F52D3681C68
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128985.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:CF0D1052D768378D8EC429B687C92ACBC86B5B1F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128986.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ magnet:?xt=urn:btih:78C61DB86F17E8863C2182EFC091275FFA2FEA67
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128987.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ VA - Music News For Forum vol.141 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128988.jpg" />
 </div>
 
 
@@ -185,7 +262,7 @@ magnet:?xt=urn:btih:10CF04F4E788511B7C5F6A7E0BB4EC2194F7F40B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128989.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ magnet:?xt=urn:btih:E6E9C397B1E689A8302C27A2ED988634890D9074
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128990.jpg" />
 </div>
 
 
@@ -236,7 +313,7 @@ magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128991.jpg" />
 </div>
 
 
@@ -260,7 +337,7 @@ Space Engineers / Космические инженеры (2019) [Ru/En] (1.207.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128992.jpg" />
 </div>
 
 
@@ -284,7 +361,7 @@ magnet:?xt=urn:btih:EECB8AF7406302F8743D0969698BCE24D840E51A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128993.jpg" />
 </div>
 
 
@@ -308,7 +385,7 @@ magnet:?xt=urn:btih:8B8FDC7C826E3EF8412C46636297B36BAE646953
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128994.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128995.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128997.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128998.jpg" />
 </div>
 
 
@@ -404,7 +481,7 @@ magnet:?xt=urn:btih:3E283E98E9A2577DC80D1B64E2600F211F536325
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128999.jpg" />
 </div>
 
 
@@ -428,7 +505,7 @@ magnet:?xt=urn:btih:FCC39A3A767A1C7D9C33876D9D8759F225736E53
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129000.jpg" />
 </div>
 
 
@@ -452,7 +529,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129002.jpg" />
 </div>
 
 
@@ -476,7 +553,7 @@ magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129003.jpg" />
 </div>
 
 
@@ -500,7 +577,7 @@ magnet:?xt=urn:btih:7C53A99C4B96DAAB9DDAEEF950BAA97E7104431A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129005.jpg" />
 </div>
 
 
@@ -526,7 +603,7 @@ magnet:?xt=urn:btih:5303AD377A34BE8EFB57446872BA74F0110D74DE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129006.jpg" />
 </div>
 
 
@@ -550,7 +627,7 @@ magnet:?xt=urn:btih:343890A33150AA5E37920FD4A151EDC12E7E7B2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129008.jpg" />
 </div>
 
 
@@ -561,83 +638,6 @@ magnet:?xt=urn:btih:343890A33150AA5E37920FD4A151EDC12E7E7B2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39DE0E28563AF4AC84693B44FD92198AAF7ECCF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519508   (129010) от 22.01.2022
-
-Шугарлендский экспресс / The Sugarland Express (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лу Джин Поплин, только что выпущенная из тюрьмы, помогает своему мужу Кловису бежать из-под стражи, чтобы забрать из приюта их сына, куда он помещен по решению властей, лишивших Лу и Кловеса родительских прав, как мелких преступников. По пути в город Шугарленд в Техасе, где находится приют, их останавливает дорожный полицейский с целью обычной проверки, но они берут (   Читать дальше...   )Производство: США, Universal Pictures, Zanuck/Brown ProductionsЖанр: драма, криминалРежиссер: Стивен СпилбергАктеры: Голди Хоун, Бен Джонсон, Майкл Сакс, Уильям Этертон, Грегори Уэлкотт, Стив Кэнэли, Луиз Лэтэм, Харрисон Занук, А.Л. Кэмп, Джесси Ли ФултонПеревод: дублированный (SDI Media), профессиональный многоголосый (Blu-ray CEE), профессиональный двухголосый (НТВ), любительский одноголосыйСубтитры: русские (надписи и полные), английские SDHПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6681D6D227AB7E15A6712395D13DC3E4B16E0A7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526014   (129011) от 22.01.2022
-
-Windows 11 Manager 1.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B2A78A80C90950E6B0DF67E5E910209010C6FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526002   (129013) от 22.01.2022
-
-Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+.cue|Q8-DTSWAV] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно хотел взяться за Криденсов... :mrgreen:
-Несомненная часть эпохи 70-х - Уби Дуби, Видели дождь, Молина - ну какой советский школьник тех лет не млел от этих волшебных звуков!
-Знал, что единственным официальным многоканальным релизом группы был сборник GOLD, от 1972 года. Нашел в Сети уже довольно давний, 13-ти летний давности)), материал от уважаемого01. Proud Mary
-02. Down On The Corner
-03. Bad Moon Rising
-04. I Heard It Through The Grape Vine(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7608CDAD3A6216436CCAAF79AF151291455CBD2D
 ```
 
 

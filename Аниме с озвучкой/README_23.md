@@ -1,3 +1,27 @@
+###  Публикация: 1624206   (200353) от 05.04.2023
+
+Агент Вексилл / Vexille: 2077 Nihon Sakoku / Vexille [2007, Movie] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200353.jpg" />
+</div>
+
+
+###  Подробнее
+
+2077 год. 10 лет назад Япония вышла из ООН и отгородилась от мира магнитным полем. Поводом для этого послужила резолюция ООН, которая запретила дальнейшее развитие робототехники и биотехнологий, угрожающих существованию человечества. Правительство США посылает в Японию спецподразделение SWORD под командованием женщины по имени Вексилл. Задание – узнать, что за 10 (   Читать дальше...   )Производство: Япония / Avex Entertainment, CCRE, OxybotЖанр: аниме, мультфильм, фантастикаРежиссер: Фумихико СориАктеры: Мэиса Куроки, Сёсукэ Танихара, Ясуко Мацуюки, Акио Оцука, Роми Пак, Такахиро Сакурай, Тосиюки Морикава, Тэцуя Какихара, Такая Курода, Такаюки СугоПеревод: Многоголосый профессиональный (Селена Интернэшнл)Язык озвучки: Русский, ЯпонскийСубтитры: РусскиеПродолжительность: 01:45:25Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D9CCE16106B4CF8F905231DC94CFD0BD65A32C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609425   (200372) от 02.04.2023
 
 Песнь тетивы [ТВ-2] | Клуб стрельбы из лука | Tsurune: Tsunagari no Issha | Tsurune: The Linking Shot [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
@@ -6,7 +30,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200372.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200372.jpg" />
 </div>
 
 
@@ -31,7 +55,7 @@ magnet:?xt=urn:btih:4C7B1A94D9C811757FDC1325D47F68C485E6645A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200452.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ magnet:?xt=urn:btih:15C6ABF320B727696449D5CE22E7AD861C42521A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200465.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200465.jpg" />
 </div>
 
 
@@ -80,7 +104,7 @@ magnet:?xt=urn:btih:230DDDD6BF4CA40B481EC09B83CA81451765600A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200476.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200476.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ magnet:?xt=urn:btih:F5A76278E9D862C1359F07D6F0D3C6D4DD8F56CA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200648.jpg" />
 </div>
 
 
@@ -133,7 +157,7 @@ magnet:?xt=urn:btih:345A115A044FAE271D98C644985A1A23CFBBE223
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200669.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200669.jpg" />
 </div>
 
 
@@ -158,7 +182,7 @@ magnet:?xt=urn:btih:2FA0A63F81D7E9B92A1BD23A317B9B1155A5AAF5
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200753.jpg" />
 </div>
 
 
@@ -182,7 +206,7 @@ magnet:?xt=urn:btih:13322AAE866198F8C417D94B1DEC361375C82AE7
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201004.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_201004.jpg" />
 </div>
 
 
@@ -208,7 +232,7 @@ One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201236.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201236.jpg" />
 </div>
 
 
@@ -232,7 +256,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201510.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201510.jpg" />
 </div>
 
 
@@ -256,7 +280,7 @@ Futoku no Guild | Immoral Guild | Развращённая гильдия [2022,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201584.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201584.jpg" />
 </div>
 
 
@@ -280,7 +304,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202147.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202147.jpg" />
 </div>
 
 
@@ -304,7 +328,7 @@ magnet:?xt=urn:btih:EA8E6D7A71C5097E8E782D8A8B5094FB908B4685
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202527.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202527.jpg" />
 </div>
 
 
@@ -330,7 +354,7 @@ Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202633.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202633.jpg" />
 </div>
 
 
@@ -354,7 +378,7 @@ magnet:?xt=urn:btih:66EF2AAADF54230FC2667BC507516BCEA10951BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202945.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202945.jpg" />
 </div>
 
 
@@ -378,7 +402,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203385.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203385.jpg" />
 </div>
 
 
@@ -402,7 +426,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203700.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203700.jpg" />
 </div>
 
 
@@ -426,7 +450,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203703.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203703.jpg" />
 </div>
 
 
@@ -450,7 +474,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203706.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203706.jpg" />
 </div>
 
 
@@ -476,7 +500,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203707.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203707.jpg" />
 </div>
 
 
@@ -500,7 +524,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204620.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204620.jpg" />
 </div>
 
 
@@ -524,7 +548,7 @@ magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204749.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204749.jpg" />
 </div>
 
 
@@ -549,7 +573,7 @@ magnet:?xt=urn:btih:BBFB26B3784FA7AE7D63DB8F54B7800508C24F66
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205054.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205054.jpg" />
 </div>
 
 
@@ -576,7 +600,7 @@ magnet:?xt=urn:btih:799AF0B24E16A93C4418C769EA8F221C8B4A397F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205055.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205055.jpg" />
 </div>
 
 
@@ -602,7 +626,7 @@ magnet:?xt=urn:btih:7017435D09FFFA53C2914D4DE89ABE722E82CE9B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205238.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205238.jpg" />
 </div>
 
 
@@ -616,30 +640,6 @@ magnet:?xt=urn:btih:7017435D09FFFA53C2914D4DE89ABE722E82CE9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB069974142B0CEF63289D8A33D41D9497CEC0B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565894   (205276) от 22.09.2022
-
-Улыбка Арснотории | Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ашлам, город-академия магии с полным пансионом. Её ученицы, Пентаграммы, стремятся стать настоящими леди, изучая не только школьные предметы и этикет, но и магию. Арснотория, одна из таких девушек, живёт в Общежитии №5 вместе с заводилой Мэлл, молчаливой и живущей в своём темпе Альбертой-младшей, старостой по призванию Пикатрикс и всегда спокойной Абрамелин. Они (   Читать дальше...   )Производство: Япония / Студия Liden FilmsЖанр: ПриключенияРежиссер: Тацува НаоюкиПеревод: (CrunchyRoll)Язык озвучки: Русский многоголосый, закадровый (AniDub), ЯпонскийСубтитры: Русские (софтсаб); Английские (софтсаб)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81EFD2905B791A06D6BB9B071A720252F364BCC
 ```
 
 

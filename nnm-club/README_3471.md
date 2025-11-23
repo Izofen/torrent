@@ -1,3 +1,76 @@
+###  Публикация: 1721909   (109928) от 09.05.2024
+
+Парад на Красной площади в честь 79-й годовщины Победы в Великой Отечественной войне (2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109928.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 мая на Красной площади пройдет парад в честь 79-й годовщины Победы в Великой Отечественной войне.
+В смотре будут задействованы более 9 тыс. человек, 70 единиц военной техники и авиация. Также участие в параде примет авиация Воздушно-космических сил РФ. В пешей колонне пройдут полки, батальоны, роты по видам и родам войск ВС РФ. Также парадные коробки составят участники (   Читать дальше...   )Телекомпания: Россия | «НТВ»Жанр: Документальный, военный парадЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF698945F9A8CB81FE3084C05F49C1661F81B4C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721922   (109929) от 09.05.2024
+
+Шепот во тьме / Un sussurro nel buio / Whisper in the Dark (1976) BDRemux [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные вещи творятся на красивой венецианской вилле. Молодая мать с ужасом узнает, что ее маленький сын обрел нового друга — брата, которого она потеряла при родах. В смятении она обращается к известному психоаналитику, который вскоре погибает при невыясненных обстоятельствах. Виновен ли воображаемый мальчик в этой смерти?Производство: Италия / CinemondialЖанр: ужасы, драма, детективРежиссер: Марчелло АлипрандиАктеры: Джон Филлип Ло, Натали Делон, Ольга Бизера, Алессандро Поджи, Джозеф Коттен, Лукреция Лав, Zora Velcova, Сузанна Меландри, Simona Patitucci, Адриана РуссоПеревод: авторский (Антон Алексеев)Язык озвучки: русский, итальянский, английскийСубтитры: английские, французские (pgs)Продолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98BE4FBA00C8FA040494D61B3039132FBCE5EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721685   (109930) от 09.05.2024
+
+Путешествие к центру Земли / Journey to the Center of the Earth (1959) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109930.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому роману Жюля Верна... 1880 год. Эдинбург, Англия. Профессор геологии Линденбрук обнаруживает в образцах лавы из окрестностей вулкана на севере Исландии остатки организмов, исчезнувших с лица Земли тысячи лет назад. Вывод - под земной корой могла сохраниться доисторическая жизнь. Линденбрук готовит экспедицию к центру Земли, которая должна стартовать (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Cooga Mooga, Joseph M. Schenck EnterprisesЖанр: фантастика, приключенияРежиссер: Генри ЛевинАктеры: Пэт Бун, Джеймс Мэйсон, Дайан Бейкер, Арлин Даль, Питер Ронсон, Тэйер Дэвид, Боб Адлер, Алан Напье, Мэри Брэйди, Алан Кайу, Джон Эппер, Эдит Эвансон, Алекс Финлейсон, Молли Глиссинг, Фредерик ХоллидэйПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935C739B8F8F10653EEBD0F9A87D1496AAADC481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722010   (109931) от 09.05.2024
 
 Эбигейл / Abigail (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109931.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109932.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Topaz Photo AI 3.0.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109933.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:4C85CFAAE572532BC000E9D20B67E00D15A2ECC5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109934.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:618C85076CB7E3E4319F9D450AF760FEEE23CF85
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109935.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ WinTools.net Premium 24.5.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109936.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:10594E1D25513EDEBD250C974D6048E86DF3F797
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109937.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Alessandro Brunetta - Shakedown! (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109938.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Blaze of Perdition - Conscious Darkness (2017) [FLAC|Lossless|tracks + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109939.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ Shrine of Insanabilis - Vast Vortex Litanies (2019) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109940.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ David "Fathead" Newman & The Tilden Webb Trio - Cellar Groove (2004) 2013, Cella
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109941.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109942.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109943.jpg" />
 </div>
 
 
@@ -336,7 +409,7 @@ Joe Metzka - Blues for Daniel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109944.jpg" />
 </div>
 
 
@@ -363,7 +436,7 @@ Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109945.jpg" />
 </div>
 
 
@@ -390,7 +463,7 @@ WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109946.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109947.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109948.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109949.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109950.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109951.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109952.jpg" />
 </div>
 
 
@@ -579,7 +652,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109953.jpg" />
 </div>
 
 
@@ -593,87 +666,6 @@ Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309AC8B03CB24FC9D3EC46324D09101AE49ABA78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721739   (109954) от 08.05.2024
-
-AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstition (4:38)
-02. Mr. Cool (8:43)
-03. Jupiter (8:14)
-04. New York (Darkness) (7:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721740   (109955) от 08.05.2024
-
-Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Small Man (2:53)
-02. Cognac Or Wine (2:38)
-03. A Warning Measure (2:31)
-04. A Petty Lie (2:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A56BB2D527C539ABD124A1676A4CAC32BD98A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721643   (109956) от 08.05.2024
-
-Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Song [3:16]
-02. Hand in Hand [4:42]
-03. Lover Man [4:52]
-04. La chanson d'Helene [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6BA49C12EDF967E29A0CA2D7EB979E15979D0E
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1727039   (108576) от 01.06.2024
+
+VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
+02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
+03. Black Shivers - Stay Alive (Original Mix) [02:50]
+04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727170   (108577) от 01.06.2024
+
+Moderna - The Future Is Among Us (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIE4U [00:05:05]
+02. The Future Is Among Us [00:04:24]
+03. Filter Me [00:04:55]
+04. Pappenheimer [00:04:14](   Читать дальше...   )Жанр: Electro, EBMПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FBB732122A80B4533A1A69BBBDFDEE2901E512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726312   (108578) от 01.06.2024
+
+Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + .cue] <Wellness / Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chin Begin - Essania
+ 02. Crystal And Metal Part 1
+ 03. Crystal And Metal Part 2
+ 04. Crystal And Metal Part 3(   Читать дальше...   )Жанр: Wellness / MeditationПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3560FC10E55D2933E2C6D20397F76B22ADE8D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727162   (108579) от 01.06.2024
 
 Snakeskin - Tunes For My Santimea (2016) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Gothic Metal>
@@ -6,7 +87,7 @@ Snakeskin - Tunes For My Santimea (2016) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108579.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108580.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108581.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - The Deep Collective: Melodic Haze (2024) [FLAC|Lossless|WEB-DL|tracks] <Org
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108582.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Telegram Desktop 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108583.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108584.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ magnet:?xt=urn:btih:DE171AE1CD91693F409475C7E15EF6023FD66CB1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108585.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108586.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108587.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ VA - Trance Fusion Vol. 03 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108588.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108589.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108590.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108591.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ Battle Symphony - 1 Album, 4 Singles (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108592.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ magnet:?xt=urn:btih:2F9A173F97739BFD405A18C6DFDC47638AA06615
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108593.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC 2.0|96/24|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108594.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ XYplorer 26.00.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108595.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ magnet:?xt=urn:btih:4CD956B6FF7CF4F7791804EA8427B9DA6BA55DD2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108596.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ magnet:?xt=urn:btih:9E7439A17F1B75F23CF5B33066272E5CCE15A170
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108597.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ Ed Swick | English Problem Solver (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108598.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ Evil - Arktogäa (2006) [MP3|~245 Kbps (V0)] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108599.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ magnet:?xt=urn:btih:12E2FA1390DF41632BC3C8C97651FA587567F7A3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108600.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ magnet:?xt=urn:btih:0386A98198C69B50ECB745B6428E29F3BD4F1E51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108601.jpg" />
 </div>
 
 
@@ -589,79 +670,6 @@ magnet:?xt=urn:btih:0386A98198C69B50ECB745B6428E29F3BD4F1E51
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90421732BE42AEABD02BA3005B66DE37A6F66C9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727206   (108602) от 01.06.2024
-
-Cymatics - Illusion 1.0.0 VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpg" />
-</div>
-
-
-###  Подробнее
-
-ILLUSION - это уникальный lдилей плагин, который был вдохновлен винтажными аппаратными педальными дилеями. Если быть более точным, этот плагин представляет собой детальную эмуляцию bucket brigade (BBD).
-Возможности задержки/сдвига высоты тона ILLUSION могут трансформировать любой звук тысячами различных способов. Используете ли вы его для мелодии, сингла, вокала, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA4DD25801329697AF39B29DEF78A8EA311FB8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727112   (108603) от 01.06.2024
-
-FolderSizes 9.6.486 Enterprise [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108603.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A09891E6E02496C4CD948C20482B5E79C0DDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727144   (108604) от 01.06.2024
-
-Журнал | Зарубежное военное обозрение №6 (июнь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108604.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Зарубежное военное обозрение» - ежемесячный информационно-аналитический иллюстрированный журнал Министерства обороны СССР и Российской Федерации. «Зарубежное военное обозрение» на различных этапах развития Вооруженных Сил было ведущим открытым военным изданием, освещающим широкий круг вопросов: строительство иностранных армий, военная политика, стратегия и тактика, (   Читать дальше...   )Жанр: Информационно-аналитическое изданиеИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1133E4CE8F1A8D3208224846EFC7259F599AB96
 ```
 
 

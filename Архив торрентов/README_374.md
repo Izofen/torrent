@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87940.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87941.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87944.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sensorica - The Realm Of Fancy (2007) [FLAC|Lossless]<Downtempo, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87946.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ XYplorer 10.90.0302 Beta Portable [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87948.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 10.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87949.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87950.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87953.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87962.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:151F4873C61A1EBE0B35476A1BA4B15FD1272850
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87974.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:2F2671FC8A0BADEF08A8FCB577CC04D35FE87B68
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87976.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Dolphin Rainbow - Это красивая радуга в голубом неб�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87986.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:490D535DBDDC7A4AF11CE58F2C8E172431FB7554
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87993.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Captain Morgane and the Golden Turtle [Multi3/-] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87995.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A81A598C464CB49282E9F1B5F5EAFEF604ACEDC1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88000.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A81A598C464CB49282E9F1B5F5EAFEF604ACEDC1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88009.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:327A5CE68232340AEEE366CE5C23AE44989438FE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88010.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bahh Tee - Ты Меня Не Стоишь (2011) [MP3|320 кб/с]<Rap, Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88016.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lichtmond (2010) BDRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88017.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88026.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88027.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Conquest: Frontier Wars (RePack) [Ru] 2001 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88031.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Conquest: Frontier Wars — космическая стратегия реаль
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88033.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B7C8F9F456057208E1F86F56BE85FC48B6B6C1E7
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88035.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:3A6437341F2F25113504DFC9E9140FAFF57E86D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88037.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:7A50AEFCB2ED18696BAC5C6EE8E64BB08AAF3202
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88046.jpg" />
 </div>
 
 

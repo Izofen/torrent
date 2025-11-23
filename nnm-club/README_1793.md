@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46973.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5BE494F92105421169B31645A03000DFEC6CC0E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46974.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C383D0AFE75592B7E22A27AB1CE07B4E5C3D7783
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46975.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Unified Remote v3.24.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46977.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:E95EFBD3B5D1555E2E5E752CB1ADF92FC95325FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46979.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:81B3A08E53C64638D1C2BF81C18A3288CA9C4314
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46980.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46981.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:D85E7B59BC657BB576B7E7EA9540D5857772AF84
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46982.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (20240805/dlc) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46983.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Jimmy Page & Robert Plant - No Quarter [Unledded] DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46984.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46985.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:E2D4F2CF6927F2EB207C74F48DBA5AA19D8DD0CB
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Google полностью отключил монетизацию для рос�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46987.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Google полностью отключил монетизацию для рос�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46988.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:A2C34D8D1EE7AFBEB880A89340F97B868A6BE86A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46989.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Artifact Seeker (2024) [Ru/Multi] (1.2.8/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46990.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46991.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46992.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46993.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Bzzzt (2023) [Multi] (1.325f-240802) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46994.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:986F5C4A16A16F5E32B4EACB5BC5DC524D8A04FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46995.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:A57A6B57EF9C4C6A356EBD06DC226D5DA1439BB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46997.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D842037A93EADDB458C4967740901A753A697CAB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46998.jpg" />
 </div>
 
 

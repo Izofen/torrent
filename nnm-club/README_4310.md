@@ -1,3 +1,80 @@
+###  Публикация: 1681477   (132641) от 03.12.2023
+
+Красавица: Унеси меня на Луну [ТВ-2] | Tonikaku Kawaii 2 | Tonikawa: Over the Moon for You 2 [2023, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132641.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о милой паре молодожёнов продолжается! Однажды Наса Юзаки чуть не попал под грузовик, но его спасла загадочная девушка Цукаса. Он ей сразу же признался в чувствах, но она согласилась встречаться лишь в том случае, если они поженятся... Через несколько лет Цукаса и правда объявилась, и они начали жить вместе как самая настоящая семейная пара. С тех пор они (   Читать дальше...   )Производство: Япония / Студия Seven Arcs, Tengu KoubouЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Русский двухголосый, многоголосый закадровый; Японский
+- Cleo-chan, Nuts (AniLibria.TV)
+- GimerHade, Muroi, Vel, Rurirururi (ShikokuStudio)
+- Myaurik, WoZWaLD, Abe, Akemitsuki, Veda (AniBaza)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV); (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57B4EAF4F6908A9C1901B86F6B1987BE1A9F92C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681498   (132642) от 03.12.2023
+
+LibreWolf 120.0.1-1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox является одним из лучших браузеров. Тем не менее некоторые пользователи с недоверием относятся ко встроенным в продукт Mozilla службам телеметрии.
+Многие пользователи предпочитают, чтобы браузер по умолчанию был настроен на максимальную конфиденциальность и безопасность, хотя Firefox все же предлагает мощные возможности для настройки.
+LibreWolf как раз решает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86272574A7137B5576A23BE328332709FBE3FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595300   (132643) от 28.12.2012
+
+В.Н. Пак | Сборник шахматных задач, этюдов, головоломок [2004] [DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическую игру часто называют прозой шахмат, а композицию — поэзией. Многие великие шахматисты с удовольствием решали и сами составляли задачи и этюды. Эта книга введет вас в удивительный и прекрасный мир шахматной поэзии, познакомит с искусством шахматной композиции — поистине неисчерпаемой областью древней и мудром игры.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E6CEA367D11D5F10577F78BCD461720437E37E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681649   (132644) от 03.12.2023
 
 Cemetery Of Scream - Oceans (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal>
@@ -6,7 +83,7 @@ Cemetery Of Scream - Oceans (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132644.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:FE7701B6DEE0450E0D1A2AD671DE66137C63785F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132645.jpg" />
 </div>
 
 
@@ -59,7 +136,7 @@ magnet:?xt=urn:btih:4C02FD0B6FA1C05B2481E8CED986F8F0B1FAC25A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132646.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132647.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ magnet:?xt=urn:btih:BF0ED8DC15C99D530F39DF3E95DECE5366D3E119
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132649.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:CFBD8C2F26EDE583C4D180B58DC5930FF7B2EC78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132650.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ Toronto Is Broken - TorontoIsBroken (2023) [FLAC|Lossless|WEB-DL|tracks] <drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132651.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ magnet:?xt=urn:btih:01366CC94FBB0F598905ECDAA816137EA8C4AC0F
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132652.jpg" />
 </div>
 
 
@@ -210,7 +287,7 @@ Calculate Linux 13.0 [x86-64] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132653.jpg" />
 </div>
 
 
@@ -236,7 +313,7 @@ VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132654.jpg" />
 </div>
 
 
@@ -265,7 +342,7 @@ magnet:?xt=urn:btih:44FE0FB98A8FA3F0F39E1AEC29C5D756BA3C1FF6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132655.jpg" />
 </div>
 
 
@@ -289,7 +366,7 @@ SRWare Iron 118.0.6000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132658.jpg" />
 </div>
 
 
@@ -313,7 +390,7 @@ magnet:?xt=urn:btih:39D13A9040D3675C2840DA305E1DE446E078C91D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132660.jpg" />
 </div>
 
 
@@ -337,7 +414,7 @@ magnet:?xt=urn:btih:6DBE5A806488512AA95CF4B63F3FB6E4E78AC339
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132661.jpg" />
 </div>
 
 
@@ -361,7 +438,7 @@ RTG. Взгляд с высоты. Природа горного Алтая (202
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132662.jpg" />
 </div>
 
 
@@ -385,7 +462,7 @@ magnet:?xt=urn:btih:9BA56D292E9C54E203FB75113999D191A2145FEF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132663.jpg" />
 </div>
 
 
@@ -409,7 +486,7 @@ magnet:?xt=urn:btih:3B4475D27B88F273AED41463543B5523DF7C0B09
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132664.jpg" />
 </div>
 
 
@@ -436,7 +513,7 @@ PrivaZer 4.0.80 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132666.jpg" />
 </div>
 
 
@@ -460,7 +537,7 @@ Five Finger Death Punch - The Wrong Side of Heaven and The Righteous Side of Hel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132667.jpg" />
 </div>
 
 
@@ -487,7 +564,7 @@ magnet:?xt=urn:btih:F5FE70EC177C7775DB9FFEE395BD7FEA635EC3A7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132669.jpg" />
 </div>
 
 
@@ -511,7 +588,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132671.jpg" />
 </div>
 
 
@@ -535,7 +612,7 @@ magnet:?xt=urn:btih:204B0CDF5299B509F0A17D0007ABEC7ADB2C6909
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132673.jpg" />
 </div>
 
 
@@ -560,7 +637,7 @@ magnet:?xt=urn:btih:531045A259815E16C772D940FB318C2E7C7A1834
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132675.jpg" />
 </div>
 
 
@@ -572,79 +649,6 @@ magnet:?xt=urn:btih:531045A259815E16C772D940FB318C2E7C7A1834
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628CFC348F6B539E6C038FB69BA3C4A30A73FC89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681518   (132677) от 03.12.2023
-
-Корсика. Сокровища острова / Corsica. The Treasures of An Island (2018) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корсика четвёртый по величине остров в Средиземном море. Это один из 18 регионов Франции, тем не менее Корсика имеет особый статус - Территориальная общность Корсика. Более известен уютными прибрежными городами с их неповторимым обликом, густыми лесами и скалистыми вершинами, самой высокой из которых является Монте-Чинто. Почти половину острова занимает парк, где (   Читать дальше...   )Производство: EU, TENЖанр: документальный, история, путешествияРежиссер: Бернар ГуэрриниПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681461   (132679) от 03.12.2023
-
-Журнал | Photoshop User №11 (ноябрь 2023) [PDF][En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132679.jpg" />
-</div>
-
-
-###  Подробнее
-
-NAPP - торговая ассоциация и ведущий ресурс для фотографов выпускает свой журнал Photoshop User, который по праву считается одним из лучших источников знаний для изучения Adobe Photoshop и Photoshop Lightroom через тренинги, новости и образовательные материалы. Команда экспертов, состоящая в том числе из авторов статей, консультантов, тренеров и прочих известных (   Читать дальше...   )Жанр: Photoshop, LightroomЯзык: АнглийскийИздательство: Kelby Media Group (NAPP)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAB5AFD281EFF8B766908D35AE8F997513C8596
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681650   (132681) от 03.12.2023
-
-Былины русского народа (2006) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Былины – это русские народные эпические сказания о подвигах богатырей. Основой сюжета былины является какое-либо доблестное событие, или примечательный эпизод русской истории. Как и в сказке, в былине добро противопоставляется злу, и зло должно быть обязательно уничтожено. Только вот в отличие от героев сказок былинные богатыри не (   Читать дальше...   )Жанр: Русская литература, народные русские былиныИздательство: Студия «АРДИС»Продолжительность: 07:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113CB9EABE7729E1F3E8E41E021BF0006D6FCD37
 ```
 
 

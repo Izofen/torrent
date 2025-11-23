@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59177.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76D3DE6C372DFC45EB12615AE470F849B70B5558
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59178.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ tTorrent Pro  1.8.8 Paid by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59179.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59180.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:01CC63D8BD4986E5B1A18D7278F64E42BB2BE43B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59181.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59182.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0B45CD7816BB46CB3FD8D23309226B40DABBE384
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59183.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:53AC68D3DDD397FC6279B09DE64B381C76F10015
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59184.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Viber 22.5.0.1 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59185.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ FanControl V187 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59186.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Music News vol.367 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59187.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Music News vol.366 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59188.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:07FA98234E5259ABEF0AFD5392B146737B289F56
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59189.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59190.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:79A711003C6B89702E591319C68DF41E990DBC4F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59191.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ UB40 - UB45 (2024) [MP3|320 Kbps] <Reggae, Ska>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59192.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C0CA81FD3F3E9F0A54AEE19AFB230AEAFE5BD156
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59193.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pearl Jam - Dark Matter (2024) [FLAC|Lossless|tracks + .cue] <Alt.Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59194.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Harmony Chronicles: Chaos Realms / Хроники гармонии: Царс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59195.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59196.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59197.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59198.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Macrorit Disk Scanner 6.7.3 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59199.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59200.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Malwarebytes Windows Firewall Control 6.10.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59201.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F4987D28B3170F1B4E67FD2A4EE641C9A73B684F
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59202.jpg" />
 </div>
 
 

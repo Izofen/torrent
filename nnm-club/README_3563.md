@@ -1,3 +1,75 @@
+###  Публикация: 1823081   (112320) от 10.10.2025
+
+История любви и войны / Una Pelicula de Amor y Guerra / A History of Love and War (2024) Telecine  [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пепе Санчес Кампо в самом расцвете сил. Его коррумпированный бизнес в сфере недвижимости процветает, и он собирается жениться на любви всей своей жизни, аристократке Констанце. Однако удача Пепе вот-вот закончится из-за начала войны.Производство: Мексика / Edge Films, Laredo, 17NomadasЖанр: комедияРежиссер: Сантьяго Мохар ВолковАктеры: Лусия Гомес-Робледо, Фернандо Альварес Ребейль, Патриция Берналь, Моника Дель Кармен, Эрнан Дель Риего, Сантьяго Эспехо, Мануэль Гарсиа-Рульфо, Софи Гомес, Мария ИнохосПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1AE133194DFA67306ECD59ADD9202521B02A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823085   (112321) от 10.10.2025
+
+Как приручить лису (2025) WEBRip [H.264] (сезон 1, серии 1-2 из 8) (обновляемая)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зоопсихолог, изучающий лис, спасает жизнь странной замкнутой девушки Дины, но в результате сам становится подозреваемым в убийстве. Он вынужден начать самостоятельное расследование, а для этого ему приходится наладить контакт с дикаркой Диной, далекой от социальных норм и ограничений. Постепенно он выясняет, что в округе уже больше 15 лет пропадают юные девушки, (   Читать дальше...   )Производство: Россия, Место силыЖанр: Детектив, триллер, криминалРежиссер: Юлиана ЗакревскаяАктеры: Кирилл Кяро, Максим Стоянов, Таисья Калинина, Ксения Кутепова, Наталья Фенкина, Андрей Кочинов, Федор Федосеев, Сергей Медведев, Юрий Межевич, Егор Борисов и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1EB84D823AD8E784D099212C969458BFD26D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823083   (112322) от 10.10.2025
+
+Защитник / The Defender (2004) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберта Джонс, советник президента по национальной безопасности, отправляется в сердце Восточной Европы на секретные переговоры с террористом № 1 Мохамедом Джамаром. В этой поездке Роберта доверяет только своему личному телохранителю Лэнсу Рокфорду, который не задает лишних вопросов. Но когда встречу внезапно нарушает вооруженное нападение, а Джонс и Джамар исчезают, (   Читать дальше...   )Производство: США, Великобритания, Германия, Румыния | Bauer Martinez Studios, Defender Production, Frame Werk Produktion GmbH & Co. KG, Lucky 7 Productions LLC, Lucky UKFS, Media Pro PicturesЖанр: боевик, триллерРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Джерри Спрингер, Шакара Ледард, Томас Локъер, Кэролайн Ли-Джонсон, Джералд Кид, Иэн Портер, Ховард Энтони, Джеффри Бертон, Иддо ГолдбергПеревод: Многоголосый профессиональный (SDI Media Russia), двухголосый профессиональный, авторский (Сергей Визгунов)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED618A15B9693052ACAA48F915107F930B786E80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823078   (112323) от 10.10.2025
 
 Уловки разума (2025) WEBRip [H.264] (сезон 4, серии 1-4 из 4)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112323.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:8CF608A0BE571C3D38C19134FCADBC4FFE18F17E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112324.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:779951F9DC9D78623DDCE13CBF4EC4F3B5D19883
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112325.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:9D26BE5E3A1408C6E95FBBA88674E7207A8327E0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112326.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:828AA7E3F9B38E5E8CBC6769B3D1BC1FAA4BCE52
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112327.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:722E419C8677AE1EEBE6A3EC6B7332C4F5EE3315
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112328.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112329.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Robert Plant - Voice Of Rock - Compilation (1967-2025) [MP3|320 Kbps] <Blues roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112330.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ magnet:?xt=urn:btih:32B333B74802FC57437EFA302A1B53AAFCD519A5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112331.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ Parov Stelar - Assorted compilation part 2 (2025) [MP3|320 Kbps] <Electro Swing,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112332.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112333.jpg" />
 </div>
 
 
@@ -290,7 +362,7 @@ magnet:?xt=urn:btih:2CD3884F40B0164DF076FD69EDE855EF58AC37EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112334.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112335.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ magnet:?xt=urn:btih:48A7079DA19D1BF1CB1BB8BE9AE0BEA6EB90D106
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112336.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112337.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:8DE9700FF07EA71452129298A3BE988B5779213A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112338.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112339.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:853D1D991EA48A154B5218A17EEC08357818EF41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112340.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:16796EBC1F84AE3113D3A29F43B753EE96E43647
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112341.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:6652521F4189910343CCCC658242F85DE46BCB59
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112342.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112343.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Integrity Pro 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112344.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ magnet:?xt=urn:btih:3DF52E87ADC44AFDBFAFC98CED0B5406230D1453
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112345.jpg" />
 </div>
 
 
@@ -580,78 +652,6 @@ magnet:?xt=urn:btih:3DF52E87ADC44AFDBFAFC98CED0B5406230D1453
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16AF25A79495CBEF490B85ED8A22E132CEC9332E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711689   (112346) от 31.03.2024
-
-Джанина Скарлет | Я и моя боль. Как справиться с сильными переживаниями и принять то, чего не можешь изменить (2022) [MP3, Ирина Чумантьева]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда на нас обрушивается боль, которую невозможно предвидеть. Потеря работы, дружбы или любимого человека, жестокое предательство, насилие, неизлечимая болезнь или глобальная катастрофа. Все эти события не проходят бесследно — они навсегда меняют нашу жизнь. И даже если окружающие говорят, что «нужно быть сильным», а «тревога и депрессия — это стыдно», мы должны (   Читать дальше...   )Жанр: зарубежная психология, психотерапияПеревод: Инна ПровороваИздательство: Эксмо, БомбораПродолжительность: 04:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F35909A4E4C15F507C862E320A6457606C38698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711796   (112347) от 31.03.2024
-
-Камал Равикант | Верь. В любовь, прощение и следуй зову своего сердца (2023) [MP3, Всеволод Кузнецов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112347.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Верь» — это не просто книга. Это поиск себя через магическое странствие, которое помогает оставить позади страхи, привычки, идеалы. Всё то, что придумано не вами, но взято на веру исполнения. Написанная в форме художественной истории Камалом Равикантом, она рассказывает о поиске пути к себе и стойкой вере в то, что сломанные крылья можно починить. Эта книга, наполненная (   Читать дальше...   )Жанр: саморазвитие / личностный рост, современная зарубежная литератураПеревод: О. Б. СнитичИздательство: Эксмо, БомбораПродолжительность: 07:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCA7866B922285AC08D288AA0ABA041E65A2189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711777   (112348) от 31.03.2024
-
-Галина Петракова | Травма свидетеля. Почему мне плохо от того, что я вижу и как с этим справиться (2022) [MP3, Юлия Бочанова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почитаю новости и потом целый день не могу сосредоточиться. Вроде бы все в порядке, я в безопасности, но эмоции зашкаливают. Тревога, боль, чувство вины. Почему это происходит? Клинический психолог и ведущая программ по снижению стресса, Галина Петракова, объясняет: рассказы очевидцев, видео катастроф и сообщения о гибели людей воздействует на нас, хотя мы не являемся (   Читать дальше...   )Жанр: клиническая психология, саморазвитие / личностный ростИздательство: Эксмо, БомбораПродолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD66985EC0A59ABA40F3997F88A176EBFF56F573
 ```
 
 

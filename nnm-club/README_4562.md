@@ -1,3 +1,150 @@
+###  Публикация: 1348803   (141270) от 29.12.2019
+
+VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
+002. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+003. Billie Eilish - bad guy 3:14
+004. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520158   (141271) от 28.12.2021
+
+Нули и единицы / Zeros and Ones (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский солдат, дислоцированный в Риме во время взрыва Ватикана, отправляется в героическое путешествие, чтобы найти неизвестного врага, угрожающего всему миру.Производство: Германия, США, Великобритания, Италия / Maze Pictures, Hammerstone Studios, Rimsky ProductionsЖанр: Триллер, боевикРежиссер: Абель ФеррараАктеры: Итан Хоук, Кристина Кириак, Фил Нилсон, Валерио Мастандреа, Валерия Корреале, Дуня Сычева, Бабак Карими, Корлан Мади, Сальваторе Руокко, Анна ФеррараПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6285412A638CDCE6F1E2D3E4E50502063136BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970404   (141273) от 30.12.2015
+
+Карл Густав Юнг | Символы трансформации (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основополагающий труд швейцарского психолога и мыслителя К.Г. Юнга «Символы трансформации», написанный на этапе расхождения с Фрейдом, знаменует собой перелом в психоанализе и появление принципиально новой позиции в глубинной психологии, получившей впоследствии название аналитической психологии.Жанр: ПсихологияПеревод: В. В. ЗеленскийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF174EFEA9C776775D5F44D07581CB774414569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195521   (141275) от 29.12.2017
+
+AIMP 4.50 Build 2058 Final RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141275.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8AA8B2BBF64816486BA2EFACE4C3C6AA2A2FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272729   (141276) от 29.12.2018
+
+Журнал | InfoCity №12 (134) декабрь 2018) [PDF] [Ru,Az]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141276.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438E5CBBC6CE73F8BFFA51108CE44C7E39B95EF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678975   (141277) от 23.11.2023
+
+Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Knights of Honor 2: Sovereign – стратегия в реальном времени про Европу средних веков. Политические интриги, влияние веры, масштабные войны и многое другое. Здесь игрок должен стать королем одного из доступных народов. Каждая нация обладает своими особенностями, одновременно упрощающими игру и дающими новые испытания.Тип издания: RepackРазработчик: Black Sea GamesЖанр: Симулятор, Стратегия, ИсторическаяЯзык озвучки: Английский, Немецкий, Французский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348898   (141279) от 29.12.2019
 
 Ольга Кузьмина (сост) | Грибы. Консервируем, солим, маринуем, сушим, жарим. 500 блюд (2019) [PDF]
@@ -6,7 +153,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141279.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ VA - Goodnight Music Playlist: A Peaceful Chillout Goodnight Sleep (2016) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141280.jpg" />
 </div>
 
 
@@ -57,7 +204,7 @@ magnet:?xt=urn:btih:B2D625472C62AAB8C948FF5EABEC92E5F58E8C24
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141281.jpg" />
 </div>
 
 
@@ -81,7 +228,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRem
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141282.jpg" />
 </div>
 
 
@@ -105,7 +252,7 @@ magnet:?xt=urn:btih:9B4C33941F54F8BCF84B5E7A49DD579D542F1E00
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141283.jpg" />
 </div>
 
 
@@ -130,7 +277,7 @@ VA - The Official UK Top 40 Singles Chart 28.12.2018 (2018) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141286.jpg" />
 </div>
 
 
@@ -157,7 +304,7 @@ magnet:?xt=urn:btih:EB22C0F19FBC46471FD81A9E74D85E4E2C888F96
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141287.jpg" />
 </div>
 
 
@@ -181,7 +328,7 @@ CCleaner 6.18.10838 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141288.jpg" />
 </div>
 
 
@@ -205,7 +352,7 @@ uTorrent Pro v6.6.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141289.jpg" />
 </div>
 
 
@@ -229,7 +376,7 @@ DiskDigger 1.20.9.2683 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141290.jpg" />
 </div>
 
 
@@ -253,7 +400,7 @@ XYplorer 20.60.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141291.jpg" />
 </div>
 
 
@@ -277,7 +424,7 @@ magnet:?xt=urn:btih:4899D815524A9461AA6FCF1321E1A4BD12A0A377
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141292.jpg" />
 </div>
 
 
@@ -303,7 +450,7 @@ VA - Focus Me: Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141293.jpg" />
 </div>
 
 
@@ -330,7 +477,7 @@ magnet:?xt=urn:btih:4F67E1E5338154EACAD2B0ACAA81E8B4C8AF9B21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141296.jpg" />
 </div>
 
 
@@ -357,7 +504,7 @@ magnet:?xt=urn:btih:8D2C4B2EE08D91688209302CB690ACFA84FB47C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141297.jpg" />
 </div>
 
 
@@ -381,7 +528,7 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141298.jpg" />
 </div>
 
 
@@ -405,7 +552,7 @@ magnet:?xt=urn:btih:487FAEA2EEF09E211A6EED9F8B5E090F321EE42A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141299.jpg" />
 </div>
 
 
@@ -432,7 +579,7 @@ magnet:?xt=urn:btih:956230D75693505446AC39720FA0741E6A92C860
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141300.jpg" />
 </div>
 
 
@@ -459,7 +606,7 @@ magnet:?xt=urn:btih:D68ECAB4367A6E8D1399B5D75505B90DBB7BDDEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141301.jpg" />
 </div>
 
 
@@ -483,7 +630,7 @@ magnet:?xt=urn:btih:D2102A60EEEBD423CDA6AAA03CF436ED8D7E8561
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141302.jpg" />
 </div>
 
 
@@ -495,154 +642,6 @@ magnet:?xt=urn:btih:D2102A60EEEBD423CDA6AAA03CF436ED8D7E8561
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E196DC165C45402F8195F17C664DED8057F4E718
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970468   (141304) от 30.12.2015
-
-Журнал | Железный мир №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1C3486613C49B2B1F4142A51A7B20631868F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520375   (141306) от 28.12.2021
-
-Various - Call Me Tonight (1986) [MP3|320 Kbps] <Boogie, Funk, Pop Rock, Synth-pop>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Rumi Natsumi (夏見ルミ) - 不安なジェラシー (2:51)
-2.Rumi Natsumi (夏見ルミ) - Call Me Tonight (3:21)
-3.Rumi Natsumi (夏見ルミ) - あなたにRainy Day (4:24)
-4.Hiroyuki Watanabe (渡辺裕之) - My Little (   Читать дальше...   )Жанр: Boogie, Funk, Pop Rock, Synth-popПродолжительность: 00:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19518242C8D363CD501CF2F689B18718EB5E83B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271875   (141308) от 29.12.2018
-
-Джон Коннолли | Ночные легенды [Сборник] (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый сборник мистических рассказов Джона Коннолли, создателя бестселлеров о частном детективе Чарли Паркере.Это темная, смелая и пугающая антология, полная потерянных любовников и пропавших детей, хищных демонов и мстительных духов. Коннолли отдает дань своим предшественникам – М. Р. Джеймсу, Рэю Брэдбери, Стивену Кингу, но не теряет собственного голоса и доводит (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7EDB07944C095AC5297D112FA5A5A178B1A1EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194842   (141309) от 29.12.2017
-
-Тайна 7 сестер / Seven Sisters (2017) BDRip [H.264/1080p] [MVO] [PR]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек.
-Их дед решает сохранить всех и дает малышкам имена в честь дней недели. Так девочки и появляются на людях - каждая в свой день. Но однажды Понедельник пропадает...Производство: Великобритания, Франция, Бельгия / Nexus Factory, Raffaella Productions, SND, Title Media, uMedia Family, VendГґme PicturesЖанр: Фантастика, Боевик, Триллер, Драма, Криминал, Детектив, ПриключенияРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара Рид, Кирсти ЭвертонПеревод: Многоголосый закадровый, любительский (@MUZOBOZ@)Субтитры: АнглийскиеПродолжительность: 02:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25169C71E185BB16A8B830D16E9FC84E05B1EA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590579   (141310) от 17.12.2012
-
-Любовь для бедных (2012) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Маруси умирает на операционном столе, и с этого момента ее жизнь кардинально меняется. В поисках работы девушка знакомится с Алексеем и его двоюродным братом Костей. Оба молодых человека неравнодушны к Марусе - теперь ей предстоит сделать нелегкий выбор. Она еще не знает, что Костя - тот самый врач, который неудачно прооперировал ее отца. Однако виновен ли на (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Вадим АраповАктеры: Ольга Иванова, Сергей Загребнев, Татьяна Лютаева, Анатолий Котенев, Святослав Астрамович, Людмила Баталова, Валерий Кошеев, Светлана Никифорова, Елена Шкуратова, Полина Булахова, Фёдор Гриб, Инна ДубокПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82A1ED2778E399FF820FD675E2092D1D0EA456A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678810   (141311) от 23.11.2023
-
-Dungeon Golf (2023) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeon Golf, объединяющая мини-гольф и подземелье, обещает уникальный игровой опыт. В сетевом или локальном многопользовательском режиме с друзьями или в одиночном путешествии по сюжету игроки сталкиваются с эксцентричными фэнтезийными персонажами, каждый из которых обладает уникальными стилями и способностями игры в гольф. Перемещаясь по ландшафту, изобилующему (   Читать дальше...   )Тип издания: SceneРазработчик: Ant Workshop LtdЖанр: Казуальные игры, Инди, Спортивные игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 ```
 
 

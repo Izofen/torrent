@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59307.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59308.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:25512397147D99FC14D4E0C67F4D3479E362BE15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59309.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:25512397147D99FC14D4E0C67F4D3479E362BE15
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59310.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2D328F160BD7B2CECE36D1500B634744BDA6DB30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59311.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2B736135E79B74A2E0D1BAE23E6D74F4445AE4C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59312.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3E53CBB7966BBB5ED92A81E74D0E2D3835C3D23F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59313.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adguard 7.17.0 (7.17.4705.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59314.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:AEA6F8B3D5508D86D3219A020999A2DD1EE8C102
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59315.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59316.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DAEF3B020AE7A7EEB8021B17D9F453ED38FAF5EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59317.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F23564225776AAB856E7F1F4A01425EEA6782AD3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59318.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59319.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:13E36B05C9245E25A06167C7A62B31BEAE5AD338
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59320.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DBB48CA14B8F50AA00DA9664AAAB04CF1E3C3F2B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59321.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:671F0BF971238E851C0F19B53B6521A0FCFBA704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59322.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59323.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ CCleaner 6.23.11010 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59324.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59325.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A535CDEBBD2822E9C90F1DD785A406684BE57BB0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59326.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ One Last Dinner (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59327.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FA732726906CC865C4A540575F9E78414BEA7EA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59328.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.8.2 Mod by FreeApkexe [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59329.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VPN.lat: Unlimited and Secure 3.8.3.9.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59330.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ XY VPN - Security Proxy VPN 4.8.022 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59331.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:4F21688DA7C90B7A730C4885737879354250B14B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59332.jpg" />
 </div>
 
 

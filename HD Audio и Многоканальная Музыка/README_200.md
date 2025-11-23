@@ -1,3 +1,58 @@
+###  Публикация: 1666729   (178949) от 05.10.2023
+
+Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blonde (3:19)
+02. How the Story Ends (3:15)
+03. Everything Turns Around (3:01)
+04. Overhang (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666746   (178953) от 05.10.2023
+
+Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
+Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
+2006 - Pitch Black Progress
+2008 - Holographic Universe
+2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666384   (179032) от 05.10.2023
 
 Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic, Doom Metal, Female Vocals>
@@ -6,7 +61,7 @@ Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179032.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179032.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179036.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179060.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179068.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179548.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179676.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179695.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180013.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180116.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180178.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180228.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180248.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180259.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180285.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180285.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DV
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180353.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180360.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180360.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180368.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180373.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180375.jpg" />
 </div>
 
 
@@ -510,6 +565,33 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428056   (180596) от 01.12.2020
+
+Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Angel
+A2 Risingson
+A3 Teardrop
+B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665828   (180623) от 02.10.2023
 
 Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
@@ -518,7 +600,7 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -537,6 +619,33 @@ magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427597   (180664) от 01.12.2020
+
+Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180664.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mysterons
+A2 Sour Times
+A3 Strangers
+A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666041   (180753) от 02.10.2023
 
 Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -545,7 +654,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180753.jpg" />
 </div>
 
 
@@ -572,7 +681,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -586,113 +695,6 @@ Diablo — финская мелодик-дэт/грув-метал группа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665746   (180956) от 02.10.2023
-
-October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Marras I
-A2 Marras II
-A3 Marras III
-A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665649   (181262) от 01.10.2023
-
-Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
-A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
-A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
-A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665675   (181438) от 01.10.2023
-
-Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665581   (181450) от 01.10.2023
-
-Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Videotheque [00:03:50]
-02. Causeway [00:03:56]
-03. LA Dreamers [00:04:09]
-04. Fade Me Out [00:03:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
 ```
 
 

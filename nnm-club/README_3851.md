@@ -1,3 +1,75 @@
+###  Публикация: 1696216   (119808) от 01.02.2024
+
+Журнал | Homebuilding & Renovating №3 (2024) [PDF][En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844A60DD6FFE0477E96399F58EB05524BEB9020F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696089   (119809) от 01.02.2024
+
+Атул Гаванде | «Все мы смертны» (2023) [MP3, Геннадий Смирнов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книга о старении, смертельной болезни, смерти — то есть о вещах, которых мы так боимся, что стараемся вообще не думать о них, вытеснить на периферию сознания. Автор книги, знаменитый американский хирург Атул Гаванде, уверен, что прятать голову в песок неправильно: смерть — часть жизни, ее естественное завершение, и именно в таком качестве, осознанно и спокойно, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 10:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02870E64375480EF76BCF8D55EA52F7D6DFD4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696096   (119810) от 01.02.2024
+
+Журнал | Системы безопасности №6 (174) (декабрь 2023-январь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания журнала – системы охранно-пожарной сигнализации, CCTV, контроля доступа, инженерно-технической защиты, оперативной связи, антитерроризма, информационной безопасности, специальной техники для правоохранительных органов, охранные услуги и многие другие аспекты безопасности.Жанр: БезопасностьИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C24FB0308736864CF0BD7A5DCAC632E68659794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696195   (119811) от 01.02.2024
 
 Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock, Disco>
@@ -6,7 +78,7 @@ Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119811.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ V.A. - Buddha-Bar Beach & Love by Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119812.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Soft Jazz Music, Jazz Music Zone - Vintage Jazz at Twilight (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119813.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Emurasoft EmEditor Professional 23.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119814.jpg" />
 </div>
 
 
@@ -112,7 +184,7 @@ Romantic Candlelight Orchestra, Love Music Zone - Candlelit Piano Fancy Romantic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119815.jpg" />
 </div>
 
 
@@ -139,7 +211,7 @@ magnet:?xt=urn:btih:A8D66A42CA7BDE544CFC81FE69EB5C3F48839497
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119816.jpg" />
 </div>
 
 
@@ -163,7 +235,7 @@ magnet:?xt=urn:btih:5F2E08F9AF4C998B23FF61321242BF912B69B219
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119817.jpg" />
 </div>
 
 
@@ -187,7 +259,7 @@ PDF24 Creator 11.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119818.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ MediaInfo 24.01.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119819.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ NoMachine 8.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119820.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119821.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ FanControl V180 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119822.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Soul Browser 1.4.03 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119823.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ JMG Sound Plugins Bundle 2024.01 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119824.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:6014A5E59A53C442352881793DC38017D25CE305
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119825.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:5A6477E0E0835857D28D4C1E41996278A4735C95
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119826.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ HWiNFO 7.70 Build 5350 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119827.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ VA - Music News vol.336 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119828.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119829.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ PrivaZer Pro 4.0.82 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119830.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ magnet:?xt=urn:btih:50B07D82C9B02D2B2117FF7033D05367F00DDDE1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119831.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Shotcut 24.01.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119832.jpg" />
 </div>
 
 
@@ -554,7 +626,7 @@ Pale Moon 33.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119833.jpg" />
 </div>
 
 
@@ -565,78 +637,6 @@ Pale Moon - веб-браузер, созданный на базе популя
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC9EA3277AE7DD3BC0FB273E9BEFAA0B005AC5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696110   (119834) от 01.02.2024
-
-Журнал | Машины и Механизмы №2 (221) (2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119834.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Машины и Механизмы" - издание для всех, кто интересуется устройством современного мира. Журнал не ограничивается обзорами передовых технологий и последних изобретений. В сферу интересов «ММ» входят вопросы развития общества, новейшие социальные и даже геополитические тенденции. «ММ» отличается от прочих профильных изданий глубиной подачи материала, так (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Фонд научных исследований “XXI век”Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3078A42C0BE12FC40FB1A4C8DB0EF12077D72CFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696158   (119835) от 01.02.2024
-
-Алмазная коронка бура / Даймонд Хед / Diamond Head (1962) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый гавайский производитель ананасов и кандидат в сенаторы США Ричард Хоуленд пытается контролировать всё и всех вокруг себя, включая свою упрямую сестру Слоун. Вскоре Хоуленд на собственном горьком опыте узнает, что деньги и власть не могут купить любовь и счастье...Производство: США / Jerry Bresler ProductionsЖанр: драма, мелодрамаРежиссер: Гай ГринАктеры: Чарлтон Хестон, Иветт Мимьё, Джордж Чакирис, Франс Нуйен, Элин МакМэон, Элизабет Аллен (I), Вон Тейлор, Филип Ан, Харольд Фонг, Эдвард МэллориПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D554A2FE1435D16743A775D5E8B626F9E1AB9EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345143   (119836) от 01.02.2024
-
-Редьярд Джозеф Киплинг | Слонёнок (2006) [MP3, Сергей Рост и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редьярд Киплинг подарил нам замечательные сказки о животных, так похожих на людей. Забавный Слонёнок напоминает малыша-почемучку – милого, смешного и доверчивого. На свете столько интересного и все хочется знать! Куда заведет Слонёнка его любопытный носик?Жанр: Зарубежная литература для детей, классика, сказкаВ ролях: Марина Волкова, Руслана Деник, Наталья Зорькина, Мария Горбачева, Сергей Рост, Сергей Рыбалка, Сергей КашуцкийИздательство: ВимбоПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B346B535461CCDC1110CBED184B8DE3564A1AECD
 ```
 
 

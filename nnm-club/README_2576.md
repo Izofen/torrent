@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67724.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4B9A785D6252A51C5A5BE24CD0A5137D4BABE271
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67725.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1809FA3A002703B8E8B35271560F68F5E57DA6A3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67726.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Photo Lab PRO v3.13.55 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67727.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67728.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ AIMP 5.40 Build 2674 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67729.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Genius Art: Image AI Generator v1.3.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67730.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:674C9FBAA89CDC3B7C27905D3A6AFF701D4F9D4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67731.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C69E302DD058996B36B7E1D05427C305922ACD32
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67732.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D89BFC802D4A5C341C3BE29FAC16D3CE586CB547
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67733.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67734.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:CB4CE6D378F67C2E2AB9B0BC1748D225B1A030E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67735.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PictureThis - Plant Identification v5.1.8 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67736.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:ABC48D93976CC4DCBDD79EF8C9DD8EAF3E4097CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67737.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:FAC006ED7FBEC818BD3AEC0D0651DC2A88BE4507
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67738.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ inShot / Фото и видеоредактор v2.122.1486 Mod by Mixroot [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67739.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:F3BB07B7CD2C37C3EE9E7DAD9C776209A43DB3BA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67740.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:115FC1A00C31CB7F4C1EEC204DC61D7D5BA9974D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67741.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DEFC79B215386519C2D1F7A24A06C64B241A40AB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67742.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Teramaze - The Harmony Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67743.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A94442DD9C57F39C9EDCACB72F56B0AE4BF8EB78
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67744.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Ori Uplift - Uplifting Only Episode 636 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67745.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Bill Evans - We Will Meet Again (1979) 2013, Warner [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67746.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:08EF141BE1A04FE751D708F2827CD88EE39B15B2
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67747.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:0FC5FAA6A002261871FEDE9E283F93977CD5023E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67748.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D7613B27E2F1F2BBBBF9F6C7D219B5FAC7E00BF9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67749.jpg" />
 </div>
 
 

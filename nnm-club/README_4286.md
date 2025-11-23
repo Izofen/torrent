@@ -1,3 +1,79 @@
+###  Публикация: 595983   (131839) от 29.12.2012
+
+Работы художников - PURPLE DREAM. Illustrations and Concept Art 2D (part.1) [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - PURPLE DREAM (part.1) Illustrations and Concept Art 2DРазрешение файлов: ~ 1000x1500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11944F37BFDC086A0D1A0FF8BE215B7A431B32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681984   (131840) от 06.12.2023
+
+Marilyn Manson - The Golden Age Of Grotesque (2003) Deluxe Edition, 2006, Universal Music [MP3|320 Kbps] <Alternative Metal, Industrial, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thaeter — 1:14
+02. This Is the New Shit — 4:19
+03. mOBSCENE — 3:25
+04. Doll-Dagga Buzz-Buzz Ziggety-Zag — 4:10(   Читать дальше...   )Жанр: Alternative Metal, Industrial, Nu MetalПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B3A0CFED72A7F1DEC985154B761F7328D5098E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595979   (131841) от 29.12.2012
+
+Marc Dorcel Calendar 2013
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный календарь на 2013 год от Marc Dorcel.
+Серия раздач отРазрешение файлов: ~  1961x2669
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A247E0F9C46077B8A128A057CBFF40F42B5ACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682258   (131842) от 06.12.2023
 
 Skype 8.110.0.211 [Multi/Ru]
@@ -6,7 +82,7 @@ Skype 8.110.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131842.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:75D74612B25BD0FC035E444F6EF3B81CD4906C46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131844.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:600F399B5BF66FA60622E7664244B629F8F505A0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131846.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:4E01FB9EAF7C91ADC99BFC9A54B7E2F80A260F0B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131847.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ HWiNFO 7.67 Build 5280 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131848.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:B5431E2B9B9B9ABF2029B066C63F97DFF42B220C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131849.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131850.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131852.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ magnet:?xt=urn:btih:1A9A07E6842C3FECB4EC78C03B3BA5CC42D0B674
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131853.jpg" />
 </div>
 
 
@@ -230,7 +306,7 @@ magnet:?xt=urn:btih:56410EC5F31D33C771584388804E8152391AB83F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131854.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ magnet:?xt=urn:btih:1878C030629CAEB4B7C86EECC60F156F4136F622
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131856.jpg" />
 </div>
 
 
@@ -279,7 +355,7 @@ magnet:?xt=urn:btih:0501C5B2C5B64BBD3AF27FA3BFD6F1E4B822FF15
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131857.jpg" />
 </div>
 
 
@@ -305,7 +381,7 @@ magnet:?xt=urn:btih:99B377349380A7A632DAD2120649E5E18AE76801
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131858.jpg" />
 </div>
 
 
@@ -329,7 +405,7 @@ magnet:?xt=urn:btih:A301EC74F3EF46ED87E1C03BA3055115F9AAC685
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131860.jpg" />
 </div>
 
 
@@ -356,7 +432,7 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131861.jpg" />
 </div>
 
 
@@ -383,7 +459,7 @@ magnet:?xt=urn:btih:5D4DB25FDB041BAEDAE23B0B0D0AE63F3EBC4260
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131862.jpg" />
 </div>
 
 
@@ -410,7 +486,7 @@ magnet:?xt=urn:btih:DEFA258C575250580FD50C0B4EDBCE4E527326C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131863.jpg" />
 </div>
 
 
@@ -437,7 +513,7 @@ Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131864.jpg" />
 </div>
 
 
@@ -464,7 +540,7 @@ magnet:?xt=urn:btih:2481B7AA83AE728D221F48DD32E193E225B5050E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131865.jpg" />
 </div>
 
 
@@ -491,7 +567,7 @@ magnet:?xt=urn:btih:C55DD0A6EF4C73563D75951AB9E9F8566EDDC0FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131866.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ magnet:?xt=urn:btih:06B041034FEE0E4C9F8C4FE168E8C6FDF0C1F5BF
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131867.jpg" />
 </div>
 
 
@@ -543,7 +619,7 @@ Kaban - В Мире Животных (2021) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131868.jpg" />
 </div>
 
 
@@ -570,7 +646,7 @@ magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131871.jpg" />
 </div>
 
 
@@ -584,79 +660,6 @@ magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682288   (131873) от 06.12.2023
-
-Наша банда. Перья войны / Our Gang. War Feathers (1926) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчишки всегда играли и играют в "войнушку". Просто в разных странах и временах эти игры немного отличаются. Персонажами и атрибутикой. У нас, к примеру, казаки-разбойники. У них ковбои-индейцы. Потому что детские игры рождаются из окружающей действительности, а иногда переплетаются с реальностью... :wink:Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт А. МакГоун, Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Джэнни Хоскинс, Милдред Корнман, Скутер Лоури, Джей Р. Смит, Клифтон Янг, Пегги ЭхернПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F551B2A2EE05203B5E3B62C27740C06204E569DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595638   (131874) от 29.12.2012
-
-Агата Кристи | Десять негритят [1939] [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Десять негритят» (Ten Little Niggers), пожалуй, один из самых зловещих в творчестве Агаты Кристи.
-  Все начинается с того, что десятеро незнакомых между собой людей прибывают по приглашению на некий остров, который полностью отрезан от мира. Кто и зачем их позвал? Они рассказывает свои история, но умалчивают, что у каждого из них есть свой скелет в шкафу. Внезапно одного за другим гостей начинают убивать, а самое главное – это то, что убийства выстраиваются по тексту забавной и жестокой детской считалочки про десять маленьких негритят. Гости понимают, что обречены, но начинают расследование…Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8762CC53BF0B23D7EBCB24ADF634F1D8B85A61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595987   (131875) от 29.12.2012
-
-Работы художников - Фантасмагория сил природы - Джозеф Мэллорд Уильям Тернер ( Joseph Mallord William Turner)
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Фантасмагория сил природы - Джозеф Мэллорд Уильям Тернер ( Joseph Mallord William Turner)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7DCBEF64B03B750CC0EC77F4411B5EB5B9198C
 ```
 
 

@@ -6,7 +6,7 @@ PDFCreator 5.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FAB491736B65436BFB232A88E56AFC193FFF14BE
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28456.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8CBBCAEAB215F0099908077C9211F8A2D2765E22
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28457.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CoolUtils Total CSV Converter 4.1.1.60 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28458.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4226450BA8B9357F2D99279624AAC76188B1245B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28459.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:69525B60F332672B8C25133F03C4CC4F6FC5DF70
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28460.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.7.8 Mod by Mixroot [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28461.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:47675BA35CA1A2B03F41C28B24207FEC889F6DF6
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28462.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28463.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B40390B659AA5BC0A94D953B27D8B7A2B6685CB5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28464.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E495335210FFEAFB45C4624174CA8970D4B6BE66
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28465.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FC5649A583F267B77805B85BE2B5D692F8E1EE37
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28466.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C131666063239C7DBDC8368E7806CAA0581C09E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28467.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:6AE88EE83A9A20A6D35C5271A74DB2BD4F189E4B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28468.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28468.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28469.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28469.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28470.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28470.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:517815CE7A7359946549A65BDCD7DCCB51DBBB4E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28471.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28471.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:CCC151DA43941519661FFBE1426805417F014DBF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28472.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:0F2FC9C42FCD57D17021C078426852A294170BD6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28473.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B67466FD020BDECF6A785768DC054CE2B853660A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28474.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:6A6B2AC50DDFD57276F856548CBCD734CB3C795D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28475.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:C586ECEDC752515868A3F0B116CBE147DA5C6FCE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28476.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ R-Studio Network / Technician 9.4 Build 191430 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28477.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:824D7D3292ECB16917C9394A8383112D9A71010D
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28478.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:29145EC28CABAB785E446C53F63D50F9C53BB433
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28479.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:A172D1A9918BF7C5A7DEECFA6EA057A67D14829D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28480.jpg" />
 </div>
 
 

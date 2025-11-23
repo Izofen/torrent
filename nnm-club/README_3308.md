@@ -1,3 +1,81 @@
+###  Публикация: 1741146   (105690) от 05.08.2024
+
+John Haydock - Paradise Drive (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Drive (4:36)
+02. Somewhere East of Eden (5:40)
+03. Land Beyond Black and White (4:30)
+04. Everybody's Valentine (Alternate Versionn) (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CFB0A8F0776429D7E52DF6B6AF3E4B2319C123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741156   (105691) от 05.08.2024
+
+Helloween - Walls of Jericho (1985) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walls of Jericho/Ride the Sky (2024 Remaster) [6:46]
+02 - Reptile (2024 Remaster) [3:46]
+03 - Guardians (2024 Remaster) [4:21]
+04 - Phantoms of Death (2024 Remaster) [6:36](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD80BCB50D1B748BE3124AA5E6160174DA1E255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741171   (105692) от 05.08.2024
+
+Эд Макбейн | Пока вы оба будете жить (2024) [PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективу Берту Клингу не везёт с женщинами. Сначала его невеста Клер Таунсенд была застрелена во время печально известной стрельбы в книжном магазине. Ещё была Синди Форрест, которая однажды сообщила ему, что влюблена в врача на работе, — и ушла. Теперь он наконец сорвал джекпот. Клинг только что женился на красивой модели Августе Блер, и они собираются провести (   Читать дальше...   )Жанр: ДетективПеревод: Е.Р. СоваИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177BDDCC79679F335F2E5F6239840AD016658DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741111   (105693) от 05.08.2024
 
 Журнал | Здоровье №7-8 (807) (июль - август 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105693.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:DD8CA5466AA038F2BCBB5699B7A6581B3DB079CC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105694.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:C1CEF81712517A1A139BAD7DA8E9E754CEF130C2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105695.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:D1471C8DD39C7FC0C2B81E0C087C6DD6B168A6E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105696.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105697.jpg" />
 </div>
 
 
@@ -126,7 +204,7 @@ Razzmattazz - Rock Or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105698.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ The Chickens - Drink My Wine: The Smooth Soul Sessions (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105699.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ Kid Andersen & Lisa Andersen - Spirits and Soul 2CD)(2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105700.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:422E36E876A0AAB4F653A49A39EE001C2962C194
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105701.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:7A165CCCB92EC04327E4988378AF0B66EC2AEF68
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105702.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ John Haydock - Standing in the Shadow of the Blues (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105703.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ magnet:?xt=urn:btih:AD5CB409C5DED0838ACCDBE64B91DA27CB0FF23D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105704.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ magnet:?xt=urn:btih:AD5CB409C5DED0838ACCDBE64B91DA27CB0FF23D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105705.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ magnet:?xt=urn:btih:234DA0997A8805C41F50A2D5A853E95EF5D687F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105706.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ magnet:?xt=urn:btih:D04DE241F61BABA43BF689F60D6912784480B97F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105707.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Michael Fortunati - 2 Albums (1987, 1988) LP [MP3|320 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105708.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ Frank Sinatra - Ring-A-Ding Ding! (1961) 1998, Reprise Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105709.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105710.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:E2A4C5F45EDBD0B396387A500328D796A75AEF51
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105711.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ magnet:?xt=urn:btih:E96FB186DB6134DC2EAA5E9D95E254B8AB260FC7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105712.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Ministry - Hopiumforthemasses (2024) [FLAC|Lossless|tracks + .cue] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105713.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ magnet:?xt=urn:btih:ABFA795AA039AA647C3CD029ADB79F5AA29E6715
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105714.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Grand - Second To None (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105715.jpg" />
 </div>
 
 
@@ -572,85 +650,6 @@ Grand - Second To None (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661937301B43D330F6866FE90681DAE5B62ADD3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740961   (105716) от 04.08.2024
-
-Freakshow - A Reason Worth Dying For (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Hot Love (2:46)
-02. Be As One (3:20)
-03. A Reason Worth Dying For (4:15)
-04. By Your Side (3:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3DB57D9522E64287BCF04558C973778B494C82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740870   (105717) от 04.08.2024
-
-Motorhead - Hammered (2002) [WavPack|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk A Crooked Mile
- 02. Down The Line
- 03. Brave New World
- 04. Voices From The War(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F580CBA8D59DA6331FA8FE53C784033CAB1D720
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740965   (105718) от 04.08.2024
-
-Газета | Невыдуманные истории №29 (433) (июль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105718.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F020733CA46002335B843BCFCE83A3AC192DF7C
 ```
 
 

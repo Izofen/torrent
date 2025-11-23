@@ -1,3 +1,147 @@
+###  Публикация: 1424874   (224926) от 18.11.2020
+
+Экшены - Adobe Photoshop Actions [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photoshop может творить чудеса. Если вы хотите добавить творческих способностей к своему набору инструментов Photoshop, этот пакет для вас. Не тратьте время на повторение одних и тех же утомительных шагов для достижения эффекта.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E178F5D376B6F2599244FB129D3185B637C4474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424898   (224987) от 18.11.2020
+
+Шаблоны - Photoshop PSD Layouts [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте сайты в мгновение ока. Этот набор файлов PSD позволит вам легко и быстро создать привлекательный веб-сайт, привлекающий внимание посетителей. Файлы PSD - это безмерно полезная часть набора инструментов любого веб-дизайнера.Формат: PSDРазрешение файлов: 1020x1300-1220x1800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679E4602AC7520241769AD0D41363AF5904EBD1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424910   (225062) от 18.11.2020
+
+Текстуры - Royalty Free Misc Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественные текстуры. Они добавляют удивительный реализм в ваши проекты без особых усилий. Хотите добавить популярности своим проектам, не внося масштабных изменений?Формат: JPGРазрешение файлов: 3488x2616
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E8155965D9058E37717F00382D85B9CB72157A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424870   (225121) от 18.11.2020
+
+Векторный клипарт - 421 Awesome Vector Files [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы найдете самые разные формы и категории, включая листву, круги, ромбы, печать, солнечные лучи, стрелки, указатели и многое другое! Расширьте свой дизайнерский арсенал с помощью этого векторного набораФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E164B2C5640B0F581421958D37D8D020945A2867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424962   (225128) от 18.11.2020
+
+Текстуры - Textures and flower stock images [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавляйте потрясающие фоны в свои проекты. Текстуры и изображения цветов сделают ваш веб-сайт или дизайн более профессиональным. Креативная библиотека вдохновляющих изображений цветов и фактур.Формат: JPGРазрешение файлов: 3488x2616-4288x2848
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B1EE38AFC9D392C6F44CA40633E5855990D883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342183   (225157) от 01.12.2019
+
+Экшены - Creative Market - Smoke Color Action - 4263734 [ATN, ABR, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_225157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smoke Color - простой в использовании экшен фотошоп даст вашим изображениям удивительный эффект с яркими цветами клубов дыма. После того, как действие закончит работу, вы получите структурированный файл со слоями, для улучшения конечного результата.Формат: ATN, ABR, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B07417C66FDFBC523D7B63FA49FB48315E459C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424923   (225233) от 18.11.2020
 
 Фоны - Fractal Graphics Backgrounds [JPG, PNG]
@@ -6,7 +150,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225233.jpg" />
 </div>
 
 
@@ -30,7 +174,7 @@ magnet:?xt=urn:btih:500654BC49C3654AF7831338895AF5B0B5FAE7A4
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225260.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225260.jpg" />
 </div>
 
 
@@ -54,7 +198,7 @@ magnet:?xt=urn:btih:F5DE030122E458ACA850EC4366D00C4BFEBFA590
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225271.jpg" />
 </div>
 
 
@@ -78,7 +222,7 @@ magnet:?xt=urn:btih:28093B93AB5C099EC26207D7A69A4EA413F4E11A
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225277.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225277.jpg" />
 </div>
 
 
@@ -102,7 +246,7 @@ magnet:?xt=urn:btih:293CD87E89CA8C472B825E329A993E56AD03B743
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225285.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225285.jpg" />
 </div>
 
 
@@ -126,7 +270,7 @@ magnet:?xt=urn:btih:10348429864DE1E0FE7191BC8AEBF8725A3B1F25
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225369.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225369.jpg" />
 </div>
 
 
@@ -150,7 +294,7 @@ magnet:?xt=urn:btih:FF36F0803878549707689C7BFAADF3E6EF223DB8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225561.jpg" />
 </div>
 
 
@@ -174,7 +318,7 @@ magnet:?xt=urn:btih:BC5D2BB98CCB07F1FE1F7C5A29283AEB0ABA0873
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225626.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225626.jpg" />
 </div>
 
 
@@ -200,7 +344,7 @@ magnet:?xt=urn:btih:8F57A81DE66F6F5A5DF5FA952F1807E8894CF590
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225664.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225664.jpg" />
 </div>
 
 
@@ -224,7 +368,7 @@ magnet:?xt=urn:btih:25A001D306105716159F3BE73955F3FAC0F1B1B4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227140.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227140.jpg" />
 </div>
 
 
@@ -249,7 +393,7 @@ magnet:?xt=urn:btih:63C5C12190B1F5AEC513B35332E332CD8E7DF4C2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227981.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227981.jpg" />
 </div>
 
 
@@ -275,7 +419,7 @@ magnet:?xt=urn:btih:431F27CD06C4582511C2281F232FF3D04F24B8C6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228555.jpg" />
 </div>
 
 
@@ -300,7 +444,7 @@ magnet:?xt=urn:btih:DD05BD935060E808D5E3327668E71D86F50947B0
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229302.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229302.jpg" />
 </div>
 
 
@@ -324,7 +468,7 @@ magnet:?xt=urn:btih:5BD59643A204A517355EABBEB38526FDEB8BC8E8
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230270.jpg" />
 </div>
 
 
@@ -348,7 +492,7 @@ magnet:?xt=urn:btih:6AA295A5991E7D5CEE228F500E2043DFE649DA23
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230273.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230273.jpg" />
 </div>
 
 
@@ -372,7 +516,7 @@ magnet:?xt=urn:btih:AB9A076FEFFEC20D673378A7723AD0EDFDCE2AD2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230300.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230300.jpg" />
 </div>
 
 
@@ -396,7 +540,7 @@ magnet:?xt=urn:btih:79F4A9793CDF30CC7F5A28F163AB785F736642E8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230310.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230310.jpg" />
 </div>
 
 
@@ -422,7 +566,7 @@ magnet:?xt=urn:btih:746155F20729A1EA5B1832A928C515EB0BDB5D84
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230345.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230345.jpg" />
 </div>
 
 
@@ -446,7 +590,7 @@ magnet:?xt=urn:btih:41C9BDD4B71F589721E1F2B2E7BB4C1EE67F60A4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230350.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230350.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ magnet:?xt=urn:btih:9CFDDCF2DF5E92EB0671006DDF07988B53A83B4B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230363.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230363.jpg" />
 </div>
 
 
@@ -481,153 +625,6 @@ Nothim Font — современный и аутентичный шрифт.Фо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A40C600EDA9D7184F70F5D8AC2CE99DE580EACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832954   (230432) от 31.10.2025
-
-Шаблоны - Mockup Cloud - Premium MacBook Mockup 1 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои веб-дизайны, пользовательские интерфейсы и презентации брендов с помощью этого профессионального мокапа MacBook от Unknown Supply. Этот мокап с чистым фоном, реалистичными тенями и текстурами высокого разрешения станет идеальной площадкой для вашей работы. Независимо от того, представляете ли вы целевые страницы, веб-приложения или цифровые продукты, (   Читать дальше...   )Формат: PSDРазрешение файлов: 6500x4500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F032F625EA68EE502CBD197D40A59D601EE940DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832952   (230440) от 31.10.2025
-
-Растровый клипарт - Adobe Stock - Makeup Collection [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230440.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 стоковых изображений женщин с ярким макияжем.Формат: JPGРазрешение файлов: 2952x2876 - 5120x4830
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8038942B7485D22E31A8246611932C24BD6D6F3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832949   (230485) от 31.10.2025
-
-Шрифты - Creative Market - Diraga || Modern Serif Font - 291785207 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diraga Serif — современный и стильный шрифт для любого дизайна брендинга и логотипов. Этот современный и стильный шрифт с засечками обладает красивым характером. Он подходит для дизайна пригласительных открыток, стильных логотипов, названий фильмов, визитных карточек, названий книг, названий брендов и различных других дизайнов. Diraga Serif — это плавный шрифт с (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832910   (230512) от 31.10.2025
-
-Шрифты - Gooova Fonts - Vernon Adams - Nunito Sans [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
-В феврале 2023 (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A81B597CDB55B77100E0CAF5D101D52808BE461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832905   (230518) от 31.10.2025
-
-Шрифты - Google - Vernon Adams - Nunito [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
-Материал раздаётся (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832893   (230521) от 31.10.2025
-
-Шрифты - Behance - Dmytro Kifuliak - LEZO Display Typeface - Latin & Cyrillic - 142258847 [EOT, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lezo – футуристический акцидентный шрифт с украинским колоритом, вдохновлённый формами мечей XV–XVIII веков. Lezo (лезвие) по определению означает острую часть меча, которой режут, колют или рубят. Целью было создание букв, которые превращаются в слова, прокладывающие путь в неизвестность. Со временем буквы стали заостряться, и это то, что вы видите.
-Шрифт отличается (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226AE0ACAEF403D975B2D4F44427830FBB481A04
 ```
 
 

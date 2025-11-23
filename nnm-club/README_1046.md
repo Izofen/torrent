@@ -6,7 +6,7 @@ EasyUEFI 5.8 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27544.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27544.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D5363E1620880F507FE492E2C92C423D5C8376EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27545.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27545.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0526A07C1476A7D01BA18D9125058F0D21C89CC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27546.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27546.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FE030266079C03BACBB4BD938B61982877ACA015
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27547.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27547.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Resonance Music Academy, Иван Романовский | Production. Курс 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27548.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27548.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27549.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:996BE156303E6FAB65437C32C1661011DB677E19
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27550.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27550.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack FitGirl [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27551.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27551.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B25F48F72AE15A7866917B856CD8783E4AF68BB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27552.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27552.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0224097C228E868304846772150CE55F495A8E1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27553.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27553.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:08759E8FE491D2565DB16A56B895D2CA2AEC294D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27554.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27554.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:2F1D0F0C13EA293EFA5137DA14A948043F69F50A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27555.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:083D75EFDC46FF124CC7498D55DEF0D4DCDB0A2B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27556.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27556.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:BA0240BB5F43F1A65AF2BAC01DA58250B6BAFEB0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27557.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27557.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ WinToHDD 6.6 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27558.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Smokie & Chris Norman - The very best of Smokie & Chris Norman 50 years annivers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27559.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:CE3DB5766B0F9BCB25886C959FB906BF129DDC21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27560.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27560.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27561.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Shemekia Copeland - 11 Albums (1998 - 2024) [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27562.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C7E9D726204C435C9BAFFB9D7DD6581116029FD0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27563.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wallpaper Engine 2.6.19 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27564.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:842ED3D3D68A7D555A1A743C93B1E752B0A7E4C1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27565.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27566.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27567.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27568.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27569.jpg" />
 </div>
 
 

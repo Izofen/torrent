@@ -1,3 +1,27 @@
+###  Публикация: 1636395   (231731) от 30.05.2023
+
+Возвращение в Сеул / Retour a Seoul / Return to Seoul (2022) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_231731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди — 25-летняя кореянка, которая выросла в приёмной семье во Франции. Поддавшись порыву, она впервые возвращается на родину, чтобы найти биологических родителей. Её путешествие разворачивается в новом и неожиданном направлении.Производство: Франция, Германия, Бельгия, Корея Южная, Румыния, Камбоджа, Катар / Aurora Films, Vandertastic Films, Frakas ProductionsЖанр: ДрамаРежиссер: Дэви ШуАктеры: Пак Чи-мин, О Гван-нок, Guka Han, Ким Сон-ён, Йоанн Циммер, Луи-До де Ланкесэ, Хо Джин, Hur Ouk-Sook, Son Seung-Beom, Dong Seok KimПеревод: Профессиональный многоголосый (OKKO)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced), Английские (Full, SDH), Французские (Forced, Full)Продолжительность: 01:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A94C8B5BC4DE12F5CCEB6EC044C4DFE806A844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646434   (232074) от 14.07.2023
 
 Ни на одного меньше / Yi ge dou bu neng shao / Not One Less (1999) BDRip [H.264/720p]
@@ -6,7 +30,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232074.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232074.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:A20037837EDE57A4CACCF62E55189CB1155BDB42
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232530.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232530.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:2F7ADE312E4C492D7A04D1268C2756A24A2CBD84
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233211.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233211.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:003D1CF82DED438A0F4EF46BD824F489AE0C4466
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233219.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233219.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:E45861EC7C51C28AB57207DD3150992E6772754C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233553.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233553.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:068689FA74F073F7ED4546835157D91305C984F1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233568.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233568.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:DA0DC222F05F6A9F6613E3488096DBD18F2E8902
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233591.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233591.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:4F323B8AFCF5BAE5C311E03E50D063BFD8888E3F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233786.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233786.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:4342523F4AB4F50C691DC889831950248EA9C736
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234471.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:4D5F683D5D626DF7E1C74C46DE8EC0AD56749909
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234506.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234506.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:BDDD6278D0C0B4AEA5C6F2AF694C3F6E70FADDCE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234517.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234517.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:B455D7B4E5695CEAD09BE76D35AA18E919CC9F9F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234522.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234522.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:3B81F7EFF773F2BC2D8F6E8FACFA0292E2501494
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234533.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234533.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:7055CD8C7598E7227885734A61C572747E0204DF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234693.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234693.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:7F7A16C62F48D053C23745430B27FFA321FF47BF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235026.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235026.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:ABFFF43D0F6E4F2E6389913E58D130156D411756
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235486.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235486.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:10A4E7088D08A9C7090D4069F88F312AFC40CC6A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235616.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235616.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:D097DA70ECB092281F8BD33919B2DAD44684F066
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235656.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235656.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:02FC5246C52E016EE4A2D22BBFC8B13B9D6C8428
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235850.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235850.jpg" />
 </div>
 
 
@@ -462,7 +486,7 @@ magnet:?xt=urn:btih:FB6440934A0185001A097EAE2FA5FC109CF4856C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236317.jpg" />
 </div>
 
 
@@ -486,7 +510,7 @@ magnet:?xt=urn:btih:AAEE835F45555A4DFB439CD92074BDA49B1BFC92
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236630.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236630.jpg" />
 </div>
 
 
@@ -510,7 +534,7 @@ magnet:?xt=urn:btih:DCF9782461309F38AE54B1347C6A3559842CB39A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236834.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236834.jpg" />
 </div>
 
 
@@ -534,7 +558,7 @@ magnet:?xt=urn:btih:C5AD4512A6C26761049B0A771173E62F90F7C432
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237291.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237291.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ magnet:?xt=urn:btih:78B91D439CF95F163F7E213D9B6C72D847CFF2F0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237344.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237344.jpg" />
 </div>
 
 
@@ -582,7 +606,7 @@ magnet:?xt=urn:btih:C76D5E6AFC0E6E0EB7172CF561BE6922A0725918
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237798.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237798.jpg" />
 </div>
 
 
@@ -593,30 +617,6 @@ magnet:?xt=urn:btih:C76D5E6AFC0E6E0EB7172CF561BE6922A0725918
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2238280872CFF543E36D276282D37A4FD1054C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573290   (238328) от 30.08.2022
-
-Кулак легенды / Jingwu Chen Zhen / Chenzhen Legend (2019) WEB-DLRip [H.264/720p-LQ] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чэнь Чжэнь, ученик Хо Юаньцзя, приезжает на учебу в Японию. Он скрывает от окружающих, что знает кунг-фу. Когда мститель в маске расправляется с ронинами, пытавшимися изнасиловать китаянок, все подозрения падают на Чэнь Чжэня.Производство: Китай / iQIYI PicturesЖанр: БоевикРежиссер: Ма ЧжунсюаньАктеры: Тайгер Сюй, Хуан Вэйтин, Ван Цзюшэн, Ван Хунцянь, Джейсон ВонПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: Русский, КитайскийСубтитры: Русские (Full, SDH), АнглийскиеПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDA64F4424F575561B6629BCB63EF13FF0A9B7F
 ```
 
 

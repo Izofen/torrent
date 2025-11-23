@@ -1,3 +1,78 @@
+###  Публикация: 1754841   (103687) от 12.10.2024
+
+Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация романа Хуана Хосе Плана «El juego de los niños» («Детская игра»)... Молодая пара английских туристов нанимает лодку, чтобы отдохнуть на острове Альманзора недалеко от южного побережья Испании. Когда они прибывают, то находят его пустынным: нет ни одного взрослого, только дети. Дети ведут себя странно. Они молчат и только хихикают. Вскоре англичане (   Читать дальше...   )Производство: Испания / Penta FilmsЖанр: ужасы, детектив, триллерРежиссер: Нарцисо Ибаньес СеррадорАктеры: Льюис Фаэндер, Прунелла Рэнсом, Антонио Иранцо, Мигуэль Наррос, Мария Луиса АриасПеревод: авторскийЯзык озвучки: русский, испанскийСубтитры: английскиеПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED642F60AE584B21A5730A50898EF648EA9D7A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754820   (103688) от 12.10.2024
+
+Моя девушка - спецагент / Chilgeup gongmuwon (2009) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет агент по туризму Ан Су Джи является правительственным шпионом. Она не может раскрыть правду своему парню Ли Джэ Джуну. После её очередной лжи, парень уходит от неё, оставляя страдать в одиночестве. Через три года они сталкиваются, когда Ан Су Джи выслеживает промышленного шпиона, скрываясь в должности уборщицы. Он не ожидал встретить её уборщицей в отеле, (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Harimao PicturesЖанр: комедия, мелодрама, боевикРежиссер: Щин Тхэ-раАктеры: Ха Ныль Ким, Чжи Хван Кан, Сын Рён Рю, Ён Нам Чан, Хён Бом Ким, Син Иль Кан, Сон Мин Пак, Коди Хантер, Элизабет Суджин Форд, Гутсу ИлианаПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCC29131B40C316824F19DFB70A9E96054E9F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754821   (103689) от 12.10.2024
+
+Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (Remastered 2022) [00:03:45]
+02. If (Remastered 2022) [00:02:26]
+03. Banks Of The Ohio (Remastered 2022) [00:03:15]
+04. In A Station (Remastered 2022) [00:03:07](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FD470819F1D00B56FE8B545B1F7065C5363A6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754898   (103690) от 12.10.2024
 
 Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -6,7 +81,7 @@ Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103690.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103691.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:CFCC5211D59B686B4B9A4F4C5E63653159AF1650
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103692.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ Rock Identifier - Stone ID v2.3.41 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103693.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103694.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103695.jpg" />
 </div>
 
 
@@ -163,7 +238,7 @@ magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103696.jpg" />
 </div>
 
 
@@ -187,7 +262,7 @@ PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103697.jpg" />
 </div>
 
 
@@ -211,7 +286,7 @@ VA - PornoStar Sessions Ibiza (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103698.jpg" />
 </div>
 
 
@@ -238,7 +313,7 @@ magnet:?xt=urn:btih:1BEB626E7CF543229713B7873A09D800D5BE5A90
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103699.jpg" />
 </div>
 
 
@@ -262,7 +337,7 @@ VivaVideo Video Editor v9.21.1 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103700.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ Cemetery Skyline - Nordic Gothic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103701.jpg" />
 </div>
 
 
@@ -313,7 +388,7 @@ Dragony - Hic Svnt Dracones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103702.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103703.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103704.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Spec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103705.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ magnet:?xt=urn:btih:C3632A0381D25AC34BCF65061B774940818A9418
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103706.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ magnet:?xt=urn:btih:D0FA585BC7FB32073329820389284F7F3D9F7CF3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103707.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ Pregnant Women Music Company - Pregnancy Routine (2024) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103708.jpg" />
 </div>
 
 
@@ -496,7 +571,7 @@ Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103709.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:C01D6A440D28993C3CF88A4D746C7CFC9907BF52
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103710.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:C3A85530A36ECB3AFCA7C1188BB3369EA00284EA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103711.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103712.jpg" />
 </div>
 
 
@@ -585,86 +660,6 @@ Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76769322AE39A1ABF0ADD5E7F0A2AD1F19BA35B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754641   (103713) от 11.10.2024
-
-Tove Lo - Queen Of The Clouds: X (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - THE X [0:08]
-02 - Jealousy (From the Vault) [3:45]
-03 - Write me off (super demo.mp4a) [3:35]
-04 - Talking Body (2014 Jax Jones Remix) [4:38](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3752D56B8D3FEC1A02CB10A9E1B52B8DCD2C8E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754678   (103714) от 11.10.2024
-
-Chicago - John F. Kennedy Center For The Performing Arts, Washington D.C. (9/16/1971) (2024) (Live) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, Classic Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Song for Richard and His Friends (Live at the John F. Kennedy Center for the Performing Arts, Washington D.C. 9/16/1971) [8:44]
-02 - Does Anybody Really Know What Time It Is? (Free Form Intro) (Live at the John F. Kennedy Center for the Performing Arts, Washington D.C. 9/16/1971) [5:24]
-03 - Does Anybody Really Know What Time It Is? (Live at the John F. Kennedy (   Читать дальше...   )Жанр: Jazz Rock, Classic Rock, Pop RockПродолжительность: 02:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7156438E9609D6B44A4E46D49A571B9A67084E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754505   (103715) от 11.10.2024
-
-Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Halo (3:45)
-02. Follow me Down (3:08)
-03. Outer Space (4:28)
-04. Aftermath (3:31)(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89E29E1747C84E344DB381CCFFD0D6D44F4FFA0
 ```
 
 

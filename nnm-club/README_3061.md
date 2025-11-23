@@ -1,3 +1,93 @@
+###  Публикация: 468425   (97023) от 17.03.2012
+
+Children Of Nova - Impossible Landscape (2012) [FLAC|Lossless]<Progressive Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erratic (3:45)
+ 02. Kaleido (4:17)
+ 03. Impossible Landscape (3:32)
+ 04. Moments of Clarity (4:29)
+ 05. Feel Alive (4:08)
+ 06. First Signs (3:49)
+ 07. What Do You See? (3:05)
+ 08. The Troubled Soul (2:26)
+ 09. This Graceful Tragedy (3:34)
+ 10. Silhouette (3:39)(   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469054   (97025) от 17.03.2012
+
+Любовь с риском для жизни / La chance de ma vie (2010) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97025.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Жюльена серьезная проблема. Он прекрасный консультант в брачных вопросах, но ни одна женщина не остается с ним дольше, чем на две недели. Он приносит им несчастье. Не абстрактную неудачу, а вполне конкретное несчастье: его женщины или попадают в больницу несколько раз в неделю, или у них рушится карьера, или они ссорятся навсегда со своими близкими. Джоанна убедится в этом на собственном опыте. В день, когда их пути пересеклись ее карьера находилась на взлете, ее личная жизнь наконец наладилась… Все это может очень быстро измениться.Жанр: Комедия, МелодрамаРежиссер: Николя КюшАктеры: Вирджиния Эфира, Франсуа-Ксавье Демезон, Армель Дойч, Рафаэль Персонас, Томас Н’Гиоль, Брижит Роюан, Ив Жак, Мари-Кристин Адам, Эли Семун, Франсис Перрен...Перевод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468383   (97030) от 17.03.2012
+
+VA - Turkish Hits. Жаркие хиты из Анталии (2008) [MP3|112 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97030.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:17] 01. Tarkan - Dedikodu
+[04:41] 02. Demet Akalin - Bebek
+[04:28] 03. Arkin Celik - Serden Gectim
+[04:39] 04. Gokhan Ozen - Tovbeliyim
+[03:52] 05. Betul Demir - Baska Bir Sey
+[03:46] 06. Gulzen - Muhtelif Zamanlarda
+[03:41] 07. Yildiz Tilbe - Bn Seni Var Ya
+[04:20] 08. Kemal D.Hande Yener - Bir Yerde
+[04:48] 09. Tan - Sozumu Tutamadim
+[03:34] 10. Mustafa Sandal - Indir(   Читать дальше...   )2008Жанр: PopПродолжительность: 13:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9A5FEEC5B0CAD2155877BA50A6C2C55E6177B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467995   (97031) от 17.03.2012
 
 [EN] Беспорядки на Сансет-Стрип / Riot on Sunset Strip (1967) DVDRip
@@ -6,7 +96,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97031.jpg" />
 </div>
 
 
@@ -31,7 +121,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97032.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97032.jpg" />
 </div>
 
 
@@ -58,7 +148,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97034.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97034.jpg" />
 </div>
 
 
@@ -82,7 +172,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97036.jpg" />
 </div>
 
 
@@ -106,7 +196,7 @@ magnet:?xt=urn:btih:960DF44D4171CE1CBC257B3852C5DBB62FEDDAE3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97037.jpg" />
 </div>
 
 
@@ -130,7 +220,7 @@ Audio Damage - ADverb 1.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97038.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97038.jpg" />
 </div>
 
 
@@ -154,7 +244,7 @@ Audio Damage - ADverb 1.1.0 by ASSiGN [английский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97039.jpg" />
 </div>
 
 
@@ -179,7 +269,7 @@ magnet:?xt=urn:btih:2425AE7D52AFF3F6AE2D0472BBC2FA676F25935A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97040.jpg" />
 </div>
 
 
@@ -203,7 +293,7 @@ magnet:?xt=urn:btih:1AA9BE927A90C81BFC1E2B35EB8F389F23009A20
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97041.jpg" />
 </div>
 
 
@@ -227,7 +317,7 @@ magnet:?xt=urn:btih:0D2611E1EA72F57A48A7D5E21769A052270C900E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97044.jpg" />
 </div>
 
 
@@ -255,7 +345,7 @@ magnet:?xt=urn:btih:3F88136103B86290E166CBCB2532244F937434AE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97045.jpg" />
 </div>
 
 
@@ -283,7 +373,7 @@ Sacramentum - Thy Black Destiny (1999) [MP3|320 кб/с]<Melodic Black/Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97046.jpg" />
 </div>
 
 
@@ -316,7 +406,7 @@ magnet:?xt=urn:btih:C21812EA550ACED20FAC3243745CB01607AE21B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97047.jpg" />
 </div>
 
 
@@ -344,7 +434,7 @@ magnet:?xt=urn:btih:D8AB7A4CE85E4898A6CE49A6EB1D2995BF61C35A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97048.jpg" />
 </div>
 
 
@@ -372,7 +462,7 @@ magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97049.jpg" />
 </div>
 
 
@@ -400,7 +490,7 @@ magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97050.jpg" />
 </div>
 
 
@@ -428,7 +518,7 @@ magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97051.jpg" />
 </div>
 
 
@@ -456,7 +546,7 @@ magnet:?xt=urn:btih:524093C96FB89C0207814EE642CC46D126A2AD3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97052.jpg" />
 </div>
 
 
@@ -484,7 +574,7 @@ magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97053.jpg" />
 </div>
 
 
@@ -512,7 +602,7 @@ magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97054.jpg" />
 </div>
 
 
@@ -540,7 +630,7 @@ VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Danc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97055.jpg" />
 </div>
 
 
@@ -573,7 +663,7 @@ magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97056.jpg" />
 </div>
 
 
@@ -601,7 +691,7 @@ magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97057.jpg" />
 </div>
 
 
@@ -616,95 +706,6 @@ magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C6273204F4B8B8985EA45CA974F2D4C58E660E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469547   (97058) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 87
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97058.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 87
-Название: Desktop Wallpapers Pack 87
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х2500
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903D6AE293F15E5B0FC8C8E2BFD48D7134985F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470004   (97060) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 98
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97060.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 98
-Название: Desktop Wallpapers Pack 98
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07744B588B58F8C1913D1024013A1348C07F086B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469466   (97062) от 18.03.2012
-
-Arkania - La Bestia Dormida (2011) [MP3|320 кб/с]<Heavy Metal, Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bestia Dormida (03:33)
-02. Hey Tu! (04:19)
-03. Armaggedon (04:41)
-04. Musa Hasta El Alba (04:01)
-05. Gabrielle (04:34)
-06. Que Será De Tí (03:14)
-07. Nadie Más (04:31)
-08. Sirenas (03:23)
-09. XXIV (03:51)
-10. Los Ojos Del Alma (03:48)(   Читать дальше...   )2011Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CC5B5EC717A3D90113680924B37EBAF61CC741
 ```
 
 

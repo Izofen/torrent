@@ -6,7 +6,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32775.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:08A0C379997164E8BDB0C6437BBD65E8C5B94C01
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32776.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7FFAC855584198ED60B8CFEE9F53C497759533A0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32777.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:33970A79E76907F90EE9AB25B82E89C0D5E9009F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32778.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E10413430E37840F03344BBC07591654048DFC0C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32779.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D5B71BEA7DED327170D6BA25DEA0D2976470DD99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32780.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5A3F4155C6A42BD5F0AF5FAF2331333C0F7010C2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32781.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2EE380758F0A62029BCD2FB1EF3712434D25CB98
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32782.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32783.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32784.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:11CA5C252B3E9FD2973EED5ABD8DF4819E0CCCC5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32785.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D5F8FA6C3E679F568F0FB347A94D752CBEBC4C2D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32786.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5322B8A3B26F9EF30E5182C54CC1BA159C5D45CB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32787.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32788.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Alan Wake 2 / Alan Wake II (2023) [Ru/En] (1.2.7/dlc) Repack Other s [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32789.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:71C59D05E1CB6A5BB7EC66C62B6C3E2AFF542BFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32790.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2641CE3217C94B8499554946F26543DECF534019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32791.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FB239BC1F441AD4F7DBF8453C76657D0E9E703CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32792.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3F19133D107006C9A90F2F6EDD3DFF271F164AA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32793.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:769A594505806655567FD1366E4C36DDDEB438D0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32794.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:06B6EC9F651B57281BEC03CE01A09070FDF74A8D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32795.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:FA7675EC028D6B11F83E06A731BB2B0279279875
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32796.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:FA7675EC028D6B11F83E06A731BB2B0279279875
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32797.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:147392998D479E6101C883FC8514F3FE69938E23
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32798.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:AE5289619793EA37C6ED307888EED6B385D934D4
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32799.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:648682033141CCBD56DF16F9D8C33AB7237D72E1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32800.jpg" />
 </div>
 
 

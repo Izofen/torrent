@@ -6,7 +6,7 @@ Adobe Photoshop 2024 25.3.1.241 Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tearmoon Teikoku Monogatari | Tearmoon Empire | Хроники империи Т
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.30 Build 2533 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125536.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FastStone Capture 10.4 (26.12.2023) Final RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125539.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ocenaudio 3.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125597.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125620.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wondershare PDFelement 10.2.2.2587 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125621.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ IceCream Ebook Reader Pro 6.44 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125626.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Glarysoft Malware Hunter PRO 1.177.0.797 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125627.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ KMPlayer 2023.12.21.13 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125637.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adobe Media Encoder 24.1.1.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125638.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125639.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Smart Driver Manager Pro 7.1.1140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125663.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Topaz Video AI 4.0.9 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125664.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3CB84AA3D215E169BDFC4745334AA044365DBF9B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125665.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Adobe Photoshop 2024 25.3.1.241 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125679.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Adguard 7.16.0 (7.16.4542.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125682.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Vivaldi 6.5.3206.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125744.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C160F24FC16ECF98F89175ECB91F1352629704DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125950.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:81884C7816116C11354738A9A7D0E77F81076354
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125951.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:31F66234604BCC81D0528212032117FF56CD2367
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125954.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:ED16C24EDBE92EBFAAB8D04ADBCD644B9AA0F6E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125956.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:387F4A3821954E1A900374B393AEAC8C72ADDFE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125957.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:4D977476A95DBE82CB1D865DDAC61A64303E0AF8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125958.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Karpov.courses | Продвинутая аналитика данных (Час�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125961.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Karpov.courses, Нерсес Багиян, Алексей Кожарин, Ник
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125962.jpg" />
 </div>
 
 

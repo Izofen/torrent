@@ -1,3 +1,82 @@
+###  Публикация: 1694429   (120978) от 25.01.2024
+
+Сьюзан Кейн | Переживание чувств (2023) [MP3, Людмила Благушко]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас ценить каждое из своих переживаний и находить в них ресурс, чтобы тоньше и пронзительнее ощущать всю многогранность и красоту этого мира.
+Как часто вам доводилось слышать: «Не грусти, не расстраивайся, не стоит плакать»? Печаль, грусть, острое переживание происходящего, по сути, относятся к тому спектру человеческих эмоций, которого мы всячески (   Читать дальше...   )Жанр: ПсихологияИздательство: МИФПродолжительность: 08:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7466EF255BF3439CDB62E551C5D56E1F5B67674E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693863   (120979) от 25.01.2024
+
+Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Supervixen
+02.  Queer
+03.  Ony Happy When It Rains
+04.  As Heaven Is Wide(   Читать дальше...   )Жанр: Rock, Pop, Alternative Rock, Pop RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93347E0E592EDFF58F88658737E54ED2BE27AAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694512   (120980) от 25.01.2024
+
+Lucifer - Lucifer V (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Heavy Rock, Occult Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Angel (3:09)
+02. At The Mortuary (6:08)
+03. Riding Reaper (4:11)
+04. Slow Dance In A Crypt (4:28)(   Читать дальше...   )Жанр: Psychedelic, Heavy Rock, Occult RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6F7CD69A3E1424EBEAE64B29C87FEB72281774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694559   (120981) от 25.01.2024
 
 AnyMP4 iPhone Password Manager for Mac 1.0.20 [Multi/Ru]
@@ -6,7 +85,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120981.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120982.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:1FD179C2E80A6B805A833DB3CBE6E0CEBA1F6AA3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120983.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ LibreWolf 122.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120984.jpg" />
 </div>
 
 
@@ -107,7 +186,7 @@ magnet:?xt=urn:btih:D548BB066596BFEF25C35CCE7F2B18F8557E38BB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120985.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ magnet:?xt=urn:btih:E8412D668918F9A7F451811D66705EF29BC966CB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120986.jpg" />
 </div>
 
 
@@ -156,7 +235,7 @@ magnet:?xt=urn:btih:8D1B5ACA3457ECE648C924B3F546EE4560BDA5EF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120987.jpg" />
 </div>
 
 
@@ -181,7 +260,7 @@ magnet:?xt=urn:btih:29FA657DC1D3D13FCB149A4F16C9C6DA7011F931
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120988.jpg" />
 </div>
 
 
@@ -206,7 +285,7 @@ magnet:?xt=urn:btih:FA0253FA7DB7AEB05ACED9141D0445595E7581F4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120989.jpg" />
 </div>
 
 
@@ -230,7 +309,7 @@ DesktopOK 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120990.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ MuseScore 4.2.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120991.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ magnet:?xt=urn:btih:0E70E997554262B8BBC24F279C700959AF814631
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120992.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ Vivaldi 6.5.3206.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120993.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ Pixelmator Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120994.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ magnet:?xt=urn:btih:91D796C6DBA1BCA950FD4E979286AEB4B2645E36
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120995.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ magnet:?xt=urn:btih:23F81421A4CD45FCFB62B066AA7BB0129131452B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120996.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ John Wetton - Caught In The Crossfire (1980) Expanded Edition, 2024, Spirit Of U
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120997.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ AnyMP4 iPhone Unlocker 1.3.56 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120998.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ VA - Compilation Electronic part 46 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120999.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Emurasoft EmEditor Professional 23.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121000.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ magnet:?xt=urn:btih:99959E59BD746337219321972A2033DC3DEA0A4B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121001.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ VA - 100 Hits Ultimate Number 1s (2016) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121002.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ magnet:?xt=urn:btih:A57BC8F35C77219B2482D1C93C7049F0D222B4FF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121003.jpg" />
 </div>
 
 
@@ -568,81 +647,6 @@ magnet:?xt=urn:btih:A57BC8F35C77219B2482D1C93C7049F0D222B4FF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84944006F88E4FA3AE9ACF19F41883753337075E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692575   (121004) от 25.01.2024
-
-Японские физики добились квантовой когерентности при комнатной температуре — это упростит квантовые компьютеры
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласованные квантовые состояния боятся любых помех, что усложняет реализацию квантовых компьютеров. Для снижения шумов их охлаждают до запредельно низких температур, но в идеале квантовые системы должны работать при комнатной температуре, без чего невозможно их массовое применение. Возможно, в этом поможет новая работа японских учёных, которые смогли добиться квантовой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694224   (121005) от 25.01.2024
-
-FITLAB (ФИТЛАБ) | Эффективный автосервис. Курс руководителя. Курс для автосервисов (2023) WEB-DL  [RU]
-
->>Автомобили
->>Автомобильные обуч.видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записи четырех дней курса руководителя автосервиса от FITLAB (ФИТЛАБ).
-Скачано из офиса фитлаба сотрудниками.
-Этот курс малополезен для руководителей автосервисов так как заточен под франшизу, целыми днями разбирают бумажки.
-Ведущий в сервисе никогда не работал, верхушек нахватался и умничает - инфа сотка из пероисточника.(   Читать дальше...   )Производство: FITLAB (ФИТЛАБ)Жанр: ОбучениеЯзык озвучки: РусскийПродолжительность: 22:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A851BC3C9222BD9A7F16451DD46D21597924FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694149   (121006) от 25.01.2024
-
-Сармат (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативник главного управления по контролю за оборотом наркотиков МВД России Артём Стеклов совместно с коллегой из Сочи проводит операцию по задержанию Костика, сына крупного сочинского наркоторговца Виктора Хромова. В результате операции Костика арестовывают, а Артем дает против него показания. Опасаясь мести преступников, семью Артема направляют в безопасное место. (   Читать дальше...   )Производство: Россия / Berg Sound, MacCoffeeЖанр: боевикРежиссер: Ефрем НазаровАктеры: Максим Щеголев, Сергей Комаров, Майя Вознесенская, Сергей Холмогоров, Сергей Бадюк, Олег Каменщиков, Олег Доброван, Андрей Давыдов, Василий Шлыков, Нино ДеисадзеСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687252FDC01A24BA6D657E6ED034815846FB148A
 ```
 
 

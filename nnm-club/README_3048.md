@@ -1,3 +1,88 @@
+###  Публикация: 466414   (96303) от 11.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 67
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96303.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 67
+Название: Desktop Wallpapers Pack 67
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466409   (96304) от 11.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 66
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96304.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 66
+Название: Desktop Wallpapers Pack 66
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1280х960 до 2048х768
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466405   (96309) от 11.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 65
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96309.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 65
+Название: Desktop Wallpapers Pack 65
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1600х1200 до 2560х1920
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466417   (96310) от 11.03.2012
 
 [Wallpapers] Desktop Wallpapers Pack 69
@@ -6,7 +91,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96310.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96314.jpg" />
 </div>
 
 
@@ -58,7 +143,7 @@ magnet:?xt=urn:btih:3D2A8BD443F0C6E9A661731DF2D9E60CF3E4BE61
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96317.jpg" />
 </div>
 
 
@@ -89,7 +174,7 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96320.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96320.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96322.jpg" />
 </div>
 
 
@@ -152,7 +237,7 @@ Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96329.jpg" />
 </div>
 
 
@@ -184,7 +269,7 @@ VA - Black Flares Blue Noise vol.1 - compiled by DJ Mlf (2009) [FLAC|Lossless]<P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96333.jpg" />
 </div>
 
 
@@ -216,7 +301,7 @@ VA - Black Flares Blue Noise vol.1 - compiled by DJ Mlf (2009) [FLAC|Lossless]<P
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96338.jpg" />
 </div>
 
 
@@ -240,7 +325,7 @@ magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96339.jpg" />
 </div>
 
 
@@ -264,7 +349,7 @@ Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96343.jpg" />
 </div>
 
 
@@ -297,7 +382,7 @@ IBM представляет терабитный трансивер
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96345.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96345.jpg" />
 </div>
 
 
@@ -321,7 +406,7 @@ IBM представляет терабитный трансивер
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96346.jpg" />
 </div>
 
 
@@ -345,7 +430,7 @@ Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96348.jpg" />
 </div>
 
 
@@ -378,7 +463,7 @@ VA - The best from the West (2012) [MP3|256 кб/с]<Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96349.jpg" />
 </div>
 
 
@@ -411,7 +496,7 @@ VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96350.jpg" />
 </div>
 
 
@@ -444,7 +529,7 @@ Kaspersky TDSSKiller 2.7.19.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96352.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96352.jpg" />
 </div>
 
 
@@ -470,7 +555,7 @@ VA - Ретро Дискотека глазами диджеев (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96353.jpg" />
 </div>
 
 
@@ -503,7 +588,7 @@ VA - N-JOY Abstrait vol.1 (2011) [APE|Lossless]<Lounge, Ambient, Downtempo, Chil
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96356.jpg" />
 </div>
 
 
@@ -534,7 +619,7 @@ Google Chrome 18.0.1025.54 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96357.jpg" />
 </div>
 
 
@@ -560,7 +645,7 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96359.jpg" />
 </div>
 
 
@@ -593,7 +678,7 @@ magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96363.jpg" />
 </div>
 
 
@@ -618,7 +703,7 @@ Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96364.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96364.jpg" />
 </div>
 
 
@@ -651,7 +736,7 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96367.jpg" />
 </div>
 
 
@@ -667,87 +752,6 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
  08. Freaked Frequency - Dreamer (08:34)
  09. Freaked Frequency - The Flow (07:28)
  10. Freaked Frequency - Landing (07:24)(Bonus Track)Жанр: Psychedelic / Full OnПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466080   (96369) от 11.03.2012
-
-800 рецептов закусок [2010] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит более 800 рецептов всевозможных салатов, бутербродов и закусок, так называемый "холодный стол", приготовление которого не займет у вас много времени.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466081   (96376) от 11.03.2012
-
-Аравия / IMAX - Arabia (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96376.jpg" />
-</div>
-
-
-###  Подробнее
-
-фильм Аравия 3D IMAX перенесёт зрителей в глубь экзотической страны богатой 2000-летней древней историей.Зрители обнаружат потерянный город Мадаин Салех, изучат древние гробницы,отправятся в путешествие с караваном верблюдов,будут нырять среди коралловых рифов и затонувших кораблей в Красном море, ощутят тепло всемирно известного бедуинского гостеприимства, а также поучаствуют в ежегодном паломничестве, где собираются около двух миллионов мусульман, и является крупнейшим собранием людей на Земле.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466031   (96377) от 11.03.2012
-
-[T.3.R] - Романтика 21 века (2012) [FLAC|Lossless]<Goth, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рождение нации (04:33)
-2. Лица (04:27)
-3. Эпитафия (04:00)
-4. Морфий (03:44)
-5. Апатия (04:10)
-6. Без тебя (04:51)
-7. Романтика (03:30)
-8. Давай? (03:34)
-9. Zuruck: 1,2 (04:33)
-10. Пустые тела (03:05)(   Читать дальше...   )Жанр: Goth, IndustrialПродолжительность: 00:49:11
 
 ## Скачать торент
 ```bash

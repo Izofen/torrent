@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134609.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:DBAF6BC527090EBC80ECDBDBCF5C468ADC9D2A11
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134983.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:84F7F241CF044FB7017F98C7D91658ED3C86C9A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134985.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:EF4EC7F3DD44B9B43611DE598396452167B8DE07
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134991.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:BBCDB98027557967BE276829094A44F02109BBDF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135063.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CC015CD14738836C6D7232D9F01347FE7925882C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135069.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:907ADDF52E5C84E78919A38A6ADA5F604A93AB0A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135101.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:5B95D2499B75D9F9829B51BF0B0A149D2E977D59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135102.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0B38733D3E041C3C1A1E75EA1234ABA568E223FF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135315.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:F241841399E2F2377D59EF4E5AF70C0D25BDCA04
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135347.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135355.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:87D77EBAFD0760B542761F86CC01ECD3695824A3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135359.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135367.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136447.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B48FF405298592ACDCE2E64793D42CF2AD1C0D9D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137676.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6FD9FAC4D36DBDF93005E4ECA0B67714BC053556
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138278.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:214B9A46F99BA501577E8C3378CF920365B36DED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138895.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:BDFF35E6EE0FFA8F05858D53D26C143DD369083D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140302.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F5B356B625E2349F20FC190EA128D51BFA2A49E5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140509.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:BC6DBFBB368888972273DDCC8EABAACB84BD6929
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141023.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:C4873D3A62C0767B12BFDB5BC9678E0A84C106B1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141041.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:82670448227AF108589A4A17B581FCD57D53C141
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142546.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:BBAEF67E1D2ABCB36C2D5EA6A77B76692D2B0B7A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142793.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:1C57D0B8F19D0D36721D030FDC125CC68419C996
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142961.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:4DCB5DB4BF809D0CE55584B3542CF91263F49F04
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143096.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:945175B4758068543D26EFA11DDA684BA4911D67
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143561.jpg" />
 </div>
 
 

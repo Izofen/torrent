@@ -1,3 +1,177 @@
+###  Публикация: 1195100   (151095) от 27.12.2017
+
+Хоббит: Нежданное путешествие / The Hobbit: An Unexpected Journey (2012) HDRip [H.264] [MP4|1920x800] [Extended Cut]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о путешествии Бильбо Бэггинса, который пускается в грандиозный поход, целью которого является отвоевание утраченного королевства гномов Эребор у зловещего дракона Смауга. Совершенно неожиданно с хоббитом налаживает контакт волшебник Гэндальф Серый. Так Бильбо находит себя, присоединяясь к компании тринадцати гномов, возглавляемых легендарным воином, (   Читать дальше...   )Производство: США, Новая Зеландия / Metro-Goldwyn-Mayer (MGM), New Line CinemaЖанр: Фэнтези, ПриключенияРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитедж, Джеймс Несбитт, Кен Стотт, Грэм МакТавиш, Дин О’Горман, Эйдан Тернер, Джед Брофи, Марк ХэдлоуПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 03:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30FE2563208C6F780A99A96F191C827CB98F990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677351   (151096) от 17.11.2023
+
+VA - Ништяк, браток! Лей и пей (1996) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Гогин - Водочка
+02. И. Кучин - Босота гуляет
+03. Е. Лебедев - За наших
+04. Д. Шапиро - Гуляй, братва(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434327   (151097) от 24.12.2020
+
+Ирина Пигулевская | Исцеляющее питание при вирусах. От гриппа до COVID-19 (2020) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бороться с таким мощным врагом, как вирус, может только сильный организм. Чудодейственных лекарств от вируса нет. Лекарства могут только подстегнуть иммунитет, смягчить симптомы и справиться с вторичными осложнениями… Первостепенное значение при заболеваниях, вызванных вирусами, имеет питание, как во время болезни, так и в период восстановления после нее. Как сказал (   Читать дальше...   )Жанр: Здоровье, Здоровое и правильное питаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94B81747F15F2ED8911F93CC5A9F2B9BB930C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519055   (151098) от 22.12.2021
+
+Movavi Video Suite for Mac 2022 v22.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2022 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C523A44216C53209653B4DD4A6AF066DF3AFFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086358   (151099) от 24.12.2016
+
+AAct 3.1 Portable [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151099.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEE6552BD8ACB6A470EC72B6350FA86B1040A0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434365   (151100) от 24.12.2020
+
+Обет на крови / Klem (2018) WEBRip (сезон 2, серии 1-10 из 10) ColdFilm [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добропорядочный сотрудник налоговой службы узнает, что лучшая подруга его дочки – дочь опасного преступника, только что вышедшего из тюрьмы. Забирая дочь от подружки, он невольно спасает бандиту жизнь и неожиданно становится его… другом.Производство: Нидерланды / Verenigde Arbeiders Radio AmateursЖанр: драмаРежиссер: Франк Кетелаар, Альберт Жан ван Риис, Симон ван ДюссельдорпАктеры: Барри Атсма, Якоб Дервиг, Джорджина Вербаан, Мари-Мэй ван Зейлен, Йенте Бос, Зои Кузелл, Dunya Khayame, Бодил де ла Парра, Ad Knippels, Нхун Дам и др.Перевод: Многоголосый любительский (ColdFilm)Продолжительность: ~00:52:00 серияРеклама: Присутствуют аудио, видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DF1B7B41B4C4B39E7CAE4686089FCC30CF69EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271248   (151101) от 22.12.2018
+
+Bryan Adams - Video Collection от ALEXnROCK (2018) WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это почти полное собрание клипов великого музыканта, а так же бонус дополнение, лучшие концертные выступления. Ремастеринг видео и звука. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Bryan Adams - Intro
+01 Bryan Adams - All I Want Is You
+02 Bryan Adams - Summer Of '69
+03 Bryan Adams - (Everything I do) I do it for you(   Читать дальше...   )Жанр: RockПродолжительность: 03:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83AAF8DF37E33BE7A695E419D4535C50AA7A36A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347058   (151103) от 23.12.2019
 
 Леди и Бродяга / Lady and the Tramp (2019) WEBRip [H.265/2160p] [HDR, 10-bit] [MVO]
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151103.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ Mozilla Firefox Quantum 57.0.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151104.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:18B6BB77C6D6CB5179C0C12AB05C06784950863C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151105.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ VA - D.Trance 104 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151106.jpg" />
 </div>
 
 
@@ -105,7 +279,7 @@ magnet:?xt=urn:btih:C3AA66F3190949FC9542DC8D1EB83E73EAC5FA88
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151107.jpg" />
 </div>
 
 
@@ -129,7 +303,7 @@ Movavi Video Editor Plus 14.2.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151108.jpg" />
 </div>
 
 
@@ -153,7 +327,7 @@ magnet:?xt=urn:btih:E8EF56A522809EAF6D9BC5F3B0ADF74D297DE52D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151109.jpg" />
 </div>
 
 
@@ -177,7 +351,7 @@ magnet:?xt=urn:btih:33BCB5EC280A50DF2E43C7D669B29F690CCCB4DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151110.jpg" />
 </div>
 
 
@@ -201,7 +375,7 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151111.jpg" />
 </div>
 
 
@@ -226,7 +400,7 @@ ReviverSoft PC Reviver 3.12.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151112.jpg" />
 </div>
 
 
@@ -250,7 +424,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151113.jpg" />
 </div>
 
 
@@ -274,7 +448,7 @@ magnet:?xt=urn:btih:54D691F9AD1CC8C6B639B6CDEDA259F2DCE59656
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151114.jpg" />
 </div>
 
 
@@ -300,7 +474,7 @@ magnet:?xt=urn:btih:29D60EA4341DAD5DF16754E357C5FC580E0242BF
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151115.jpg" />
 </div>
 
 
@@ -324,7 +498,7 @@ magnet:?xt=urn:btih:29D60EA4341DAD5DF16754E357C5FC580E0242BF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151116.jpg" />
 </div>
 
 
@@ -348,7 +522,7 @@ David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151117.jpg" />
 </div>
 
 
@@ -375,7 +549,7 @@ VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151118.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ magnet:?xt=urn:btih:37147A51A7F38BEA4DEA0439D5AAECFB50D14943
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151119.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ magnet:?xt=urn:btih:FF50AF2D290026A2E70F6E08A551111DB9050369
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151120.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ magnet:?xt=urn:btih:E4515D42F94D910846B2CDAD007E8C308AB8C95D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151121.jpg" />
 </div>
 
 
@@ -461,180 +635,6 @@ magnet:?xt=urn:btih:E4515D42F94D910846B2CDAD007E8C308AB8C95D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1349132A6EEF86E2CD094F2F9E3716D198ABB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518047   (151122) от 22.12.2021
-
-Евгений Солодухин: Коллекция Чистых Голосов / Solod: Clearvoices Collection (2021)
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все имеющиеся чистые голоса от Евгения Солодухина (Solod).Продолжительность: 00:21:00-03:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D620BAE6E91E420C0A1F53090B24CD54B585762F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434442   (151123) от 24.12.2020
-
-Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Love (3:28)
-02. I'm a Man (2:58)
-03. Into the Night (4:34)
-04. Nothing Will Be Here (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358750EAA9DCB40917A1A0B19A2F90D6A32E5D14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086398   (151124) от 24.12.2016
-
-Грег Перри, Дин Миллер | Программирование на С для начинающих. 3-е изд (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое и понятное руководство по программированию на С поможет быстро научиться программированию. Пoдробные объяснения и интересные примеры сделают процесс обучения легким. Вы легко освоите все основные функции C и сможете создавать программы любой сложности.Жанр: Программирование на CФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677288   (151125) от 17.11.2023
-
-Из-за тебя / Because of You (1952) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о молодой женщине Кристине Кэрролл, которая по вине своего жениха, оказавшегося гангстером, попадает в тюрьму. После выхода на свободу она устраивается медсестрой в госпиталь, где у неё начинается роман с раненым боевым лётчиком Стивом Кимберли. Вскоре они женятся, и у них рождается ребёнок. Однако Кристина так и не может рассказать мужу о своём (   Читать дальше...   )Производство: США, Universal International PicturesЖанр: драма, мелодрамаРежиссер: Джозеф ПивниАктеры: Лоретта Янг, Джефф Чандлер, Алекс Николь, Фрэнсис Ди, Александр Скурби, Линн Робертс, Гэйл Рид, Мэй Кларк, Билли Уэйн, Моррис АнкрумПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF945D8098ABB7AE34677647674ADFCA8D736271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968966   (151126) от 25.12.2015
-
-Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Taxi (04:24)
- 02. Sanso Sheep (05:22)
- 03. Jelly Fish (03:58)
- 04. Wendy (04:48)(   Читать дальше...   )Жанр: Downtempo, Ambient |Продолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CE4D33C70D675E6026DE66C42D4622599D4347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347318   (151127) от 23.12.2019
-
-Матрица: Революция / The Matrix: Revolutions (2003) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока армия Машин пытается уничтожить Зион, его жители из последних сил держат оборону. Но удастся ли им предотвратить полное вторжение в город кишащей орды беспощадных машин до того, как Нео соберет все свои силы и положит конец войне?Производство: США / Warner Bros., Village Roadshow Pictures, NPV EntertainmentЖанр: фантастика, боевикРежиссер: Лана Вачовски, Лилли ВачовскиАктеры: Лоуренс Фишборн, Киану Ривз, Хьюго Уивинг, Брюс Спенс, Моника Белуччи, Джада Пинкетт Смит, Натаниэль Лис, Ламбер Уилсон, Харольд Перрино-мл., Джина ТорресПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7917111CE8902866CE1837AF831E141235C232C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434351   (151128) от 24.12.2020
-
-Тальк / Borotalco (1982) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В надежде набраться опыта и поправить карьеру, неудачливый агент по продажам музыкальных энциклопедий Серджо договаривается с бойкой коллегой Надей поработать один день вместе. Однако в результате их встречи у "архитектора Мануэля Фантони" Серджо попадает в невероятную и забавную ситуацию, из которой трудно будет вырваться...Производство: Италия / Intercapital, Radiotelevisione Italiana (RAI)Жанр: КомедияРежиссер: Карло ВердонеАктеры: Карло Вердоне, Элеонора Джорджи, Кристиан Де Сика, Анджело Инфанти, Энрико Папа, Роберта Манфреди, Марио Брега, Иза Галлинелли, Нандо Маринео, Даниэла ФеррариПеревод: Одноголосый любительский, А.ГерусовСубтитры: Русские, итальянские, английскиеПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7660082B11B6C8B23DF783146E7F0D9A84DFE89
 ```
 
 

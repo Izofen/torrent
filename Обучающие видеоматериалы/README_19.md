@@ -6,7 +6,7 @@ Skillbox, Павел Баракаев, Владислав Малыхин | Пр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37634.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2B1A480E750C172D4570213C9C3172D6A4E88E9F
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39031.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:14F10AFD8F1E33B0A2F378239406D30BF5AC5026
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39049.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39127.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39128.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39129.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:422CAA62B9FBEDFCBC103BCA6148CAB86089777F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39147.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39153.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VFX Grace | Blender Creature Effects - The Complete WorkFlow - Modeling (2024) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39230.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39252.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ George Vondriska | Необходимые техники заточки (2015) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39314.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:425977B2443012442D335E2331B28E1875A7C0C0
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39408.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ EducationMarine, Василий Березовский | Chief officer on oil ta
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39432.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39446.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:7D464B0DB2993C13D82236BDC8A5DDDBACC1FEF5
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39802.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Udemy, Pete Jepson | Make a Multiplayer Game in Unity 2024-1 (2024) WEBRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41092.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Linkedin.com, Brenda Romero | Основы игрового дизайна, ча
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41096.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger  | The Complete Unity C# Game Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41211.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger | The Complete Unity C# Game Develope
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41219.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41234.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41244.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:63391119D19DEEB131F16CE57661A169B51251B2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41488.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:632F81C13110056B85A77050CAF35DB34AE95EB3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41546.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42083.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3A83E331D3ED3D4C0D7D0E015FB189DB201DF196
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42691.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:594424955596FB83237093996E08787D25E0FDD0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42696.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135968.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Computer Desktop Wallpapers Collection (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135969.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Winter Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135973.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B0D2A65891EECB18C797A158437F7C305A01A12F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135975.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Best HD Wallpapers Pack (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135977.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Computer Desktop Wallpapers Collection (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135985.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Interior Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135986.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wise Disk Cleaner 7.72 Build 529 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135987.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135987.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Graffiti Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135988.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sexy Girls Wallpapers (21.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135990.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ National Parks Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135992.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Interior Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135994.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:92D2837A8C409B8407DC931CA792E8F304977034
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135998.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Monster Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135999.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wallpapers Sexy Girls (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136001.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Nature Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136002.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Sexy Girls Pack Wallpapers (21.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136003.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Wallpapers Sexy Girls (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136007.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Gilrs Wallpaper (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136009.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Sexy Girls Wallpapers (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136012.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sexy Girls Pack Wallpapers (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136013.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Gilrs Wallpaper Collection (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136015.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sexy Girls Pack Wallpapers (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136016.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sexy Girls Wallpapers (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136017.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Desktop Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136019.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ The Ultimate PID Checker 1.1.3.590 (20.12.2012) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136045.jpg" />
 </div>
 
 

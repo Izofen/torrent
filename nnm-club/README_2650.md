@@ -6,7 +6,7 @@ Worms Collection (2012) [PS3] [USA] 4.40 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69648.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Wipe & Clean 20.0.2498 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69649.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E8EDEFF7A9C54EE8CF2C1C30F2A6C3E03CFDEE23
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69650.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Telegram Desktop 5.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69651.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1B33595C81914434BEE553F06FC88DBD8927CC56
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69652.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E46EF0DFFA41198FCE9701C20ABAF1849C8443E8
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69653.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ PianoMeter – Piano Tuner v3.4.2 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69654.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69655.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69656.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69657.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69658.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Photo Supreme 2025.0.3.7437 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69659.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ TuneIn Radio Pro v37.5.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69660.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:4D4C0DA597F209D8232D5F9E2FCE10C15F61C012
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69661.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:20A95EA747D3BDB4737F41893FC9DBEC87D3A71F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69662.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B515D512347A24C98EC2F68925CA784A0177F367
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69663.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:6F928628E275E66712794B3F10099CA2C831D5A4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69664.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:BE201A4980B5DC637798D87BFCCB69186FEBCE41
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69665.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Houston Person & Ron Carter - Remember Love (2018) HighNote Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69666.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Deathless Legacy - Damnatio Aeterna (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69667.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5049631C7E44ACCE7AE4405957D6AA4612136BAA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69668.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:7FAEF2765C71D92D4F593A2CD9246727DB7990FA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69669.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Bud Powell - Live at the Blue Note Cafe, Paris (1961) 2007, ESP-Disk' [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69670.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Art Pepper - Among Friends (1978) 1988, Discovery Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69671.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Bud Powell - At The Blue Note Cafe, Paris (1961) 1990, Magic Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69672.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Art Pepper - Living Legend (1975) 2006, Victor [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69673.jpg" />
 </div>
 
 

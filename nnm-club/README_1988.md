@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9929053E579ECD8330BE16AF0407C4C2A5B611E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52053.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Graceless - Icons Of Ruin (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52054.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52055.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Malwarebytes Windows Firewall Control 6.19.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52056.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2871BE89024F4E14A931011BF0809419CDCD282A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52057.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1F7A80F532065E0C9882309066851CD4F377B77E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52058.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0AE43E9218B2F912FF5E8A8AD0D871728B332119
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52059.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Led Zeppelin - Live EP (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52060.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:15763F6FBA7C270CB1CF3DDEFB2504B4A32613B1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52061.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:6C1FE8C57C4E2EC4B7D0EEC8A973BDA6B4C5A657
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52062.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:57A66E67467EEF819522E9CF209A66A83234BB87
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52063.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:5BAD14B3AAA85D27A236FA36A7117943A1A20589
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52064.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:600E994BF7EF8172965C5A2E54B8BBC769AB9534
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52065.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5632CE22AF69C968F0221F4856226C1FB6ECA280
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52066.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:91D7D33AB982571E28FBA6AD56F7A6E7D17A0785
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52067.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52068.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:4E7C0913990599F42043F568B278F78C8C7EB8C8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52069.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Reg Organizer 9.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52070.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:57D11966C1D297347F64B8311139EAAE93AE94D3
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52071.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52072.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5A5FD06351B94841B711B85229C43F747A54BE68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52073.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Soft Organizer Pro 10.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52074.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:5D5AA9A67B2B11D737C1D3F2CBF3B198C1BE2534
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52075.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:17F98F0146DFAEB2884C209A222742FE55D31CE7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52076.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:AC0714DF5B9AAA5F36FF9FD8D6AF483F6EEBC52B
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52077.jpg" />
 </div>
 
 

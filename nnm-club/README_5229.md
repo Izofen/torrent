@@ -1,3 +1,179 @@
+###  Публикация: 1598894   (161391) от 21.12.2022
+
+Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) SoulFactory [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Groove Merchant [7:13]
+02. September in the Rain [4:20]
+03. Cheek to Cheek [7:34]
+04. Someone's Rocking My Dreamboat [5:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8236BD6AA9CC7F0EB10859463CE1F8D988C3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433472   (161392) от 20.12.2020
+
+AudioFinder 6.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161392.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioFinder — программа для управления вашей фонотекой.
+С ее помошью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Iced AudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529984FAAC965CE64A0C95CF6B5603374BB80E33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598948   (161393) от 21.12.2022
+
+WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161393.jpg" />
+</div>
+
+
+###  Подробнее
+
+WidsMob ImageConvert - универсальный конвертер фотографий, позволяющий обрабатывать сотни или тысячи изображений одновременно. Если вам нужно преобразовать RAW в JPEG, изменить размер, сжать, переименовать, добавить границу, добавить водяной знак в текст или изображение, вы всегда можете превратить фотографии в желаемый формат одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5C1FF123BA2759A95FD0E00D451955E2515C10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433423   (161394) от 20.12.2020
+
+Яна Перепечина | Непридуманная сказка (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161394.jpg" />
+</div>
+
+
+###  Подробнее
+
+После свадьбы, которой обычно заканчиваются фильмы и книги, начинается настоящая жизнь… Иногда далеко не такая радужная, как хотелось бы. Но две подруги, Ангелина и Александра, продолжают мечтать: одна страстно хочет стать матерью, а другая ищет свою любовь. Только мечты, которые они стремятся воплотить в жизнь, почему-то больше похожи на страшные сказки. Однако (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE348D64303511BA5C06B8A4B3505D099C7BAB5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598957   (161395) от 21.12.2022
+
+djay - DJ App & AI Mixer 4.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161395.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B797D4B3FBBDF5A2D35331A0B2E3E76A06A10D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517917   (161396) от 17.12.2021
+
+Давид Муате | Проект «Новая Земля» (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161396.jpg" />
+</div>
+
+
+###  Подробнее
+
+2125 год. Уровень мирового океана поднялся на десятки метров. Сохранившиеся клочки суши перенаселены. Лишь немногие избранные – Неприкосновенные – живут под куполом, не знают нужды, любуются растениями и питаются свежими овощами. Остальные – Серые, обитатели трущоб, мечтают лишь о выигрыше в лотерею, гарантирующем место на «Новой Земле».
+Каждую неделю миллион счастливчиков (   Читать дальше...   )Жанр: Социально-психологическая фантастикаПеревод: Наталья КлючарёваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986C291BA0EF0718B5023CF96A53E5DE41B54D31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433126   (161397) от 20.12.2020
+
+Ермак! - Птицы (2020) [MP3|320 Kbps] <Post-Hardcore, Chaotic-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На память (Instrumental) [00:03:56]
+02. Из колодца видно звёзды (Instrumental) [00:04:13]
+03. Отрок (Instrumental) [00:04:00]
+04. Дотла (Instrumental) [00:02:58](   Читать дальше...   )Жанр: Post-Hardcore, Chaotic-HardcoreПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6961CB900DC24A04DADD9919CCC15D1F81BFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598974   (161398) от 21.12.2022
 
 FrameMagic - Collage Maker Pro 3.6.7 [Multi]
@@ -6,7 +182,7 @@ FrameMagic - Collage Maker Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161398.jpg" />
 </div>
 
 
@@ -31,7 +207,7 @@ magnet:?xt=urn:btih:6356DE6D363304D81DD6DD99D1E30A816C3093B1
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161399.jpg" />
 </div>
 
 
@@ -55,7 +231,7 @@ magnet:?xt=urn:btih:B228BC10A5A665BD9B40770B92F24223530D365E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161400.jpg" />
 </div>
 
 
@@ -79,7 +255,7 @@ Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161401.jpg" />
 </div>
 
 
@@ -106,7 +282,7 @@ Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161402.jpg" />
 </div>
 
 
@@ -133,7 +309,7 @@ magnet:?xt=urn:btih:12CF20A3E1A0C6C1864DD70D84F486F208D01802
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161403.jpg" />
 </div>
 
 
@@ -157,7 +333,7 @@ Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161404.jpg" />
 </div>
 
 
@@ -184,7 +360,7 @@ magnet:?xt=urn:btih:D0BED57F6E43005847D97144863AA7DA84CC1EA9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161405.jpg" />
 </div>
 
 
@@ -211,7 +387,7 @@ magnet:?xt=urn:btih:53544C6EE57E0FB71B20945A5B63E163EECA5207
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -237,7 +413,7 @@ Binary Creed - A Battle Won (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161407.jpg" />
 </div>
 
 
@@ -264,7 +440,7 @@ magnet:?xt=urn:btih:9FE2F55373DBD98B729EF06C0FFBD66658BFC42D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161408.jpg" />
 </div>
 
 
@@ -289,7 +465,7 @@ El Mashe - Спасение утопающих (2020) [MP3|320 Kbps] <Alternativ
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161409.jpg" />
 </div>
 
 
@@ -316,7 +492,7 @@ EverWeb (Standalone) 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161410.jpg" />
 </div>
 
 
@@ -341,7 +517,7 @@ magnet:?xt=urn:btih:D3D0E6515D5BCD2F9FE561C0B3FC845F66000270
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161411.jpg" />
 </div>
 
 
@@ -365,7 +541,7 @@ Wondershare Recoverit for Mac 12.0.17.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161412.jpg" />
 </div>
 
 
@@ -390,7 +566,7 @@ Separation Studio 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161413.jpg" />
 </div>
 
 
@@ -414,7 +590,7 @@ magnet:?xt=urn:btih:DBB3E03EA3A00F6F487C972F2EBD41244E6C606E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -438,7 +614,7 @@ magnet:?xt=urn:btih:434D4B62DB45AF3A1299CADC742A7C58C35167E2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161415.jpg" />
 </div>
 
 
@@ -464,7 +640,7 @@ WidsMob Montage 2.26 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161416.jpg" />
 </div>
 
 
@@ -476,192 +652,6 @@ WidesMob Montage должен быть отличным производител
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4312947E4EA2847FEAC951514423BAC309143F16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433252   (161417) от 20.12.2020
-
-Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - For Those In Love:
-01. I Get A Kick Out Of You [6:20]
-02. Blue Gardenia [5:20]
-03. Easy Living [5:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D43849AAD13E248A155BAFDE1860002702898FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517783   (161418) от 17.12.2021
-
-Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вояджер-1 (Interview)
-2. Вояджер-1
-3. Выход в город (Interview)
-4. Выход в город(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9133F8BB83D813000E8DEA70D13A5C7EC1A36A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598847   (161419) от 21.12.2022
-
-Robert Connely Farr - Shake It (2022) [FLAC|Lossless|WEB-DL|tracks] <Marsh blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screamin' and Hollerin' (2:46)
-02. Going Away to Leave You (2:39)
-03. Ain't No Other Way (3:21)
-04. Miss My Baby (4:17)(   Читать дальше...   )Жанр: Marsh bluesПродолжительность: 00:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEB039B24FEAAADB876513AC031690503ED2A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674432   (161420) от 05.11.2023
-
-Газета | Тайны и загадки №5 (59) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета для тех, кто привык быть в курсе самой интересной информации. На страницах газеты все тайны и секретные материалы нашей цивилизации - из глубины веков до наших дней! Много удивительных и загадочных фактов, громкие расследования, нераскрытые тайны истории, парадоксы знаменитых личностей, тайны и загадки исторических архивов.Жанр: Популярный журналИздательство: ООО "ИД "Пресс - Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD85515308C0A57C3DD61F161A168AD391454E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517964   (161421) от 17.12.2021
-
-VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lena Shery (Е. Михайлюкова) - Why [04:02]
-02. Blues Family - Came Back to You [04:28]
-03. Lamba Blues Band (Е. Ламба) - Give me Light [05:32]
-04. Blues Doctors (В. Демьянов) - Junkie For the Music [03:39](   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05FE274477F69F7231FE8F5ADC9582F991A6FC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433317   (161422) от 20.12.2020
-
-Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161422.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rio
-2. Hbls Mucho
-3. Al Fondo de Mi
-4. Puro Pasado(   Читать дальше...   )Жанр: Latin, Indie, Folk, PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598937   (161423) от 21.12.2022
-
-Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Крик ищущих [00:01:48]
-02 - Не сдюжили мы, Батя [00:02:27]
-03 - Слепота [00:03:16]
-04 - Когда мы станем говорить [00:02:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
 ```
 
 

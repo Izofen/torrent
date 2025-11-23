@@ -6,7 +6,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44205.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7876AAD8212BD9D515D8D46F6B3E30BE8F1B4DA2
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:792DAED425BB18474F4DDD63FD8FEF0FBCAD4C60
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44232.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:888DEA28F5212C603DE89B8103C0B02F5F81A31D
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44369.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:391F487DDA8E02E99ABD2719E990C53FE253AFFF
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44381.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8985BA409FA6B8016F164B13B4A067AB6ACAFD81
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44474.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NMG | Автомобильная энциклопедия Кирилла и Ме
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44483.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1114BA3BB7041A07E53561947AC31F0A6938BBEA
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44581.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0AAAED4D3BBB3B8DEB898C727D0D7D66F03C2CE9
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44582.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D9F6AB61145484C5A5F7559CC6A34E773240400F
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44586.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Stepik, Артем Егоров | Продвинутый python: заряди с
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53070.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:0FAF5C5E592A15AB974455EC0DE011AE08FFF969
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54644.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:CE3E9FD20FB431AAF0213983A5C732E895A47345
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56530.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:AEBD8A4E03379C29BB755E5905A16D69E333535F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57114.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Stepik, Илья Перминов | Django 5 для начинающих & Пр�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57383.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Venator Browser | Закладки, каталог и статьи из OSINT б
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57649.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5068C9DB22F42B245EB3ABAE0B55164AF037E617
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60699.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:FEB5842A49B3206E6CE32BDB4DBB969A9B136D29
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63531.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:43FD855AA2F855496704775C47B1E253F140A0BB
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75146.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:570C0F035D80B3DD0EE9F51F783C81F845339726
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76380.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Encyclopaedia Britannica Ultimate Suite [ENG] [2012] [ISO]
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77002.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B31A7BFF161F5C590438CC3F4BBCE2014C6883A2
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79209.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:AC7B6A7C3D45399A3DDC5FDF2F27CCC1A88B4FE6
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79513.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F74B62D2A1B24490DB9D4788BF71E492B45802CE
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82167.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:632074DBE37609E7F3337FB98286A3B992BA8B85
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82437.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:A53D2644E610CAD942EE216366EE0F5E07F15CAB
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85017.jpg" />
 </div>
 
 

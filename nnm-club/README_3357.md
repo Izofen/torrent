@@ -1,3 +1,84 @@
+###  Публикация: 1735140   (106964) от 07.07.2024
+
+Mystery - Mind Pollution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Writing on the Wall (5:18)
+02. Dead by Sunday (3:14)
+03. Mad Man (4:46)
+04. Fantasy (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC1FA6060F4852B1D7A0D7E7B69EAB52B99E93D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735233   (106965) от 07.07.2024
+
+Normal Like Us - The Devil and the Whipping Post (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acorn Man (3:28)
+02. I Never Burned a Witch (4:25)
+03. Ol' Time Religion (4:30)
+04. Hoodoo Love Spell (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D894DF60E1A4F9EE10E598DA16EE4F3B1A0337B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735128   (106966) от 07.07.2024
+
+Scarlet Bandit - Lose Your Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Emo, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Will Be Alright I (0:50)
+02. Young and Feral (3:30)
+03. Leak in the Roof (3:34)
+04. California (4:01)(   Читать дальше...   )Жанр: Alternative Rock, Emo, Glam RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4B2A4DA15C1BADFAC4E70C34CB482BCD11D5FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735235   (106967) от 07.07.2024
 
 Payback - Never Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Payback - Never Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106967.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106968.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Saltatio Mortis - Finsterwacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Medieval Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106969.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Shattered - Darker Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106970.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Pyrograph - Pyrograph (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106971.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Kung Fu Overdrive - Kung Fu Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106972.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Fem Snabba - Pupiller (серия "Другие восьмидесятые") (19
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106973.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party o
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106974.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ magnet:?xt=urn:btih:0262DFB2EC8404ABD0F0841946C95C89081FC164
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106975.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106976.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106977.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ Black Tiger - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106978.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ PowerDirector – Video Editor v14.2.0 b2407050 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106979.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ magnet:?xt=urn:btih:013BD5F9A4488CC27893879422635DF17933E7DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106980.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ magnet:?xt=urn:btih:913F50921CFAF6C9BBB71B05A25DD18E8653D450
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106981.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:BC423D52FF770A56E86F2049A38E9265A13FFA45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106982.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ The Alan Parsons Project - Vulture Culture (Sessions) (1985) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106983.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, spa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106984.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106985.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106986.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ Dean Wingerter - Crazy Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106987.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ VA - Deep-House Heaven, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106988.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ Count Basie - Live At The Chatterbox, Pittsburg, Pennsylvania (2001) [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106989.jpg" />
 </div>
 
 
@@ -603,81 +684,6 @@ Count Basie - Live At The Chatterbox, Pittsburg, Pennsylvania (2001) [WavPack|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C912BFF76BA5ACD3FE7D8C03C754528B2C4938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735001   (106990) от 06.07.2024
-
-Johnny Griffin - Sextet (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stix' Trix [7:43]
-02. What's New? [7:53]
-03. Woody'n You [6:12]
-04. Johnny G.G. [9:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BBB75C0E2F95C90961D919E272E88E76ECAC78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734987   (106991) от 06.07.2024
-
-Джонатан Слат | Совы во льдах (2023) [MP3, Владимир Капитонов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это аудиокнига о рыбном филине, одной из самых больших сов в мире. И это аудиокнига американца о России. Пернатый гигант селится в девственных лесах поблизости от водоемов, богатых рыбой, и как раз такие условия пока еще можно найти в российском Приморье на Дальнем Востоке. Вот почему именно здесь произошла встреча начинающего орнитолога Джонатана Слата с таинственной (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 13:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BD4BC68DF58D4349774987535007645B0262D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735070   (106992) от 06.07.2024
-
-MotoGP. Этап 09 из 20. Гран-при Германии. Квалификация (06.07.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106992.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 июля 2024, суббота. 11:50 МСК. Этап 9, Хоэнштайн-Эрнстталь. Гран-при Германии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6113D3F5D50011F0F9A24B0EDB427EB90C756C4E
 ```
 
 

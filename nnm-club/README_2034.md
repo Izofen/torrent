@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F40BED8977FB0F0D4A50698747AB40E3A6BB9F3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53250.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2E4942AFC709402A867CF7E8FAB058874032B97E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53251.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:AF66D8861145B037B9D7F435819E5A42BF5856A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53252.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. / Studio Apartment, Good Lighting, Angel
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53253.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53254.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:043F927B73E7A9A49CC6E1BEC49625E2DF276AC6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53255.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F94E87831BA0ADA08B9CFDAD409CA269454B094E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53256.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:FF3B3B0BBBF725D4C1E37C4C7760495CAA3FB959
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53257.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53258.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F8C573A6D266411383CB12DA9DA1DFACB7720DA5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53259.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F8C573A6D266411383CB12DA9DA1DFACB7720DA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53260.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53261.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:359B77E16CE9B3F6B631D6FF1C90C83B00ED3090
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53262.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2D09F12DEE7C244ADA739150E5853D145ED6F187
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53263.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:078188E6232CEBA125725CE320A0ABCFAFA5878F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53264.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PBS. Величайшие природные памятники планеты /
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53265.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Rainlendar Pro 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53266.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53267.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ JetBrains PhpStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53268.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:EFA76D8A29C0F0B64BA2DE15424458D640CA3E0F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53269.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ CrystalDiskInfo 9.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53270.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:8D78D414FB315A82D60A909F95D34EA5691DA8E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53271.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Bach - Complete Works (2001) 160CD Box Set [FLAC|Lossless|tracks]<Classical>
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53272.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 06.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53273.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53274.jpg" />
 </div>
 
 

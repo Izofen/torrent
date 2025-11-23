@@ -1,3 +1,174 @@
+###  Публикация: 1597427   (166093) от 15.12.2022
+
+Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl, Avant Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleur du mal [00:03:56]
+02. Apparitions [00:04:35]
+03. Hierarchical rotating schizophrenia [00:11:07]
+04. Voyager [00:06:38](   Читать дальше...   )Жанр: Progressive Rock, Zeuhl, Avant ProgПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA0A7B8DA799A1473E881E9D90BA59D381D322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431756   (166094) от 15.12.2020
+
+Журнал | Information security / Информационная безопасность №4 (сентябрь 2020) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30191386F00987115C76D69ED3C70380F90BAEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672304   (166095) от 31.10.2023
+
+Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eurobeat>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-If You Come Back (6:31)Жанр: Pop Trance, EurobeatПродолжительность: 00:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345616   (166096) от 15.12.2019
+
+Skype 8.55.0.141 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype — программа от Microsoft, с помощью которой вы можете бесплатно звонить во все уголки мира. Skype создан авторами KaZaA. Сеть Skype базируется на прогрессивной P2P (peer-to-peer) технологии. Качество передачи голоса очень хорошее. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1808102545CD024B5FE7FBECCBD5BD5A62CE9928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673173   (166097) от 31.10.2023
+
+Vivaldi for Android 6.2.3110.143 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vivaldi для Android — это новый приватный веб-браузер со встроенной бесплатной блокировкой рекламы, защитой от слежки и безопасной синхронизацией между устройствами.Тип издания: Free OriginalРелиз состоялся: 28.09.2023Разработчик: Vivaldi Technologies ASПоддерживаемая ОС: Android7+Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516499   (166098) от 11.12.2021
+
+Надин Бёрк Харрис | Колодец детских невзгод. От стресса к хроническим болезням (2021) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Надин Бёрк Харрис, известный врач, оказывающий помощь детям с психологическими травмами, проводит глубокое исследования по выявлению связи между неблагоприятным детским опытом и развитием заболеваний. Это трогательная история, в которой Надин показывает судьбы маленьких и взрослых героев, а также делится собственной скорбью. Стараясь забыть тяжелое детство, (   Читать дальше...   )Жанр: Воспитание детей/Детская психология/Литература для родителейПеревод: А.В. СоломинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F7C9E130FA7DC144D726586C182D296A8BDF1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431333   (166099) от 15.12.2020
+
+Журнал | Современная светотехника №1 (2020) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166099.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Современная светотехника» – издание, посвященное анализу проблем светотехнической отрасли, вопросам разработки, производства и внедрения современных энергоэффективных решений в области светотехники. В журнале публикуются последние новости отрасли, рассматриваются проекты, выполненные различными компаниями, печатаются статьи о новых разработках светотехников и дизайнеров. (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0218ECD889C65E47A3CBEE2DF5EACCEF0688D800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345629   (166100) от 15.12.2019
 
 Yesterday / Yesterday (2019) DVD9
@@ -6,7 +177,7 @@ Yesterday / Yesterday (2019) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166100.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:91C9576C031411848E6CD0EE6658760F2946932A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166101.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ WindowManager 10.13.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166102.jpg" />
 </div>
 
 
@@ -78,7 +249,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166103.jpg" />
 </div>
 
 
@@ -104,7 +275,7 @@ magnet:?xt=urn:btih:B2C02824DFD0820D1962B65E58CBC4403592DF48
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166104.jpg" />
 </div>
 
 
@@ -128,7 +299,7 @@ magnet:?xt=urn:btih:DB8856A8475FD9A39EA6D34CE936B6EDEAC301AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166105.jpg" />
 </div>
 
 
@@ -152,7 +323,7 @@ Opera One 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166106.jpg" />
 </div>
 
 
@@ -176,7 +347,7 @@ magnet:?xt=urn:btih:6D316AE927FBAE7DBD4B67449DEBE96963447538
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166107.jpg" />
 </div>
 
 
@@ -200,7 +371,7 @@ magnet:?xt=urn:btih:33FFA69F6E7F948C9FA146B80F81520E3AF7DF74
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166108.jpg" />
 </div>
 
 
@@ -224,7 +395,7 @@ Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166109.jpg" />
 </div>
 
 
@@ -251,7 +422,7 @@ Any Video Converter Ultimate 6.3.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166110.jpg" />
 </div>
 
 
@@ -275,7 +446,7 @@ magnet:?xt=urn:btih:7013BA945628715BE691F033D5C457A072B0A510
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166111.jpg" />
 </div>
 
 
@@ -299,7 +470,7 @@ ScreenFlow 10.0.10 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166112.jpg" />
 </div>
 
 
@@ -325,7 +496,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166113.jpg" />
 </div>
 
 
@@ -352,7 +523,7 @@ magnet:?xt=urn:btih:0F96C61881D6176211AE62E0C123119EC0885D3E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166114.jpg" />
 </div>
 
 
@@ -376,7 +547,7 @@ magnet:?xt=urn:btih:D96D3427DF48E057604DF5BDD72C451F373620BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166115.jpg" />
 </div>
 
 
@@ -403,7 +574,7 @@ magnet:?xt=urn:btih:41B87B23F7F1F340011BFD93F2D0A576C63E0C79
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166116.jpg" />
 </div>
 
 
@@ -427,7 +598,7 @@ magnet:?xt=urn:btih:A0A093DEFC0B92F9E5502009144F970B7B71046C
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166117.jpg" />
 </div>
 
 
@@ -452,7 +623,7 @@ magnet:?xt=urn:btih:9B0E844131EF8F4C0585891DC2F8DA54A9B77A44
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166118.jpg" />
 </div>
 
 
@@ -463,184 +634,6 @@ magnet:?xt=urn:btih:9B0E844131EF8F4C0585891DC2F8DA54A9B77A44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A7DC8C0F54A81ED6B74D1BD57A24C8B77EE1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673078   (166119) от 31.10.2023
-
-Я.В. Шимановская и др. | Безопасность жизнедеятельности и медицина катастроф (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основы организации и структурные элементы Единой государственной системы предупреждения и ликвидации чрезвычайных ситуаций, Всероссийской службы медицины катастроф, медицинской службы гражданской обороны. Освещены основные положения лечебно-эвакуационного обеспечения населения, организация оказания всех видов медицинской помощи пораженным в чрезвычайных (   Читать дальше...   )Жанр: Безопасность жизнедеятельности, медицинаИздательство: КноРусФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB57792C6C24E4B02B440F5A7585C8E56DE1FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597628   (166120) от 15.12.2022
-
-Markus Grosskopf's Bassinvaders - Hellbassbeaters (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening the Bass Machine 00:38
-02. We Live 03:54
-03. Armageddon 05:15
-04. Romance in Black 05:27(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2425201E21C9EDCB2323F69A63D1D6F932016A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516538   (166121) от 11.12.2021
-
-Карина Шаинян | С ключом на шее (2021) [MP3, Людмила Шаулина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166121.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маленький город у дальнего ледяного моря. Трое детей, которые любят гулять там, где не следует, находят и спасают раненого мальчика. Вскоре они понимают, что их новое знакомство может оказаться опасным. А тем временем в городе убивают детей, и только трое друзей могут знать, кто это делает.
-
-Спустя многие годы им придется снова собраться вместе, чтобы преодолеть (   Читать дальше...   )Жанр: Детективная фантастика, Мистика, Триллеры, УжасыПродолжительность: 17:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A5F264ED54570C5180A1FCB5F900F2A9E738B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673157   (166122) от 31.10.2023
-
-Елена Гордина | Проклятие орхидей (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олеся никак не могла забыть свою первую любовь и своего мужа Павла. Каково же было ее удивление, когда в экспедиции по джунглям Малайзии она снова столкнулась с ним. Но в этом путешествии все сразу пошло не так – сначала кто-то испортил лодку, и все чуть не утонули в местной реке, далее в сумку к Олесе подкинули ядовитую змею, а затем девушку столкнули в яму, полную (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Современные детективыИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B07020F598FC5EF677C904F0118FB5387687DC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345642   (166123) от 15.12.2019
-
-ABBYY Lingvo European 1.11.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo Европейская для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
-
-В приложение включены 112 словарей для 7 языков (русский, английский, французский, испанский, немецкий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ABBYYПоддерживаемая ОС: macOS 10.11 El CapitanЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5CA0183A6529181004292179C31A4B77B4C261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431801   (166124) от 15.12.2020
-
-Path Finder 10 v10.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: CocoatechПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0AE43D530D71450E9DFB1651C70F4168714F20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597465   (166125) от 15.12.2022
-
-SupaRed - SupaRed (2003) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reconsider
-02. Can I Know Now?
-03. Let?s Be Heroes
-04. He Pretends(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4FC1C5F03989D596E4D9B3FFD30312F52630FF
 ```
 
 

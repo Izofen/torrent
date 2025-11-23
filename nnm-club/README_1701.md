@@ -6,7 +6,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44581.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0AAAED4D3BBB3B8DEB898C727D0D7D66F03C2CE9
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44582.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ True Phone - телефон, контакты 2.0.22-gp Mod by Balatan [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44583.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:EC56D64C9EFCF276959EE517D9069F6DC022BF15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44584.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9225A146EF65A28E8266910FC1C6F33583699F59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44585.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:420383B19854CFC7105B585BE34DABC604B95893
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44586.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:DD9FDB254444E6C4AE219F51694EA3E847CE8822
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44587.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DD9FDB254444E6C4AE219F51694EA3E847CE8822
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44588.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:61A3754798CE0F394CE85B0BF7BBCF3ACE26296A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44589.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:AF7637826417F2CF530139BA11EBA2A4F6D971E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44590.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:33A674F3534B58975593805BC245093974D6F821
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44591.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:509290FBCD80C7E0609417D4446EF033FC4B9697
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44592.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:11820A61EDC2F161E5982D2114E287199D5E7085
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44593.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4F360E9780119329616FB70126FE802C9F22F6BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44594.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Serif Affinity Photo 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44595.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fast Video Cutter Joiner 5.4.0.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44596.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0D150D7B37A7A313D491EA21EC83387FF0BE48C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44597.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:26D3BA273475B5645F90C6082C24598FA989FCD9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44598.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ InnoExtractor Ultra 8.1.0.615 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44599.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Audacity 3.6.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44600.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5DB68832EF5DF935B0B13F655DA875BFE86C61E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44601.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:3A284E973B6F3D5F3FEE8B2E90AB68EA646EB7E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44602.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3A284E973B6F3D5F3FEE8B2E90AB68EA646EB7E6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44603.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Music News For Forum vol.019 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44604.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Best of Whiskey Blues (Smooth, Relaxing Tunes) (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44605.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - compilation  part 118 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44606.jpg" />
 </div>
 
 

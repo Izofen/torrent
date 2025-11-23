@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54447.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54448.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54449.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Altair PSIM 2024.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54450.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C8F8E77C77B2332113CB6335495B4FFBDE2C5C6E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54451.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Thriving City: Song (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54452.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54453.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54454.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54455.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:330FD776C6E389B60ABB497EFBA7CB15BA74D390
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54456.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:41E90D3192AF51492F23DC3308708B16510D2F95
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54457.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54458.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cent Browser 5.1.1130.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54459.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54460.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54461.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54462.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54463.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54464.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Music Collection 3.6.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54465.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:533B13827C3B42B0676EDE3A3D2D5BEED94FFEFF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54466.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54467.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ HDCleaner 2.073 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54468.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:B05D648A5D011FE1AEEA9B026C680399498D9001
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54469.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54470.jpg" />
 </div>
 
 

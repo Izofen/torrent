@@ -6,7 +6,7 @@ Abrosoft FantaMorph Deluxe 5.3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81992.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FantaMorph - программа для создания анимированны
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:726BD0DC25D1FB67EF84C96B3B1D8453D9684721
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81997.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:726BD0DC25D1FB67EF84C96B3B1D8453D9684721
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82000.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C7C397FD1CCD49FD5B3536DD688ECB1218A8CDEA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82001.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:ACB368FAF912925887C135E4630C6CF94FE988D6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82003.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82005.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82010.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:C0AFD65C97CEBEACEC6ECFD29EE6E94DCB3DE907
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82013.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8861F2265BF66E62DFCE091243BCFC624B58F1C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82019.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:0745FF1D8037A1FFDDEDA7CFA11718C438D8A773
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82027.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Kaspersky World 1.3.2.96 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82036.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82037.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82038.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82042.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82043.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ SUPER © v2012.build.50 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82047.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ SUPER © - универсальный медиаконвертер, поддер
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82056.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2E49E31E84FA293659AF23DA86AD04F812F199F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82057.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Warp [En] (RePack) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82067.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:640FE41B717E3495610555435208F90251C9D907
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82071.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82073.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82075.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82078.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82079.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82083.jpg" />
 </div>
 
 

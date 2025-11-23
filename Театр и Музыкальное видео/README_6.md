@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42356.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C4252287C0510947B6D1828FA2E43AF3BF7C1057
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42710.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:20C06A2FCFEC9D62ED487A19D8E53ED245340015
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42865.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:941E59CDF869680CEDA26C60C0476ACC1CD763BC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:832727D425051C25DF8268712DFE76F525315273
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42959.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:FF60668A62072CFDEFBF5974F72B7D9295D44848
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42988.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:73E232A718C4C8DE744116B7014260104F17F8C5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43190.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43212.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B6F0B451AC93DBD43B6BEE2023F9F5B3E7D717AC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43341.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:2BACEFFDE8BA645C61DED6D2E25BBBB122760131
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43437.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:CEED6C01CB51ADD70429E3C7116562B64C1A2B94
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43438.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:67EBA0F90C23D668992624EAFCB8A7183FC81CA8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43457.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43505.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43535.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44178.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44451.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:73ED4F9F720462DF663BB50F9D3C312E87F8957C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44566.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:E96A2C081935F6BF81D2EF7DC223C08BC39190BA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44588.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:61A3754798CE0F394CE85B0BF7BBCF3ACE26296A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44700.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:B694712BAC2A100A86FD7E0992D1CD4F38052B5E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44747.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mylene Farmer - Avant que l'ombre A Bercy (2006) BDRip [H.265/1440p] [10-bit] [A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44776.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:83E8919C02C0A5002466CB2DF06E2A8D8665E754
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44873.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:DC190E08B793DEFB927D0EAAC67FF207E37E51A2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44884.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45083.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45113.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45115.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ York - Infinite (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66940.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ibiza Summerhouse Megamix 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66989.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Beach Mode ON (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66991.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Fantasy Island (Rainbow Chill out Tunes), Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67054.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tom Wax - The Future Is Now (2025) [MP3|320 Kbps] <Techno, Hard Trance, House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67059.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Gliding Faces - Veritas (2025) [MP3|320 Kbps] <Electropop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67074.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Adam Beyer & Vintage Culture - Drumcode Radio 769(The Drumsheds London, United K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67079.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kaskade - Live @ We Belong Here (Historic Virginia Key Beach Park Miami (2025-03
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67087.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Virgin Birth - Total Annihilation (2025) [MP3|320 Kbps] <Industrial, Industrial 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67094.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ibiza Beach Vibes (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67098.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Ori Uplift - Uplifting Only Episode 638 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67189.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Interplay 2024 (Selected By Alexander Popov) (2024) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67203.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Redux Selection, Vol. 5 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67207.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67227.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67243.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Ibiza Lounge Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67342.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2025-04-24) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67370.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Earthbound Collection 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67391.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Techno Club Vol. 74 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67416.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Organica (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67421.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Ori Uplift - Uplifting Only Episode 637 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67445.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Chilled Beach Songs (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67457.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Sirup Ibiza 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67464.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Armin van Buuren - A State Of Trance 1222 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67472.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - TOP 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67503.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Infinite Deep Vibes (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67507.jpg" />
 </div>
 
 

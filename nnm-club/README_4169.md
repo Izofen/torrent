@@ -1,3 +1,81 @@
+###  Публикация: 1683974   (128081) от 13.12.2023
+
+Марина Серова | Частный детектив Татьяна Иванова. Печали веселой семейки (2023) [MP3, Софья Авдеева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарекалась частный детектив Татьяна Иванова браться за расследования, связанные с семейными разборками! И тут попала: взялась найти исчезнувшие у одного бизнесмена 200 тысяч долларов – и попала в эпицентр скандала. Оказалось, что деньги похитила из сейфа супруга бизнесмена, которая сама и наняла Таню их искать. Похитила и сбежала с любовником, который обобрал ее (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887622B4BF2C515B006DB2855ECDA74B875A989D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683859   (128082) от 13.12.2023
+
+Thelemite - Thelemism (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unholy Steel
+02. In For The Kill
+03. Anatolia
+04. Up On The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C8F10AC8B5092E624482D33E5AEF082E8A5683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683979   (128083) от 13.12.2023
+
+Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Matador
+02 – Nylon Wire
+03 – Belgrade Shade
+04 – Skin(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67509D5AB1ED30539F6538A815828609F3897311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684010   (128084) от 13.12.2023
 
 Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
@@ -6,7 +84,7 @@ Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128084.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128085.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128086.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128087.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:BA581FA6DBF75C29F77732C3395D810EF090A421
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128088.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Photo Lab 3.12.82 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128089.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ magnet:?xt=urn:btih:69C57654F7E3B05C158E5563CF14334447BB37EE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128090.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128091.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ magnet:?xt=urn:btih:9D121B50D5AE995225116B65808DE20703B27061
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128092.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Photo Lab 3.12.82 Mod by LEEAPK [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128093.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ magnet:?xt=urn:btih:634B87736E51918CFD6F53D5ABE47711BEE9071D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128094.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128095.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128096.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128098.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128099.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128100.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Siobhan Donaghy - Revolution In Me (2003) 20th Anniversary Edition, 2023, London
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128101.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ magnet:?xt=urn:btih:A926792776A8469571A27D3CD45981407F96E796
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128102.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ magnet:?xt=urn:btih:1102D866AF5C384AA524B6B6C0321AB7F748BD52
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128103.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ magnet:?xt=urn:btih:903B92144C311703EDAE0D237BD959FB02CD205A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128104.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ magnet:?xt=urn:btih:E9899C08BCCD4B08BA66042F55874E6E0FB45EEC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128105.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ magnet:?xt=urn:btih:599750A736D7A724543D674DC6F999856E22E774
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128106.jpg" />
 </div>
 
 
@@ -585,81 +663,6 @@ magnet:?xt=urn:btih:599750A736D7A724543D674DC6F999856E22E774
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93944ACAB653F8A535E81A816244A40FAA474B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683980   (128107) от 13.12.2023
-
-Марина Серова | Частный детектив Татьяна Иванова. Оружие страха (2023) [MP3, Kalessa]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аню Волошину нашли в два часа ночи. Она лежала на тротуаре, прямо под окном собственной квартиры. Руки ее были раскинуты. Лицо Ани Волошиной выражало крайнюю степень изумления. Казалось, сам факт собственной смерти вызвал у Ани шок. Не более того. Сейчас она обдумает случившееся с ней, отряхнется, встанет и пойдет домой… Так часто бывает с людьми не от мира сего, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6581E9ED0E5F16B4B3676B9036E6A28A0FDAE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683841   (128108) от 13.12.2023
-
-Игорь Саруханов - Лети за мной (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лети за мной [00:04:04]
-02. Портрет в карандаше [00:03:20]
-03. Мы поем о нас [00:03:32]
-04. Ирина [00:04:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F671E5218792AB9BC30348AC9911DF0733CE39BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683925   (128109) от 13.12.2023
-
-Сухбат Афлатуни | Великие рыбы (2024) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128109.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Великие рыбы» – экспериментальный роман о самом традиционном и вечном. Его действие происходит в Самарии – и одновременно в десятке стран; оно длится несколько минут – и более двух тысяч лет; в нем множество главных действующих лиц, и все же главное лицо – одно… Это попытка соединить житийную литературу – с исторической хроникой и художественную – с нон-фикшном; (   Читать дальше...   )Жанр: Современная русская и зарубежная проза, Социальная прозаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21F53172D7DB56602CFC0258BB79BA32385C6CA
 ```
 
 

@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3405.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3406.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0116EC75C40F6D529A0E0BFD1C31722608FF5373
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3407.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Gigapixel AI Pro 8.4.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3408.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ No Man's Sky (2016) [Ru/Multi] (6.04) License GOG [VR]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3409.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E93988216EB2E6CB4684F89E9A44F16B65874C54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3410.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D5CCA80739CE65750EE60BDB11E629E93B1AA05F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3411.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3412.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F12BFBA9C0256BDEB8312A807761659A9DBE97A7
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3413.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:2AFD84BA2A73E499D4F4549F03C09F399766A9C4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3414.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Reso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3415.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kasabian - 10 альбомов (2004 - 2024) 15 CD [FLAC|Lossless|tracks + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3416.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Decept
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3417.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:982C3AAC52684768D8FA62FAFEBDE9667064E4CA
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3418.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3410227D1160B6F366053C58FA4C8EB9C2A36AEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3419.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3420.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (6.0.0/dlc) License GOG [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3421.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3422.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C5F69992527BC297B648D6D1AD89BD7B84674826
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3423.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adobe Acrobat Pro 2025.001.20693 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3424.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3425.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MAX заблокировал около 67 тысяч подозрительны
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3426.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ UniTweaker 2025.9.8.27 Portable By Komoliddin [Ru] (Авторская разд�
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3427.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9A7E60807CD4F970C0711394A7C8DD018DC0126C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3428.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:E29074415344E5AA02B97714238A308DE4C722F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3429.jpg" />
 </div>
 
 

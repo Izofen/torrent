@@ -1,3 +1,78 @@
+###  Публикация: 1697584   (118768) от 07.02.2024
+
+Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7055A36948F1A4512ED70D57BF9F8E9600A45648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697587   (118769) от 07.02.2024
+
+VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Music Lovers Club - Sensual Time for Jazz (3:32)
+02. Jazz Guitar Club - Whispers of Love (3:59)
+03. Jazz Erotic Lounge Collective - Romantic Mindset (3:00)
+04. Jazz Music Lovers Club - Bedroom Midnight Strings (3:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668D3A37E6D1ADFB197408B28246199191775483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697618   (118770) от 07.02.2024
+
+Татьяна  Серганова | Ведьма и инквизитор (Книга 1). Ведьма по соседству (2024) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать законопослушной ведьме, если рядом поселился инквизитор? Сделать всё, чтобы этот субъект съехал как можно быстрее и не мешал бизнесу. И в этом ей помогут смекалка, магия и адский кот! Главное – в процессе изгнания не увлечься. Потому как ведьма и инквизитор, каким бы сексуальным он ни был, точно не пара.Жанр: Любовное фэнтезиИздательство: Литрес, АвторПродолжительность: 11:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EED1C316F5CF0B55361FA1E518D66A2931B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697554   (118771) от 07.02.2024
 
 VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +81,7 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118771.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118772.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:1E45205892A80C6F6BE8FA9BF5F1BEE72215E279
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118773.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:61764262233BB612B3AD4D3DBE8BE90845D7E089
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118774.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118775.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ GeoGebra 6.0.823.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118776.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:70AF8E814B4600EEA82B61F4FDBC75BD5775A25D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118777.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:5A4D4D04DAD4950B2DF5504E5F9B75FE83B022B5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118778.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:77A02AB7EC7E16CD70853D5CF1F95ECA7A3A3544
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118779.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ magnet:?xt=urn:btih:21C2FB653047D74A96E31FF8F9F682E243BD7871
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118780.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:8AA3B4BF5BF2BF0F0910472B2F12B1A792AC96B9
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118781.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ Minimal Audio - Effect Bundle 2024.02 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118782.jpg" />
 </div>
 
 
@@ -305,7 +380,7 @@ magnet:?xt=urn:btih:BE8643EF191EE41D8849CCD81652235EF77A4A5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118783.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ Vivaldi 6.5.3206.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118784.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ Textra SMS v4.70 Pro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118786.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118787.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:CF9A9B9ECC846C92CE255407E2CC41DDD0A1145D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118788.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ AVS Image Converter 6.0.2.334 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118789.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ magnet:?xt=urn:btih:5EAFC146694852BE6B199C5EC6F98EB441F6E46F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118790.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ Firefox Browser 122.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118791.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ VA - Intense Piano Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118792.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ magnet:?xt=urn:btih:D091A93333A1C224142913A6F72FF2B6B4B2654D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118793.jpg" />
 </div>
 
 
@@ -559,79 +634,6 @@ magnet:?xt=urn:btih:D091A93333A1C224142913A6F72FF2B6B4B2654D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364A3EAF922D1884402714A0A3FBD63374AA2F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697626   (118794) от 07.02.2024
-
-Журнал | Инженерные системы №1 (2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118794.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03520A64C06BC318CEA961A29CF2ED8BD245352
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697662   (118795) от 07.02.2024
-
-Никита Киров | Замок Короля Пауков (2024) [MP3, Илья Маликов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын генерала проявил себя в одном бою, но его уже отправляют в другой. Северяне осадили замок Короля Пауков, важнейшую крепость для обороны страны. Армия отправляется прогнать этих варваров и загнать их в болота.Но мало кто знает, что в подземельях замка спрятаны запретные технологии прошлого. Они могут как возродить Старый мир, так и уничтожить его снова. Смотря (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 12:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91437B06006D6C44910780FF3CAD50366D2E623D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697176   (118796) от 07.02.2024
-
-Анне Штерн | Тайны старого города (Книга 1). Счастье момента (2023) [MP3, Вероника Райциз]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском. Новый цикл захватывающей исторической прозы от одной из самых популярных немецких писательниц.
- Берлин. 1922 год. Хульда Гольд – острумная, бесстрашная и чрезвычайно популярная акушерка в своем районе. Ей нравится помогать людям, а любопытство и желание во всем разобраться порой заводит ее в опасные ситуации. Так произошло и в этот раз. Найдена (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига (АСТ)Продолжительность: 10:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D36333A4C2CC1DC85C874DD7CEAFE94943C291
 ```
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1273267   (137877) от 31.12.2018
+
+Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazing
+02. Life in a bubble
+03. In the cold light of day
+04. Dig deep(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E72897333C6DEA7FF4FAEA4447ECDFC48EB5498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195955   (137878) от 31.12.2017
+
+Лучшие песни-2017 (2017.12.31) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137878.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последний день уходящего года самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями, представляют "Лучшие песни"! В гала-концерте принимают участие: Валерий Меладзе, Валерия, Николай Басков, Елена Ваенга, Ани Лорак, победитель конкурса "Новая волна" Пьер Ноэль, Глюкоза, Анжелика Варум, Лолита, (   Читать дальше...   )Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:11Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADF1F9151F3A33FEEE891678BE06D5BE3756115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349216   (137879) от 31.12.2019
+
+Multi Commander Full Edition 9.5 Build 2570 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multi Commander - мощный мультиоконный менеджер файлов, являющийся отличной альтернативой стандартному проводнику Windows. При работе с файлами используется удобный двухпанельный вид, что обеспечивает простоту и доступность эффективного и быстрого управления файлами в повседневной деятельности.
+Кроме стандартного набора функциональных возможностей файлового менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31766E19C8825D1711BA9609041ABAA7F610B315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970606   (137880) от 31.12.2015
 
 КВН-2015. Высшая лига. Финал  (2015.12.30) HDTVRip
@@ -6,7 +82,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137880.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Roland Romanelli - Compilation (2019) [MP3|320 Kbps] <Instrumental,  Electronic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137881.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:66350EF4D5393A8D8802D1C567604C76245C755C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137882.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137883.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137884.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137886.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ Camel - Discography: 37 аlbums, 70 CD (1973-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137887.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ magnet:?xt=urn:btih:CBB97C5DB441BC98F419C1A138FF69DD2C068769
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137888.jpg" />
 </div>
 
 
@@ -207,7 +283,7 @@ magnet:?xt=urn:btih:F70D09131026B3944AD8BC370711FF752C8DE7C2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137889.jpg" />
 </div>
 
 
@@ -233,7 +309,7 @@ magnet:?xt=urn:btih:85D6C601EEA5E5FE92F45B920FFAC435A53CC9FD
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137890.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137891.jpg" />
 </div>
 
 
@@ -284,7 +360,7 @@ Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137892.jpg" />
 </div>
 
 
@@ -311,7 +387,7 @@ magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137894.jpg" />
 </div>
 
 
@@ -338,7 +414,7 @@ Comedy Woman. Новогодний выпуск  (2015.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137895.jpg" />
 </div>
 
 
@@ -362,7 +438,7 @@ magnet:?xt=urn:btih:DB578E315A0D8F24B2381161BE6F263825ED72E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137896.jpg" />
 </div>
 
 
@@ -386,7 +462,7 @@ magnet:?xt=urn:btih:ED189163A529269378D24503009069B8727ADFB7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137897.jpg" />
 </div>
 
 
@@ -410,7 +486,7 @@ Flud+ 1.10.5 Mod by Derrin [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137898.jpg" />
 </div>
 
 
@@ -434,7 +510,7 @@ magnet:?xt=urn:btih:63D0E6881D8077862F9442891B00C4EBFFB1C6B9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137899.jpg" />
 </div>
 
 
@@ -458,7 +534,7 @@ iFinance 4.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137900.jpg" />
 </div>
 
 
@@ -482,7 +558,7 @@ magnet:?xt=urn:btih:0BC45304BF5CAE5BD27F5626DCA87875CA8FF946
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137902.jpg" />
 </div>
 
 
@@ -506,7 +582,7 @@ magnet:?xt=urn:btih:BCCF30420B9BC7338DD40A5A3815198BE1C1E8DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137903.jpg" />
 </div>
 
 
@@ -530,7 +606,7 @@ Privacy Eraser Free 6.1.0 Build 4789 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137904.jpg" />
 </div>
 
 
@@ -555,7 +631,7 @@ magnet:?xt=urn:btih:1B024D892CFC2D5E2B730B62F537F407B5F9F0A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137905.jpg" />
 </div>
 
 
@@ -566,81 +642,6 @@ magnet:?xt=urn:btih:1B024D892CFC2D5E2B730B62F537F407B5F9F0A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C2CD3878D2268FB6EBA5831760472CE7E1C9EA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348896   (137906) от 31.12.2019
-
-Битва экстрасенсов (2019.12.28) WEBRip [H.264/720p-LQ] (сезон 20, выпуск 14)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паранормальное шоу канала ТНТ об экстрасенсах, магах, ясновидящих, гадалках и колдунах. «Битва экстрасенсов 20 сезон» – продолжение рейтингового российского шоу «Битва экстрасенсов», которое выходит с 2007 года на канале ТНТ. Создатели проекта в 20-м сезоне вновь подготовили для телезрителей встречи с удивительными людьми, обладающими уникальными способностями.Телекомпания: ТНТЖанр: ТВ-шоуРежиссер: Олег ЧаурсСубтитры: отсутствуютПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EB81FCEEEEC4DE777D67475925C7A33D9C2797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854997   (137907) от 31.12.2014
-
-Пингвины из Мадагаскара в рождественских приключениях / The Madagascar Penguins in a Christmas Caper (2005) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый Год приходит в город, и все обитетели Центрального Зоопарка готовятся к его встрече. Пингвины украсили свою пещеру и мечтают о черно-белом празднике, когда юный Рядовой замечает, что Белый Медведь грустит в полном одиночестве. Окруженный своими товарищами, Рядовой решает, что никто не заслуживает таких каникул, и вырабатывает свой собственный план помощи собрату. (   Читать дальше...   )Производство: США |  DreamWorks AnimationЖанр: компьютерная анимация, короткометражка, комедия, семейныйРежиссер: Гари ТруздейлПеревод: Дублированный, многоголосый закадровый, одноголосый закадровый (П. Гланц), одноголосый закадровый (Е. Гранкин)Язык субтитров: Русский (форсированные, полные)Продолжительность: 00:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133104DED9EF141CBE40E9BA8F380E25B079DC63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273243   (137908) от 31.12.2018
-
-Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Home for Christmas [4:10]
-02. Happy Holiday [4:52]
-03. The Holly and the Ivy [3:01]
-04. Up on the Housetop [2:36](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
 ```
 
 

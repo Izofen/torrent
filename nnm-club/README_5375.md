@@ -1,3 +1,183 @@
+###  Публикация: 1516612   (165244) от 12.12.2021
+
+Omega - Testamentum (Búcsúztató) (2021) Maxi Single [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Égi jel 4:18
+2.Búcsúztató 5:11
+3.Elfújta a szél 5:08Жанр: Progressive RockПродолжительность: 00:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5C93F7DCD807F98A1A33B05106D31CFB26A560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597933   (165245) от 16.12.2022
+
+djay - DJ App & AI Mixer 4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165245.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D907A5B90531DD9BE6E0800D33E935152ADE4E50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431804   (165246) от 16.12.2020
+
+Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, Electro>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiest Days Of Our Lives (Cover Version)
+02. Another Brick In The Wall, Part 2 (Cover Version)
+03. Hey You (Cover Version)
+04. The Great Gig In The Sky (Cover Version)(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1432A566E1FCD47EE162DBB010796021D3DF87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516806   (165247) от 12.12.2021
+
+Елена Ананьева | Популярная научно-практическая энциклопедия современных знаний. Опасная природа. Необычные и грозные явления природы (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Опасная природа. Необычные и грозные явления природы» рассказывает о необычных и грозных явлениях на Земле, таких как извержения вулканов и землетрясения, гейзеры и фумаролы, огромные волны-цунами и наводнения. Отдельно рассказано о катастрофах в жизни нашей планеты: падении огромных метеоритов, массовых вымираниях.
+Книга адресована всем читателям, которые (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD95613351042D2B0D485AC3978CAC1074064A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597753   (165248) от 16.12.2022
+
+Ripper - Return To Death Row (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die While We're Alive
+02. Embattled
+03. The Night (Take It Back)
+04. Silent Cage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A241F267F1381DDA354D3C4C8D68717E1E8EEE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673418   (165249) от 01.11.2023
+
+Icecream Screen Recorder Pro 7.31 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72A96FA35D7C0CCA2C783FC44E9B285ED00BE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345887   (165250) от 17.12.2019
+
+Freddie Gibbs & Amerigo Gazaway - A Freddie Christmas Album (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Mashup>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa's Knicks (2:55)
+02. Christmas In Gary (2:31)
+03. Merry and Broken feat. Scarface (2:43)
+04. Peace At Harold's (2:44)(   Читать дальше...   )Производство: Altered CratesЖанр: Hip-Hop, Underground Hip-Hop, MashupПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0837E275773CE8C1ED83A80A4A484E80E5D9F06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431900   (165251) от 16.12.2020
 
 Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +186,7 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165251.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165252.jpg" />
 </div>
 
 
@@ -60,7 +240,7 @@ magnet:?xt=urn:btih:8C4EF6BF7598FCF63DF1A1E222BD9D922F894360
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165253.jpg" />
 </div>
 
 
@@ -84,7 +264,7 @@ WinTools.net Premium / Professional / Classic 23.11.1 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165254.jpg" />
 </div>
 
 
@@ -108,7 +288,7 @@ Privacy Eraser Free 5.6.0 Build 3756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165255.jpg" />
 </div>
 
 
@@ -133,7 +313,7 @@ iTrash 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165256.jpg" />
 </div>
 
 
@@ -157,7 +337,7 @@ WinTools.net 23.11.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165257.jpg" />
 </div>
 
 
@@ -181,7 +361,7 @@ Scrivener 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165258.jpg" />
 </div>
 
 
@@ -206,7 +386,7 @@ magnet:?xt=urn:btih:C6C801BED8FE5750F25BA5F780E676552DFD558C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165259.jpg" />
 </div>
 
 
@@ -230,7 +410,7 @@ magnet:?xt=urn:btih:7C0F2678C5FE2DF7A4D2575FE23707621372120B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165260.jpg" />
 </div>
 
 
@@ -254,7 +434,7 @@ Skype 8.67.0.96 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165261.jpg" />
 </div>
 
 
@@ -278,7 +458,7 @@ DMG Canvas 3 v3.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165262.jpg" />
 </div>
 
 
@@ -302,7 +482,7 @@ magnet:?xt=urn:btih:44D0301B6F7DC20C2391C47A204A35697DA956BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165263.jpg" />
 </div>
 
 
@@ -329,7 +509,7 @@ magnet:?xt=urn:btih:1C4BB108BC2F29B3C470DBB5DCAC5D6B01A1A4EC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165264.jpg" />
 </div>
 
 
@@ -353,7 +533,7 @@ magnet:?xt=urn:btih:85C41894F24227E73619092A789E8CF8935DE718
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165265.jpg" />
 </div>
 
 
@@ -377,7 +557,7 @@ Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165266.jpg" />
 </div>
 
 
@@ -404,7 +584,7 @@ Tinderbox 9 v.9.5.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165267.jpg" />
 </div>
 
 
@@ -429,7 +609,7 @@ Disturbed - Asylum (2010) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165268.jpg" />
 </div>
 
 
@@ -456,7 +636,7 @@ HDCleaner 1.321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165269.jpg" />
 </div>
 
 
@@ -467,183 +647,6 @@ HDCleaner – многофункциональный программный пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285FD68501F55C776C3B991FED7D39C39FD3182C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597826   (165270) от 16.12.2022
-
-Джон МакКрэй | Червь (Книга 11). Заражение (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 07:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114FDD638333D444B8C22F1617E70EDC491AA557
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516767   (165271) от 12.12.2021
-
-TagScanner 6.1.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165271.jpg" />
-</div>
-
-
-###  Подробнее
-
-TagScanner — это мощный инструмент для организации и управления музыкальными архивами. Он умеет редактировать в пакетном режиме теги большинства современных аудио форматов, поддерживаются теги ID3v1 и ID3v2, Vorbis Comments, APEv2, WMA и MP4 (iTunes). Вы можете переименовывать файлы по информации из тэгов. Также программа позволяет сгенерировать тэг по имени файла/директории (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1792A1D5E2CC52211FF6EA0205774D6CCE8C90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597811   (165272) от 16.12.2022
-
-Cobra Cult - Second Gear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sell Your Soul (02:57)
-02. The Devil's End (02:47)
-03. Run For Your Life (02:32)
-04. Mean Machine (03:22)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172DEAFC20163C4D9E2B4A733D7973F7322022AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432020   (165273) от 16.12.2020
-
-Glenn Frey - No Fun Aloud (1982) [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Found Somebody
-02. The One You Love
-03. Partytown
-04. I Volunteer(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739A3DC20AB32272A7B9F234B03F4B80C1DE8666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516784   (165274) от 12.12.2021
-
-Ирина Травина | Самая первая энциклопедия. Динозавры (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта великолепная серия познавательных книг для самых юных читателей дает ответы на множество вопросов об окружающем нас мире, которые так любят задавать дети: доступное изложение; яркие иллюстрации; занимательные рассказы; интересные факты.Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFBC0CD04F9ABB075D5BFCC1D059033AA4E7818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516735   (165275) от 12.12.2021
-
-И.С. Артюхова | Чтение. Старшая группа (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный комплект рабочих тетрадей:
-- дает возможность воспитателям использовать рабочие тетради в любом детском саду;
-- полностью соответствует требованиям ФГОС ДО;
-- разработан авторами на основе общих подходов: во всех тетрадях одинаковые обозначения и пиктограммы;(   Читать дальше...   )Жанр: Рабочая тетрадь/Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E670D3AF750442301D184E69A35CA0FE1B742B3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597829   (165276) от 16.12.2022
-
-Джон МакКрэй | Червь (Книга 13). Западня (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 05:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8C7120FBC992986CA486C8122D7A99BF9201A6
 ```
 
 

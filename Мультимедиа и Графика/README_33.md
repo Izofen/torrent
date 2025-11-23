@@ -1,3 +1,27 @@
+###  Публикация: 1690793   (123747) от 09.01.2024
+
+HitPaw Video Converter 3.1.2.4 x64 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123747.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Video Converter — это премиальный инструмент для преобразования, способный преобразовывать видео и аудио файлы до более 800 типов форматов, которые он поддерживает. Эта мощная программа также служит менеджером загрузок, с помощью которого вы можете получать различные носители из более чем тысячи партнерских веб-сайтов одним щелчком мыши.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA08995CB2F9CBED881544EB1ED6E68197E8D4E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823248   (124402) от 11.10.2025
 
 Procreate (Corel) Painter 7 7.1.357 [En]
@@ -6,7 +30,7 @@ Procreate (Corel) Painter 7 7.1.357 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124402.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ PSPaudioware - PSP preQursor3 3.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124410.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124411.jpg" />
 </div>
 
 
@@ -80,7 +104,7 @@ Metric Halo - Make Believe MixHead 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124414.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ Metric Halo - CGII 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124416.jpg" />
 </div>
 
 
@@ -130,7 +154,7 @@ magnet:?xt=urn:btih:EDC0FA58032CC8B24F6B0580624605373D25F158
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125254.jpg" />
 </div>
 
 
@@ -154,7 +178,7 @@ Kazrog Plugins 10.2025 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125861.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ XnView MP 1.9.5 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126037.jpg" />
 </div>
 
 
@@ -202,7 +226,7 @@ PanoramaStudio Pro 4.1.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126087.jpg" />
 </div>
 
 
@@ -226,7 +250,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127846.jpg" />
 </div>
 
 
@@ -250,7 +274,7 @@ JixiPix Spektrel Art 1.1.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128441.jpg" />
 </div>
 
 
@@ -275,7 +299,7 @@ Freemake Video Converter 5.0.0.16 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128587.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ Spotify 1.2.72.438 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128608.jpg" />
 </div>
 
 
@@ -324,7 +348,7 @@ Freemake Video Converter 5.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128609.jpg" />
 </div>
 
 
@@ -348,7 +372,7 @@ Reaper 7.48 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128933.jpg" />
 </div>
 
 
@@ -374,7 +398,7 @@ Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130026.jpg" />
 </div>
 
 
@@ -398,7 +422,7 @@ Sonic Charge - Microtonic 3.20 VSTi  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130082.jpg" />
 </div>
 
 
@@ -422,7 +446,7 @@ onOne Perfect Portrait 2.0 Premium Edition [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131223.jpg" />
 </div>
 
 
@@ -448,7 +472,7 @@ Jixipix Watercolor Studio 1.4.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131736.jpg" />
 </div>
 
 
@@ -472,7 +496,7 @@ JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132610.jpg" />
 </div>
 
 
@@ -496,7 +520,7 @@ Teorex Inpaint 10.2.3 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132998.jpg" />
 </div>
 
 
@@ -521,7 +545,7 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133352.jpg" />
 </div>
 
 
@@ -546,7 +570,7 @@ Adobe Director MX 2004 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133360.jpg" />
 </div>
 
 
@@ -570,7 +594,7 @@ Adobe Director 11.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133676.jpg" />
 </div>
 
 
@@ -595,7 +619,7 @@ ID Photos Pro  8.11.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133697.jpg" />
 </div>
 
 
@@ -606,33 +630,6 @@ ID Photos — профессиональный инструмент для ре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848A4CE2E351D5321541924CCE796CA2DF7A026B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591832   (136038) от 20.12.2012
-
-CopyTrans Manager 0.987 Portable [Multi / Русский]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы ищете бесплатную и портативную альтернативу ITunes, чтобы быстро управлять iPhone, iPod Touch или IPad? CopyTrans Manager может стать прекрасной заменой ITunes и позволит добавлять, редактировать и удалять музыку, видео, программы, аудиокниги, подкасты, плейлисты, теги и т.д. на ходу.
-CopyTrans менеджер представляет собой легкий, но мощный инструмент для управления iPhone, iPod Touch или IPad. Добавить музыку, видео, программы и т.д., редактировать теги, такие как исполнитель, альбом, рейтинги, добавить текст и обложки, создавать и редактировать плейлисты или проигрывать с ваших устройств непосредственно на компьютере.
-После запуска вы сможете управлять вашим устройством без ресурсоемких приложений, все очень просто и понятно.
-Утилита позволит быстро вести коллекциями и плейлистами в вашем устройстве, можно "на лету" управлять iPhone, iPod Touch или iPad, также появится возможность безопасно управлять базами данных.Название программы: CopyTrans ManagerЯзык интерфейса: Multi / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1752303   (103947) от 29.09.2024
+
+MotoGP. Этап 15 из 20. Гран-при Индонезии. Гонка (29.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103947.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 сентября 2024, воскресенье. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF874F2C6189D7C3F40A515EEFC123C22E36B3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752150   (103948) от 29.09.2024
+
+Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hordes Of Chaos (A Necrologue For The Elite) (Remastered 2024) (5:04)
+02. Warcurse (Remastered 2024) (4:10)
+03. Escalation (Remastered 2024) (3:24)
+04. Amok Run (Remastered 2024) (4:13)(   Читать дальше...   )Жанр: Thrash-MetalПродолжительность: 01:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE89A919C6BEBFCA300CB89E9566A96DFE41C768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752281   (103949) от 29.09.2024
+
+Футбол. Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.09.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.08.2024)
+СУДЬЯ Куадра Фернандес
+СТАДИОН «Эль Садар» (Памплона)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: русскийПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76429CB7CD54D38114CE59C6789F78F38E5B1FAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752139   (103950) от 29.09.2024
 
 Своя игра (28.09.2024) WEBRip [H.264/1080p]
@@ -6,7 +83,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103950.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Serious Black - Studio Albums (7 releases) (2015-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103951.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:EF8A42B3E4B7A4262DCEF53C4D3A491DDEA4AEEF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103952.jpg" />
 </div>
 
 
@@ -82,7 +159,7 @@ Mike Tramp - Songs Of White Lion Vol. II (2024) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103953.jpg" />
 </div>
 
 
@@ -109,7 +186,7 @@ magnet:?xt=urn:btih:F8BFCD01FB984C8D3C13AED273B41DF4D58ABE47
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103954.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:1226F17E492DF31233B6A1D922770138C9731414
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103955.jpg" />
 </div>
 
 
@@ -160,7 +237,7 @@ magnet:?xt=urn:btih:B6CB5ABD0069FF1CACED60DAE76658E06BD940D0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103956.jpg" />
 </div>
 
 
@@ -184,7 +261,7 @@ The Gapp Project - 'Atmos Sphere' (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103957.jpg" />
 </div>
 
 
@@ -211,7 +288,7 @@ magnet:?xt=urn:btih:220520DEA1A799D62B183785F74645CF0000FB96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103958.jpg" />
 </div>
 
 
@@ -235,7 +312,7 @@ VA - It's All About Deep-House, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103959.jpg" />
 </div>
 
 
@@ -262,7 +339,7 @@ Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103960.jpg" />
 </div>
 
 
@@ -289,7 +366,7 @@ magnet:?xt=urn:btih:072B88442B08F047C4ADEAB231D55307D832243C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103961.jpg" />
 </div>
 
 
@@ -313,7 +390,7 @@ magnet:?xt=urn:btih:E413DF38272781BEF057EA1DE2D27F98D3248E22
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103962.jpg" />
 </div>
 
 
@@ -337,7 +414,7 @@ magnet:?xt=urn:btih:917C38D072ABD56AF1678EB672C08EAD768C2BFD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103963.jpg" />
 </div>
 
 
@@ -361,7 +438,7 @@ magnet:?xt=urn:btih:1BA29D44A4C9A36021F998CEE807568B27F266F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103964.jpg" />
 </div>
 
 
@@ -387,7 +464,7 @@ magnet:?xt=urn:btih:F79B42F8AC4DE981ECCE19DC54F5CD8035A74B03
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103965.jpg" />
 </div>
 
 
@@ -411,7 +488,7 @@ magnet:?xt=urn:btih:B8A701808D72933626483D259EF53E4434505D26
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103966.jpg" />
 </div>
 
 
@@ -437,7 +514,7 @@ Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103967.jpg" />
 </div>
 
 
@@ -464,7 +541,7 @@ Brant Bjork Trio & Brant Bjork - Once Upon A Time In The Desert (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103968.jpg" />
 </div>
 
 
@@ -491,7 +568,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103969.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103970.jpg" />
 </div>
 
 
@@ -542,7 +619,7 @@ magnet:?xt=urn:btih:DE38E8E9078EF84D858D91070CB5F867382100D5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103971.jpg" />
 </div>
 
 
@@ -566,7 +643,7 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103972.jpg" />
 </div>
 
 
@@ -580,87 +657,6 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751851   (103973) от 28.09.2024
-
-Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All God's Chillun Got Rhythm [3:50]
-02. Answering Service [4:44]
-03. Tangerine [5:30]
-04. Night Crawler [5:54](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB38E871F9FE8ECBC6BE168A526759633DB625D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751920   (103974) от 28.09.2024
-
-Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star-Crossed Lovers [3:58]
-02. Night Tide Light [3:28]
-03. Akrasia [4:15]
-04. Silent, Listening [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F492CF8479E7DE9772C71BB57726728C4AEABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752011   (103975) от 28.09.2024
-
-El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclesiástica (0:54)
-02. Lluvia en Atacama (7:37)
-03. Buscaminas (3:51)
-04. Agente Libre (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B9E6DCFB5182ACBF535EE1D10E871DA2DA88
 ```
 
 

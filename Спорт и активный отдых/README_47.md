@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161317.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BE0CFEF164FCBD96B6A7E480BF4D056E4AB01200
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161487.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:23B2E8262D08726A960495A4C834D40A31AFA0DB
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161847.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:975768F7BCCD569A8776C6CE1C88539690723D28
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161928.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:334E95CFCB4FE1A09129F01F81604D641F1562C6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161932.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9054E4A3811460128C892FCE409040ED08A5C9A3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161971.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8ED6460266867A4F8393064DC40D6FB5AF75D18E
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162116.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F8A482DD892224AE229AC89EE9244D63F3E40632
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162142.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E3F56CE18684C39D7778C29F04CBA5A29DA24F5F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162150.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:20BF669D9837E7C1DC684CDCDDD08A9D56DFE265
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162153.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7A59A4632A6D62C3601B78CBF97A8EB7B38D2554
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162164.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:1344C79B0D48C83249FF672ABD30424A461605A0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162195.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:32B97D24020CF22165CD2A3C63DEC56AF3976BB5
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162204.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162232.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162234.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:CB9538537D4BAB126113B200B6CC89A07C5F3CEA
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162250.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:EA82038EB5DEA4D0EF218BE0883F658A16A277BA
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162261.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:83DD876F7B4CF098458BF2A7E0E91E3841278528
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162271.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:919F38D55DB33650C483E6D4743327C06D34175C
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162273.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:9B103C8AF8AF43165DD6CA0D956013E66F1B640E
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162357.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:0053068C8B89E7EC64DF0B97725D8E19DCE9971E
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162393.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:617E7E53EE4FBFC3CB30D06D7CBA564A0582FC13
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162607.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0F218AF50DFA931AF932ED1DB649C3E69AD76D17
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162733.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:A33A52BCD81E51DD9BBCF3769A5D973F0673EB53
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162916.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:187136CCDB7CB92D5FFC9E89C45967C14F8922F7
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163140.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:899EFB2B82FD64FE3C7EB38FDD420A0683F2812D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163160.jpg" />
 </div>
 
 

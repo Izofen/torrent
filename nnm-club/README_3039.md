@@ -1,3 +1,75 @@
+###  Публикация: 461197   (95367) от 03.03.2012
+
+Резня / Carnage (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_95367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиПродюсер: Саид Бен Саид, Оливер Бербен, Мартин МосковицАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Джозеф Резвин, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462045   (95368) от 03.03.2012
+
+Журнал | Playboy [Croatia] №3 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7F971839C2C35A7DAE9C6DE0D96F4054DD328A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461592   (95370) от 03.03.2012
+
+NG: Суперсооружения древности / Ancient Megastructures (2007-2009) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно знакомясь с самыми интересными Суперсооружениями древности, узнайте об исторических событиях, на фоне которых создавались эти шедевры архитектуры - о жестокой борьбе за власть, человеческих трагедиях и о препятствиях, которые приходилось преодолевать древним зодчим.Жанр: ДокументальныйРежиссер: Мелиса Акдоган / Melisa AkdoganПеревод: Russian: AC3, ~448.00 kb/s avg |Oдноголосый закадровый|Формат: TSПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459536   (95409) от 04.03.2012
 
 DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
@@ -6,7 +78,7 @@ DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95409.jpg" />
 </div>
 
 
@@ -39,7 +111,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95410.jpg" />
 </div>
 
 
@@ -72,7 +144,7 @@ Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95416.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95430.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95435.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ John McLaughlin with The One Truth Band - Electric Dreams (1979) [FLAC|Lossless]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95443.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95443.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Maysa - Motions of Love (2011) [APE|Lossless]<Smooth Jazz, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95448.jpg" />
 </div>
 
 
@@ -215,7 +287,7 @@ KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95459.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95460.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95462.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95474.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95479.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95480.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:37366167C6E2DC7BDF747EBAD8C35BD5F45D47BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95482.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95487.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95487.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95519.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:66A797013F7DA6226926869EA7B93CC28BAF8A7E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95522.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Save2pc Ultimate 5.11 Build 1376 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95533.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ save2pc - программа для загрузки и конвертирова
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95546.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:BE4270159245EA784265362366AFCDD3021F7DAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95548.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95550.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95550.jpg" />
 </div>
 
 
@@ -592,7 +664,7 @@ magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95551.jpg" />
 </div>
 
 
@@ -616,7 +688,7 @@ magnet:?xt=urn:btih:5BE2A4D0E372F5464E823D909A06F40C4E26F4A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95557.jpg" />
 </div>
 
 
@@ -627,105 +699,6 @@ magnet:?xt=urn:btih:5BE2A4D0E372F5464E823D909A06F40C4E26F4A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD25F0337B52E07157529F47E8538FA62D98CAAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462885   (95560) от 05.03.2012
-
-VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Carmen McRae - I only have eyes for you (3:12)
-02.Stan Getz - Misty (5:26)
-03.Miles Davis - Summertime (3:19)
-04.Billie Holiday - You go to my head (2:53)
-05.Dexter Gordon - How Insensitive (4:57)
-06.Chet Baker - The Wind (3:59)
-07.Louis Armstrong - La vie en Rose (4:51)
-08.Stephane Grappelli - Paradise (6:01)
-09.Sarah Vaughan - What are you doing the rest of your life (3:55)
-10.Duke Ellington - The feeling of jazz (4:19)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462061   (95565) от 05.03.2012
-
-VA - The Dance Cube XXXV 3CD (2011) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95565.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность 01:11:06
-========================
-01 - Grant Lewis - As You Were (Original Mix)
-02 - MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
-03 - Taras Bazeev - Funcilar (Original Mix)
-04 - Dakota - Katowice (Mr. Pit Remix)
-05 - Emma Hewitt - Colours (Armin Van Buuren Remix Dub)
-06 - Claudia Cazacu - Quatrain
-07 - Lisa Lashes - The Bends (Original Mix)
-08 - Van Venrooij - We Connect (Cozmoz Darkroom Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B06577AADD49C886B5C6BCE81C9BE8673C27F84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462775   (95569) от 05.03.2012
-
-VA - The Dance Cube XXXVI 3CD (2011) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95569.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность: 01:17:27
-====================================
-01 - Tony Palmer - Loved You For 2 Weeks (Original Mix)
-02 - Markus Voorn - Earth Hour (Original Mix)
-03 - Breakfast pres. Keyworth - Median (Original Mix)
-04 - Dakota - Saints (Arnej Remix)
-05 - Oliver Hirsch Aka DJ Sabu - Moonsault (Original Club Version)
-06 - Orjan Nilsen - Lucky Strike (Original Mix)
-07 - Tangle & Mateusz - Evergreen
-08 - Anna Lee - New Hope (Ilya Soloviev Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3CA5391D961479704DD10A2E93748DBCC2CE4F
 ```
 
 

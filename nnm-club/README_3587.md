@@ -1,3 +1,84 @@
+###  Публикация: 1708833   (112944) от 22.03.2024
+
+VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|tracks] <Детская музыка>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эх, хорошо! (И.Дунаевский – В.Шмидтгоф) – Детский хор радио п/у В.Попова
+02. Наш край (Д.Кабалевский – А.Пришелец) – Хор п/у Г.Струве
+03. Веселое звено (М.Блантер – С.Михалков) – Детский хор радио п/у В.Попова
+04. У дороги чибис (М.Иорданский – А.Пришелец) – Детский хор радио п/у В.Попова(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFF9647A6148DB11D36A25C1D57B06629F0F7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708782   (112945) от 22.03.2024
+
+Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things I've Been Telling Myself for Years (3:34)
+02. Lovers' Leap (4:35)
+03. (Where Is It?) (0:27)
+04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708815   (112946) от 22.03.2024
+
+Игорь Николаев - Королевство кривых зеркал (1989) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Спасибо, Москва (И. Николаев)
+02. Садовник (С. Белявская)
+03. Розы для папы (П. Жагун)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708845   (112947) от 22.03.2024
 
 Журнал | Наша история №4 (58) (апрель 2024) [PDF]
@@ -6,7 +87,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112947.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Screen Wonders 2.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112948.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ VA - Top 8 February 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112949.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ Nevercenter CameraBag Photo 2024.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112950.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ VA - Miami Festival Anthems 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112951.jpg" />
 </div>
 
 
@@ -134,7 +215,7 @@ VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112952.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ Text Workflow 1.9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112953.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ WiFi Signal Strength: Wifiry 2.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112954.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ magnet:?xt=urn:btih:8D003AED9732EB8E62061D704A28EA2EAA4FBFF7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112955.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ VueScan Pro 9.8.30 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112956.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ Principle 6.34 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112957.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ magnet:?xt=urn:btih:65BC99E7AD84396FCC1ED08559B921417CEC30D1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112958.jpg" />
 </div>
 
 
@@ -309,7 +390,7 @@ AirFoil+Airfoil Satellite 5.11.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112959.jpg" />
 </div>
 
 
@@ -333,7 +414,7 @@ StopTheMadness 40.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112960.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:E5FE34F47D26EAEFE47F1A9646979E6B2E81BA7D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112961.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112962.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112963.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ Brave Browser 1.64.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112964.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ David Guetta - Live @ The Monolith Al Ula, Saudi Arabia (2024-03-20) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112965.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112966.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112967.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112968.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ AirFoil+Airfoil Satellite 5.12 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112969.jpg" />
 </div>
 
 
@@ -576,87 +657,6 @@ AirFoil – специальное программное обеспечение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F95E81E8867D1B8CDE47A30D9C77EB14DBFB3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708879   (112970) от 22.03.2024
-
-Юрий Лоза - Вся жизнь - дорога (1990) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Пой, моя гитара
-02. Итог
-03. Я не хуже, чем все(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A3E75AA44F3EDD3A252728AE7946A9AE636E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708771   (112971) от 22.03.2024
-
-ГУДТАЙМС - Классика. Часть 2. Хиромантия (2024) Deluxe Edition [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вступление
-2. Intro
-3. Видение
-4. Натальные карты (Скит)(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C3F6D5224B0217742306E9DEA644C4A8968BD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708873   (112972) от 22.03.2024
-
-Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BAAD01C6CDD71716CACF1A0D28786295796BD8
 ```
 
 

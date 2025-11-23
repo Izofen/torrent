@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88926.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88936.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88938.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:08E9C8E73FA7DD06596D29F9BFB0EF0311684A24
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88952.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Windows 7 Manager v4.0.4 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88972.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 7 Manager - это мощная системная утилита, ко�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88973.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:C19AE3E9D647CC1BA1E7C15AD9CB8E32F7D3A912
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88975.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88978.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88981.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88982.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88983.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88984.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88988.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88994.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88999.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89001.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Monsters / Монстрики (P) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89005.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:0A9905DEC38B5E236BC82231D5F4EAA12886D1B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89008.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:0A9905DEC38B5E236BC82231D5F4EAA12886D1B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89010.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Protect My Disk 6.3.0 [english]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89013.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Protect My Disk 6.3.0 [english]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89023.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Chakra (Arch + KDE) 2012.04 [i686 + x86-64] (2xDVD+2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89024.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89028.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89033.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:38D2370A5DEABBE7677D33C13EAA0C18C708D099
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89036.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:9E5C45C4E192B235CEC34A3B123BB78AB82B2AF0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89051.jpg" />
 </div>
 
 

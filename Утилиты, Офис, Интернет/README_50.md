@@ -6,7 +6,7 @@ Auslogics BoostSpeed 13.0.0.5 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175962.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LIII BitTorrent Client 0.1.1.20 (Pre-Release) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ System Ninja Pro 4.0 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177358.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RarmaRadio Pro 2.75.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177454.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Print Conductor 9.0.2308.32170 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178009.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178009.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ MyNotes Keeper 3.9.6 Build 2268 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178033.jpg" />
 </div>
 
 
@@ -144,6 +144,54 @@ magnet:?xt=urn:btih:858A4ECF1594FBF883BE72AA06EB89DB873F052F
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428801   (178106) от 04.12.2020
+
+CCleaner Browser 86.1.6938.201 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178106.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner Browser – быстрый, конфиденциальный и безопасный браузер для Windows от разработчиков программы для очистки и оптимизации системы CCleaner на базе Chromium.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F9A09ADE0B664B986468BBA6C21F41B60DD467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428596   (178843) от 03.12.2020
+
+Ashampoo AntiSpy for Windows 10 1.1.0.1 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 предлагает множество удобных функций, такие как помощник Cortana, которая может сделать повседневную жизнь для Вас проще. Чтобы это было возможно, Windows 10 должна собирать огромные объёмы данных. Она также анализирует профили пользователей, чтобы показывать рекламу с учётом данных о пользователях, что открыто признаёт Microsoft. По умолчанию Windows (   Читать дальше...   )Язык интерфейса: Русский, английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA00C8F60120F54747F4CB1C48F87D9A22226D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666685   (178904) от 05.10.2023
 
 ChimbaBench v2.5 (3.5.2.0) [En]
@@ -152,7 +200,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178904.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178904.jpg" />
 </div>
 
 
@@ -176,7 +224,7 @@ R-WipeClean  20.0.2380 Portable by AlexYar [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179208.jpg" />
 </div>
 
 
@@ -200,7 +248,7 @@ WinSnap 5.3.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179237.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179237.jpg" />
 </div>
 
 
@@ -224,7 +272,7 @@ CintaNotes Pro + Portable 3.14 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179939.jpg" />
 </div>
 
 
@@ -250,7 +298,7 @@ WinSnap 6.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180745.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180745.jpg" />
 </div>
 
 
@@ -274,7 +322,7 @@ USB Network Gate 10.0.2450 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181056.jpg" />
 </div>
 
 
@@ -298,7 +346,7 @@ Total Uninstall Portable (Ultimate, Professional, Essential) 7.5.0.655 x64 by re
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181154.jpg" />
 </div>
 
 
@@ -322,7 +370,7 @@ Total Uninstall Ultimate Portable 7.4.0.650 x64 by remek002 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181173.jpg" />
 </div>
 
 
@@ -346,7 +394,7 @@ Cyotek CopyTools 1.4.5.215 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181394.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181394.jpg" />
 </div>
 
 
@@ -364,6 +412,30 @@ magnet:?xt=urn:btih:A534650F14F77D99C3871C5DB0DF5DB91BF1D165
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427634   (181821) от 29.11.2020
+
+PDF-XChange PRO 8.0.343.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181821.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-XChange Pro - универсальная программа для работы с файлами в формате PDF, сочетающая в себе все полезные функции PDF-XChange Viewer и PDF-Tools. Представленная программа - все, что Вам нужно для создания PDF-файлов. Форматирование и вид PDF-документа будут в точности соответствовать исходным. Вы также можете добавлять примечания, водяные знаки, использовать гибкие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231597AE0C48596C57E6544AB6D89D4BFE8A0612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592926   (182208) от 24.11.2022
 
 MiniTool Partition Wizard Free 12.7 [Multi]
@@ -372,7 +444,7 @@ MiniTool Partition Wizard Free 12.7 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182208.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Waterfox Classic 2022.11 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182357.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ MiniTool Partition Wizard / Enterprise / Ultimate / Server / Technician 12.7 ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182829.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182829.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ MiniTool Power Data Recovery Standard / Deluxe / Enterprise / Technician 11.3 Re
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182911.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182911.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Core Temp 1.18.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185724.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185724.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Floorp Browser 12.3.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_185738.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:6607E8DC4A54D1C9DB1C8E0A03642F785066B155
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_185830.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ QuickPanel 0.1.0 + Portable [Ru] [Авторская раздача]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185870.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185870.jpg" />
 </div>
 
 
@@ -554,79 +626,6 @@ QuickPanel — панель быстрого запуска приложений
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02DB00FD8C6A11EA2E6858FDC1C499A473D76DF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827412   (186095) от 21.10.2025
-
-v2rayN 7.15.4 portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186095.jpg" />
-</div>
-
-
-###  Подробнее
-
-v2rayN — это универсальный инструмент VPN и прокси, разработанный для устройств Windows. Позволяет пользователям обходить интернет-ограничения, шифровать свои данные и с легкостью получать доступ к контенту ограниченному регионом.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC21C08BFA6D654C1574789142D44E5709070BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827410   (186097) от 21.10.2025
-
-UltraSearch Professional 4.8.3.1183 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186097.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A72DAC03BAA0216FA9CA179F3F8F29E313C4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827389   (186104) от 21.10.2025
-
-Flyoobe 1.40 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
-После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571051FCF02CD2D056333B1929F039B5A49DDF6F
 ```
 
 

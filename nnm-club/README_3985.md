@@ -1,3 +1,81 @@
+###  Публикация: 1690823   (123292) от 12.01.2024
+
+Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123292.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. An Ordinary Dream (Enla Momento)
+B1. To Love, A Tyrant
+B2. Her Halo
+C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691459   (123293) от 12.01.2024
+
+VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harlow - Fame (02:38)
+ 002. 71 Digits - Down Under (02:30)
+ 003. 613 feat. Даарика - Chapman c Вишней (02:50)
+ 004. AgroPlay feat. Ana Castela - Vida Loka (Ao Vivo) (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691402   (123294) от 12.01.2024
+
+Тени забытых предков / Тіні забутих предків (1964) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам одноимённой повести Михаила Коцюбинского... Десятки лет враждовали два гуцульских рода Палийчуки и Гутенюки. Но случилось так, что Иван Палийчук полюбил красавицу из вражеского рода Маричку, дочь убийцы своего отца, которой суждено было прожить короткую, но счастливую жизнь. Не мог без неё быть счастливым Иванко. Но жил дальше. Женился. Был любимым. (   Читать дальше...   )Производство: СССР / Киностудия им. А. ДовженкоЖанр: драма, мелодрамаРежиссер: Сергей ПараджановПеревод: профессиональный двухголосыйЯзык озвучки: русский, украинскийСубтитры: русские (SDH-colored (1 канал), RUSCICO), украинские, английскиеПродолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC15D02715FF2A162D6FF1712755F447999A4995
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691412   (123295) от 12.01.2024
 
 Icecream Video Editor Pro 3.14 [Multi/Ru]
@@ -6,7 +84,7 @@ Icecream Video Editor Pro 3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123295.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ EF Commander 2024.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123296.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:4B34AFF8250598929B0C6FA72B29CEE3C7FF9C7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123297.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123298.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ magnet:?xt=urn:btih:908A029CE8D0F7AF698D91035AF0F82CB43368E7
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123299.jpg" />
 </div>
 
 
@@ -128,7 +206,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123300.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123301.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123302.jpg" />
 </div>
 
 
@@ -204,7 +282,7 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123303.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:3A5EF2E79345C69EDF983A3DE684F4661AE780BD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123304.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ magnet:?xt=urn:btih:2160D30EDBD5B7224F039163FECB71CE00BF8C0F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123305.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ FileMenu Tools 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123306.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123307.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Anyma - Genesys (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123308.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ Celestia 1.6.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123309.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.11 Stable RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123310.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ magnet:?xt=urn:btih:415D5B4AB3BC4311CB798348D70855DEA0512A61
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123312.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ magnet:?xt=urn:btih:06096465E34FC6AEA5CA1089BF2441929D214F40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123313.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ magnet:?xt=urn:btih:6A129B1FAC324CF5075479480A821D2EB20C52A9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123314.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ magnet:?xt=urn:btih:8747ABD0EE0EE6CDF5D03AD9E86BC3896F404A9D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123315.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ KStars 3.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123316.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ VA - Sonatas For The Soul (2024) [MP3|320 Kbps] <Neoclassic, Classic, New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123317.jpg" />
 </div>
 
 
@@ -570,79 +648,6 @@ VA - Sonatas For The Soul (2024) [MP3|320 Kbps] <Neoclassic, Classic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691435   (123318) от 12.01.2024
-
-Снова ты / You Again (2010) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешная PR-менеджер Марни приезжает на свадьбу брата. Выясняется, что он собирается жениться на девушке, которая ужасно изводила Марни во время учёбы в школе. Ситуация становится ещё хуже, когда выясняется, что сногсшибательная тётя невесты была школьным кошмаром мамы Марни... Старые обиды снова оживают в уморительной комедии о том, к чему может привести встреча (   Читать дальше...   )Производство: США / Touchstone Pictures, Oops Doughnuts ProductionsЖанр: комедияРежиссер: Энди ФикменАктеры: Кристен Белл, Сигурни Уивер, Джейми Ли Кёртис, Одетт Эннэйбл, Николь Абрамсон, Кайл Эгню, Шанна Барретт, Кайл Борнхаймер, Бобби Баркли, Лайонел Д. Карсон, Кристин Ченоуэт, Патрик Даффи, Брэнди Фьюч, Виктор Гарбер, Дженна Ли ГринПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8ECD1FE89E59E704134CAAB7328B7238DA681EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691380   (123319) от 12.01.2024
-
-Затерянные / Tel Aviv/Beirut (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123319.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 год. В Ливане бушует война. Молодой израильский солдат Йосси вынужден отправиться на фронт, несмотря на то что его жена Мириам только что родила ребенка. В Ливане он знакомится с Фуадом, маранитским ополченцем, сотрудничающим с Цахалом. Эта странная дружба выдерживает все испытания войной и общественным осуждением. Спустя много лет дочь Фуада Таня, подобно отцу, (   Читать дальше...   )Производство: Кипр, Франция, Германия / Moby Dick FilmsLes Films de la Croisade, Twenty Twenty Vision, Filmproduktion GmbHЖанр: драмаРежиссер: Михаль БоганимАктеры: Зальфа Сёра, Сара Адлер, Шломи Элькабец, Юн Буаб, София Эссаиди, Maayane Elfassy Boganim, Serena Minassian, Amit Shushani, Talia Maidenberg, Авишай КоэнПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07278F960FE58193A76447A524983EA327108427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691528   (123320) от 12.01.2024
-
-NIUBI Partition Editor 9.9.2 Pro / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123320.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED44CC8E62936600711D979EBE2EB42A83FCFDA
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1717535   (111150) от 20.04.2024
+
+Живая еда с Сергеем Малозёмовым (20.04.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хранение в холодильнике: как его правильно организовать? Стоит ли хранить в холодильнике яйца и хлеб, как низкие температуры меняют вкус тропических фруктов и можно ли хранить продукты в пакетах?
+Секреты сочности и прожарки самых популярных блюд из мяса.
+ Городские жители, в отличие от сельских, практически разучились переваривать клетчатку. Змеи вместо мяса: чем (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1691E76D58AD11FBF4CFB4E4AD51DD2A4E7C1862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717606   (111151) от 20.04.2024
+
+Чингиз Абдуллаев | Дронго (Книга 79). Фестиваль для южного города (2024) [MP3, Матрёна Куликова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111151.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Баку на международный кинофестиваль в качестве почетного гостя приезжает скандально известный иранский режиссер Хусейн Мовсани, эмигрировавший в Великобританию из-за гонений и угроз на родине. В Иране за фильм "Страдания блудницы" ему был вынесен смертный приговор, а тому, кто сможет привести его в исполнение, объявлена награда в два миллиона долларов. (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A438C50B27AD2B4C893EAB55CCE402F979BF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717508   (111152) от 20.04.2024
+
+PowerDirector – Video Editor v13.4.1 b2404191 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.04.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B061CF19057FB86D9B43EC8FB2D12118A11263EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717401   (111153) от 20.04.2024
 
 Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
@@ -6,7 +80,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111153.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ Dee_Waste - Всем, кто остался (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111154.jpg" />
 </div>
 
 
@@ -59,7 +133,7 @@ Junkyard Drive - Look At Me Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111155.jpg" />
 </div>
 
 
@@ -86,7 +160,7 @@ Matt Ottewill - 12 From 5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111156.jpg" />
 </div>
 
 
@@ -113,7 +187,7 @@ Balance Of Power - Fresh From The Abyss (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111157.jpg" />
 </div>
 
 
@@ -140,7 +214,7 @@ Boogie Beasts - Neon Skies & Different Highs (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111158.jpg" />
 </div>
 
 
@@ -167,7 +241,7 @@ magnet:?xt=urn:btih:8BF9B56EFC449013BA316470272BD003C2BF2883
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111159.jpg" />
 </div>
 
 
@@ -192,7 +266,7 @@ Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111160.jpg" />
 </div>
 
 
@@ -219,7 +293,7 @@ Bloodbound - The Tales of Nosferatu - Two Decades of Blood (2004-2024) (2024) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111161.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ Escape The Fate - Out Of The Shadows 2.0 (2023) Deluxe Edition, 2024, Big Noise 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111162.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:761C02A36C3CD2977FFBE7C974741EB01659BD1E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111163.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ Supernova Jazzhands - Blue Sunset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111164.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111165.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ magnet:?xt=urn:btih:43F5AE161F75184930B3A5185F810F3FC3F8827A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111166.jpg" />
 </div>
 
 
@@ -375,7 +449,7 @@ magnet:?xt=urn:btih:42D2C30DE54B00EDDD74CCF81A08DBED263543A6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111167.jpg" />
 </div>
 
 
@@ -399,7 +473,7 @@ Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111168.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ Kid Nebraska - Loud and Rude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111169.jpg" />
 </div>
 
 
@@ -453,7 +527,7 @@ magnet:?xt=urn:btih:52FA21EB1C33C6FAF448B30E6E447712A60B8076
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111170.jpg" />
 </div>
 
 
@@ -477,7 +551,7 @@ Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111171.jpg" />
 </div>
 
 
@@ -501,7 +575,7 @@ magnet:?xt=urn:btih:853A82B8201E8CC9C7453922D04B7B3A463C167D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111172.jpg" />
 </div>
 
 
@@ -525,7 +599,7 @@ VA - Pure Dreams, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111173.jpg" />
 </div>
 
 
@@ -552,7 +626,7 @@ magnet:?xt=urn:btih:1D7F52C884E81B06E22B001BF1B29C451BB68824
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111174.jpg" />
 </div>
 
 
@@ -576,7 +650,7 @@ Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111175.jpg" />
 </div>
 
 
@@ -590,84 +664,6 @@ Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6EECEE5D97A42462F2694F40963EFFC4388DDA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717448   (111176) от 20.04.2024
-
-PhotoRoom v4.9.4 b1364 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.04.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7ABE48D7E4B298EE033B61481EECDBF7BF5A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717451   (111177) от 20.04.2024
-
-Korpiklaani - Rankarumpu (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kotomaa 03:10
-02. Tapa sen kun kerkeet 02:26
-03. Aita 03:47
-04. Saunaan 03:19(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3F84165B651FDAA9CAB8FBE13B4F6F1EAAE121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717432   (111178) от 20.04.2024
-
-Johnny Burgin - Ramblin' From Coast to Coast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramblin' From Coast to Coast (3:29)
-02. Gettin' My Blues On (4:00)
-03. I Need Something Sweet (4:17)
-04. Silently Suffering (4:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610E2B0EEC010E240DC478DE457AB8804625E3E4
 ```
 
 

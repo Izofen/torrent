@@ -1,3 +1,176 @@
+###  Публикация: 1600923   (153216) от 29.12.2022
+
+Не дыши: Начало / Old Man (2022) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странный старик живёт в одиноком домике в лесной глуши. Однажды к нему забредает заблудившийся любитель пеших походов и сразу же вызывает у хозяина дома подозрения. Старик наставляет на незваного гостя ружьё и начинает расспрашивать.Производство: США / Paper Street Pictures, Blood Oath, Rubicon EntertainmentЖанр: триллерРежиссер: Лаки МаккиАктеры: Стивен Лэнг, Марк Сентер, Патрик Дарро, Лиана Райт-МаркПеревод: Дублированный (Кипарис)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972EB8C9D67A04CBF681A315D30FA797526186A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434031   (153218) от 23.12.2020
+
+Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153218.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке вы научитесь создавать низкополигональные объекты, используя методы моделирования и развертки UV, которые применяются в профессиональной среде разработки. Вы также научитесь правильно запекать карты нормалей и карты освещения с последующей их доработкой в программах CrazyBump и Photoshop.
+
+Знание 3Ds Max и Maya предпочтительно для работы, однако эти (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 03:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C6F330953CC55BD4154FF92694EB2119C73A09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677234   (153219) от 16.11.2023
+
+Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro To The Mind (1:55)
+02. Deathzone (2:47)
+03. Sacra (3:44)
+04. Kaamos (4:20)(   Читать дальше...   )Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA646A2B2AE8A1D6B013658B6BEDC1D379172231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194781   (153220) от 26.12.2017
+
+Auslogics BoostSpeed 10.0.1.0 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD6D73F3A61A40A1AFAC774A4DDB703AD4DEE4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518830   (153222) от 21.12.2021
+
+MarsEdit 4 v4.5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E665A1F0C4FA1192F8BDBBBD05D4D678A0C98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347302   (153223) от 22.12.2019
+
+D&D: Lords of Waterdeep 2.0.4 (2017) [En] [macOS Native game]
+
+>>Игры для macOS
+>>Casual Games, Other для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153223.jpg" />
+</div>
+
+
+###  Подробнее
+
+D&D Lords of Waterdeep - качественная стратегия, в которой игрок возьмёт на себя роль могущественного лорда и будет возводить город мечты. Для этого пользователь станет строить здания и разнообразные объекты, а также производить всяческие улучшения. Все преобразования при правильном подходе будут способны привлечь новых жителей и денежную прибыль. Помимо этого (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2017Разработчик: Playdek, Inc.Поддерживаемая ОС: macOS 10.8 и вышеЖанр: Cardgame, CasualЯзык озвучки: Не требуетсяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D79EBDF44208375DA75440E893E16C299D0503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968461   (153224) от 24.12.2015
+
+Годы молодые (1958) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная комедия о студентах и абитуриентах театрального училища — о молодых людях, только что окончивших школу и решивших пойти «в артисты»… У Сергея вся жизнь впереди и прожить свою жизнь он решает в большом городе. Он едет в Киев! По дороге он встречает на крыше поезда Лесика, который на самом деле оказывается обаятельной девушкой по имени Наташа…Производство: СССР, киностудия им. ДовженкоЖанр: Мелодрама, Мьюзикл, КомедияРежиссер: Алексей МишуринАктеры: Светлана Живанкова, Андрей Сова, Николай Яковченко, Людмила Алфимова, Николай Панасьев, Владимир Рудый, Валентин Кулик, Александр Хвыля, Георгий Склянский, Степан Шкурат, Ольга Ножкина, Борис Андреев, Иван Бондарь, Лев Окрент, Валерий Зиновьев, Сергей СибельПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF96629C403B19A5475641C8779ED45869D2DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600823   (153225) от 29.12.2022
 
 Хищники / As bestas / The Beasts (2022) BDRip [H.264/1080p] [AVO]
@@ -6,7 +179,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153225.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:507872A3E76111FBF7AF53195A572B3E30A1D6FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153226.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ magnet:?xt=urn:btih:2A750CFDB30985591BB4CAF15FD03D592CD1ED52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153228.jpg" />
 </div>
 
 
@@ -78,7 +251,7 @@ magnet:?xt=urn:btih:F04E50CBF1AA468A0AEBCA388AB53F38328E55BC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153229.jpg" />
 </div>
 
 
@@ -102,7 +275,7 @@ magnet:?xt=urn:btih:9AE172B8A4F7CAEDEA06ACCCE916CE2DA5D675E0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153230.jpg" />
 </div>
 
 
@@ -126,7 +299,7 @@ magnet:?xt=urn:btih:C80E4D24F62FD5A3D4B451F810669E16BA688CFE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153232.jpg" />
 </div>
 
 
@@ -152,7 +325,7 @@ magnet:?xt=urn:btih:60FBA4D417C54392FCB53CA232A0F3A0363B352F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153233.jpg" />
 </div>
 
 
@@ -176,7 +349,7 @@ magnet:?xt=urn:btih:6F515BCDBAABF484118FDD6EF63D5C38BD761BC5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153234.jpg" />
 </div>
 
 
@@ -200,7 +373,7 @@ magnet:?xt=urn:btih:1A5D48BC50773B121CE2C52F0D5B0C311F99E857
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153236.jpg" />
 </div>
 
 
@@ -225,7 +398,7 @@ magnet:?xt=urn:btih:BF50A7486F65DE393F8FC03EB158494D9BAFE35A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153237.jpg" />
 </div>
 
 
@@ -249,7 +422,7 @@ magnet:?xt=urn:btih:1E712E18987EE7842175EA124A4A7AD1FDD72410
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153238.jpg" />
 </div>
 
 
@@ -273,7 +446,7 @@ Erroll Garner - 1952-1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153239.jpg" />
 </div>
 
 
@@ -300,7 +473,7 @@ magnet:?xt=urn:btih:12536CD1AE2549201ECD83B38E39FF91B7ED83B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153241.jpg" />
 </div>
 
 
@@ -324,7 +497,7 @@ Dj VoJo - CLUB DESIRE vol.21: Reborn (2012) [MP3|320 кб/с]<House, Electro-Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153242.jpg" />
 </div>
 
 
@@ -348,7 +521,7 @@ magnet:?xt=urn:btih:320E5E1F0EA687B0E85C52BA07160EAA03981466
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153243.jpg" />
 </div>
 
 
@@ -373,7 +546,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153244.jpg" />
 </div>
 
 
@@ -398,7 +571,7 @@ magnet:?xt=urn:btih:4F79A136C97CB2F98C70F7CB69EB6B901B29858F
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153245.jpg" />
 </div>
 
 
@@ -422,7 +595,7 @@ VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153246.jpg" />
 </div>
 
 
@@ -449,7 +622,7 @@ magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153247.jpg" />
 </div>
 
 
@@ -460,179 +633,6 @@ magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7000AD48EE26A62577ACC255E6E6E13CD8E837E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595647   (153249) от 29.12.2022
-
-CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153249.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor Pro - расширенная версия утилиты, предназначенной для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C865EF342FC16E32E872C56E104FBAA7ED7084E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194854   (153250) от 26.12.2017
-
-NG: Доисторические монстры Гитлера / Hitler's Jurassic Monsters (2014) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глухие леса в самом сердце Европы хранят следы необыкновенного эксперимента нацистов. Подробности этого странного плана лишь сегодня сложились в цельную картину. У немецких ученых созрел грандиозный замысел - вернутся назад в прошлое и воссоздать то, что перестало существовать много тысяч лет назад. Они собирались возродить доисторических животных, давно исчезнувших (   Читать дальше...   )Производство: Великобритания, National Geographic, QuickfiremediaЖанр: Документальный, история, палеонтологияРежиссер: Джереми БристоуПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886A650D1842F49BE90AFE544BFD489ECA674E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347081   (153251) от 22.12.2019
-
-Терри Голдман | 100 книг по бизнесу, которые надо прочитать (2018) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153251.jpg" />
-</div>
-
-
-###  Подробнее
-
-С чего начинается бизнес? Принято считать, что с идеи. На самом деле – нет. Сама по себе идея ничего не стоит. Идея – это мысль, продукт сложных химических процессов, происходящих в нашем мозге. Она обретает стоимость и значение лишь тогда, когда воплощается в дело, становится толчком к действию. И вот тут-то перед человеком, решившим (или наконец-то решившимся) (   Читать дальше...   )Жанр: О бизнесе популярноФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D6BC9152C1B9F13F036B8E8FEDF6361AFCB9BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518787   (153252) от 21.12.2021
-
-URL Manager Pro 5.8.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153252.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E7FBA690AE9AFE9B0CF2B515B4B9F19F7D563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434107   (153253) от 23.12.2020
-
-Russian crosswords v1.15.3 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более трехсот уникальных кроссвордов на каждый день! Способен ли ты решить их все? Все кроссворды работают без интернета. Используй подсказки для разгадывания сложных слов. Играй каждый день для получения бесплатных подсказок!
-Несколько категорий на выбор:
-- Классические
-- Тематические(   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 11.12.2020Разработчик: Litera GamesПоддерживаемая ОС: Android 4.1+Жанр: Словесные игрыЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968604   (153254) от 24.12.2015
-
-SUMo Pro 4.2.4.297 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153254.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUMo (Software Update Monitor) — последняя версия данной программы, которая поможет поддерживать ваш ПК обновленным и обеспечит его безопасность. В отличие от встроенной функции автоматических обновлений, SUMo предупреждает о доступных обновлениях перед запуском программы.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FB0C882521F7D50A6B2ECA9804A2EC511B5B6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347063   (153255) от 22.12.2019
-
-Freemake Mega Pack 3.2 by CUTA [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Mega Pack - это репак включающий два продукта от компании Freemake: Freemake Video Converter и Freemake Video Downloader.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EA3ABAC2364A10A86B164A6853B5CE0C0324E4
 ```
 
 

@@ -6,7 +6,7 @@ VA - Русская 30-ка хитов 11 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Firefox Browser ESR 128.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28668.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28668.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3015 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28669.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28669.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Самые новые песни о любви 8 (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28670.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - The Best Of Italo-Disco Vol. 7 (1986) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28671.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28671.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Новые хитовые песни 2025, Часть 2 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28672.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28672.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:BB0AF6996E2503F296CAAA21A3EE9D0CF78CD509
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28673.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A4B86BE7077B738F9540FEDC89C456CCBA2AE85C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28674.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:C110BAA72223FD38A55BE54593CAB6F6AFDD0B1E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28675.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Chill House Deep 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28676.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28676.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:67B47F1F058A10EE9C2A968DF9FBF00D10B315FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28677.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:9F31EEF94D493B576A8D00A682CB76EC7B1FD644
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28678.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:0037FAEB544976FB1DE72E1A1EAC0DABAB4EDF4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28679.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C5D010E693D631646EBB7BCC79AEFD0FDFE652A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28680.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Firefox Browser 135.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28681.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Firefox Browser ESR 115.20.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28682.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28682.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:B813FB5C2826C4238526385902418968D80DF2FA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28683.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ WinTools.net Premium 25.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28684.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28685.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:302337D31ADC4ED11B788F37700A97ED24B89EF3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28686.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:2B4C583E78B24BF07DCC6CDDF9686F7CE5754C8D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28687.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28688.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:05B70FA92090BDC6F0BBC7C47F07C819797BB6FC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28689.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ PicPick Free+Pro 7.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28690.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:A18582D0F9F16F95AE430300285170765D500441
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28691.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28691.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ doPDF 11.9.489 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28692.jpg" />
 </div>
 
 

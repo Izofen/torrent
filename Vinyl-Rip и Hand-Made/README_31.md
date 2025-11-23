@@ -6,7 +6,7 @@ Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coal Chamber - Studio Albums (4 releases) (1997-2015) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110912.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110914.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110968.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111022.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111059.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111067.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111072.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111110.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111153.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111193.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111305.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111466.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111605.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111663.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111668.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111773.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111867.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111894.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111921.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111982.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Royal Thunder - Studio Albums (5 releases) (2010-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112128.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112151.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112223.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112485.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112497.jpg" />
 </div>
 
 

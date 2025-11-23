@@ -1,3 +1,30 @@
+###  Публикация: 1628424   (239115) от 22.04.2023
+
+КВН-2023. Высшая лига. 1/4 финала, игра 1 (2023) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_239115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая игра 1/4 финала, сезона 2023 года Высшей лиги КВН.
+Играют команды:
+«Город N» (Челябинск)
+Сборная МАИ (Москва)(   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE22D7280B092C04954B5DB0645A1A79AEED3159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627204   (239594) от 18.04.2023
 
 Концерты (2023) WEBRip [H.264/1080p] (сезон 2, выпуск 4)
@@ -6,7 +33,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239594.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239594.jpg" />
 </div>
 
 
@@ -30,7 +57,7 @@ magnet:?xt=urn:btih:5929465B013E2F2B6554D13E78404C0BE043DB9C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240104.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240104.jpg" />
 </div>
 
 
@@ -54,7 +81,7 @@ magnet:?xt=urn:btih:D233429134A70369E1CF1E1219F5AF8378135678
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240601.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240601.jpg" />
 </div>
 
 
@@ -78,7 +105,7 @@ magnet:?xt=urn:btih:7BE787B0D74B474C916F7DA83141921D5F472D5E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244632.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244632.jpg" />
 </div>
 
 
@@ -105,7 +132,7 @@ magnet:?xt=urn:btih:B71FC68AE6CD7795F4EEC1CEC33B921F8AA2CB03
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246041.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246041.jpg" />
 </div>
 
 
@@ -132,7 +159,7 @@ magnet:?xt=urn:btih:A11CDD490FAB8862B3AAD78E79AC503757E0856E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246112.jpg" />
 </div>
 
 
@@ -156,7 +183,7 @@ magnet:?xt=urn:btih:8E4CFA0FD5D9CE785BE043724CDFEFF00B390051
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246142.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246142.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ magnet:?xt=urn:btih:23A39F2B238A176D5EFB7B639BCD06314F800625
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246168.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246168.jpg" />
 </div>
 
 
@@ -204,7 +231,7 @@ magnet:?xt=urn:btih:D5374365C063CA755BDE741260D58C792D0AD4FD
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246234.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246234.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ magnet:?xt=urn:btih:E4FD92F93E67319C400ABD4812B4EE2037EE05A7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247484.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247484.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ magnet:?xt=urn:btih:A3FB1B943F09D648E882D4C99F881969AFA329EC
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247734.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247734.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ magnet:?xt=urn:btih:546EAED57024BCF3D8CE5954463506DE6598B9A3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251673.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251673.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ magnet:?xt=urn:btih:8E151D42D49D5DE3BB6533472334FF965D85CD71
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251733.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ magnet:?xt=urn:btih:E6AA619D95AC733C369FF6CDDBA714DFAEF089E4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251780.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251780.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ magnet:?xt=urn:btih:9743C70FBE24E417E0F2F587EE707EA9C660D039
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252291.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252291.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ magnet:?xt=urn:btih:A9E4F1995B4DDBF107D5E4E081D02D3BA7ACC6ED
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252321.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252321.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ magnet:?xt=urn:btih:C36B58BBFC7A5776250BB6B92A452E7EF01FFD06
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252368.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252368.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ magnet:?xt=urn:btih:7AD6C7FBABE3B925FA343A5ACA1C93006CFB1CCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254905.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254905.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ magnet:?xt=urn:btih:4734D801FB3A92D3F35F71A7208C6F42983C28C3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255885.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ magnet:?xt=urn:btih:551365F4214E8D1309CE173A29A4B73A455B6022
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256403.jpg" />
 </div>
 
 
@@ -493,7 +520,7 @@ magnet:?xt=urn:btih:001D923E7256104598C15B0FE5585AC931A3074B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256662.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ magnet:?xt=urn:btih:99CCDE0EE85ACE8A63A73272702E29A90BF59056
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256709.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ magnet:?xt=urn:btih:E911BB8F95DC6F19AAEE85CA96303F562592E97A
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256788.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256788.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ magnet:?xt=urn:btih:B035F896052EC6AC0245F689E70D4B8132431DB1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256882.jpg" />
 </div>
 
 
@@ -576,6 +603,30 @@ magnet:?xt=urn:btih:B035F896052EC6AC0245F689E70D4B8132431DB1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882DB6DBD3128FF5766BEC0BEC20A4A9FF087631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838226   (257973) от 21.11.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2025.11.21) IPTV [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257973.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEF1F23425528143AC2513DE6782F0584BD9FD4
 ```
 
 

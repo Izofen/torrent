@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47805.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8B57184E4A3EF8575507C1B086CEF7558EAD798B
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47806.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:413E8CBF368B8123556816F95C28FFB72B0A9BEB
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47807.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47808.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:73197D95185AA2B958CAA1C317754EA68D828F12
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47809.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:89BBE16FE1DDD4E794E8AF9039D42AAE43BB18AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47810.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F5DBB45A0567C0DB29E5DD86162C4762B24D75DC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47811.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CC8BA085457C7E21BCA4C00A21ECFA9716697754
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47812.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5604EC1BBF0D5D68644D0C198B562A6446F7F036
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47813.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:F9444157579762B9FBD5EF99B30237ECD0673F3F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47814.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:09A2A1820E37B1BB6563F65814824CB167DBF633
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47815.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:2C6B194E3B393D61AE55E6DBEF28E04B3408A2CC
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47816.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:0F768553C4854AB3E93137290BAC96161060891D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47817.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E31BAACB7B23A909A9CC94E5BB5712B65AE1141B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47818.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F4AB9933D62441DF3D656E03892B15CA3FAE820A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47819.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:D3B8A81B4D6E1967772C40848BFB7C4CF6DC3F99
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47820.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D9003B66DF2FDD86CBC091E43768534791C0B91C
 >>37
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47821.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:D9003B66DF2FDD86CBC091E43768534791C0B91C
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47822.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47823.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47824.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:11B8C8236FE24BCD3429E8E37FCF9408D03E1139
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47825.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47826.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:12E97CC47BCD822C1F6AAB020B2DDBEFEF0DBA9F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47827.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Empire назвал 50 величайших научно-фантастичес�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47828.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Empire назвал 50 величайших научно-фантастичес�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47829.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:328F0A8873CD913CDA398FFB7667A4C323FCAF6A
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47830.jpg" />
 </div>
 
 

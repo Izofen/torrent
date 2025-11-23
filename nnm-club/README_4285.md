@@ -1,3 +1,77 @@
+###  Публикация: 1682177   (131806) от 06.12.2023
+
+Денис Джонсон | Дымовое древо (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история Шкипа Сэндса – шпиона, сотрудника Отдела психологических операций, действующего во Вьетнаме,– и всех тех несчастий, которые ждут его из-за знаменитого дяди Шкипа, ветерана войны, известного в кругах разведки просто как Полковник. А еще это история братьев Хьюстон, Билла и Джеймса, которых судьба занесла из аризонской пустыни на войну, где грань между (   Читать дальше...   )Жанр: Современная зарубежная проза, спецслужбы, психологический триллерПеревод: Евгений РоманинИздательство: ACTФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1ED6CFF4B502C3F96145FCE79FE5CA3D272E59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595187   (131807) от 29.12.2012
+
+К.Н. Лунгу, Д.Т. Письменный | Сборник задач по высшей математике (в двух томах) [2008] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть пособия охватывает материал по линейной алгебре, аналитической геометрии, основам математического анализа и комплексным числам. Необходимые теоретические сведения по всем разделам вместе с детально разобранными типовыми задачами позволят даже слабому студенту освоить азы этой непростой науки. Вместе с тем в этом сборнике немало интересных и сложных задач для продвинутых студентов. А наличие «качественных» вопросов к экзамену, контрольных работ и устных заданий делает эту книгу бесценной не только для студентов, но и для преподавателей. Неслучайно в последние годы этот сборник задач прочно вошел в учебный процесс и занял место на полках библиотек многих технических вузов.
+
+Вторая часть пособия включает в себя следующие разделы: Ряды и интегралы, Векторный и комплексный анализ, Дифференциальные уравнения, Теория вероятностей, Операционное исчисление.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFEE2F33C4B9DD627131FE0C790060FCAD32B4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682144   (131808) от 06.12.2023
+
+Журнал | Все для женщины №50 (декабрь 2023) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131808.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей (   Читать дальше...   )Жанр: Женский журналИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A690FC81D80795CAAEE8266366E14D8FCA9078C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595893   (131809) от 29.12.2012
 
 Пираты Карибского моря: Сундук мертвеца / Pirates of the Caribbean: Dead Man's Chest (2006) BDRip [720p] [hand made 60fps]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131809.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Google Chrome 120.0.6099.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131810.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Media Player Classic - BE v1.1.3.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131811.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Media Player Classic - BE – универсальный проигрывате�
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131812.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Google Chrome 120.0.6099.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131814.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:D06E4CF0C89A02017C2BAD9FAC294E42C9C6A9F1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131815.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:38AE8E2E9BA0F6D2EFE4C97D901EC680F5514C07
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131817.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ magnet:?xt=urn:btih:6B3E3D0B7D5D368A6ABAC725E3C8B9D045B68164
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131818.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:FBCF6D6A0A0114D2CA5C0E8B2F165CDA5F6B6967
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131820.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131821.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ magnet:?xt=urn:btih:E53021E948485FD6A416FD948FC6E36777B87ACC
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131822.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ magnet:?xt=urn:btih:EFBDC5DE035456FF0484E5DE48CF3F334B6A74E4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131825.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ magnet:?xt=urn:btih:93196BCD83732613E35353E23BC35E8953B84621
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131826.jpg" />
 </div>
 
 
@@ -376,7 +450,7 @@ magnet:?xt=urn:btih:55578CAD547B853B0BC9A525386E247DBCF1F506
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131827.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -427,7 +501,7 @@ magnet:?xt=urn:btih:242C44C91DA3FEE77968391F7649B334A3B8E4CB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131831.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131833.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131835.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131836.jpg" />
 </div>
 
 
@@ -526,7 +600,7 @@ StartIsBack 1.3 RePack by CRD [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131837.jpg" />
 </div>
 
 
@@ -550,7 +624,7 @@ StartIsBack возвращает в Windows 8 полнофункциональн
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131838.jpg" />
 </div>
 
 
@@ -561,82 +635,6 @@ StartIsBack возвращает в Windows 8 полнофункциональн
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595983   (131839) от 29.12.2012
-
-Работы художников - PURPLE DREAM. Illustrations and Concept Art 2D (part.1) [JPG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - PURPLE DREAM (part.1) Illustrations and Concept Art 2DРазрешение файлов: ~ 1000x1500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11944F37BFDC086A0D1A0FF8BE215B7A431B32B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681984   (131840) от 06.12.2023
-
-Marilyn Manson - The Golden Age Of Grotesque (2003) Deluxe Edition, 2006, Universal Music [MP3|320 Kbps] <Alternative Metal, Industrial, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thaeter — 1:14
-02. This Is the New Shit — 4:19
-03. mOBSCENE — 3:25
-04. Doll-Dagga Buzz-Buzz Ziggety-Zag — 4:10(   Читать дальше...   )Жанр: Alternative Metal, Industrial, Nu MetalПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B3A0CFED72A7F1DEC985154B761F7328D5098E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595979   (131841) от 29.12.2012
-
-Marc Dorcel Calendar 2013
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный календарь на 2013 год от Marc Dorcel.
-Серия раздач отРазрешение файлов: ~  1961x2669
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A247E0F9C46077B8A128A057CBFF40F42B5ACF
 ```
 
 

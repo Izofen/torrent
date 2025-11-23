@@ -1,3 +1,96 @@
+###  Публикация: 469774   (97095) от 18.03.2012
+
+Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemix - Cloud Of The South 08:53
+ 02. Alchemix - Freak Toc 08:17
+ 03. Alchemix - New Form Of Energy 08:20
+ 04. Predators - What Is Out There (Alchemix Remix) 08:37
+ 05. Alchemix - Let Me Try 07:19
+ 06. Alchemix - I Can Hear You 08:31
+ 07. Alchemix - Illusions 08:27
+ 08. Alchemix - What Is Reality 08:02
+ 09. Alchemix - The Vision Begins 08:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470182   (97096) от 18.03.2012
+
+[Wallpapers] Full HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97096.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 1
+Название: Full HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48190CE0109DC9C6D38DFBEF6E7609B2552F58BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469754   (97097) от 18.03.2012
+
+VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Rye Rye - Jello
+002. Colina - Du and Ich (Rain Edit)
+003. Madonna - Girl Gone Wild (Radio Edit)
+004. Streamrocker, Rene De La Mone - Changes (Purple Project Remix)
+005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
+006. Jordi MB feat. Jason Rene - Lady (Say Hey)
+007. Les mots - Keen' V
+008. T9 Feat. Krec Check - Blues
+009. Bk & Kelly Rowland - Down For Whatever (DJ Pasha Lee & DJ Vitaco mash-up)
+010. Darius & Finlay vs. Tom Mountain - Ubap (Video Mix)2012Жанр: Pop,DanceПродолжительность: 07:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B402440425F09E2D3DE538345A351C7767B7A6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467123   (97098) от 18.03.2012
 
 VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
@@ -6,7 +99,7 @@ VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97098.jpg" />
 </div>
 
 
@@ -48,7 +141,7 @@ VA - Звездная Вечеринка. Зарубежные Новинки (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97099.jpg" />
 </div>
 
 
@@ -81,7 +174,7 @@ Kaspersky World 1.3.2.99 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97100.jpg" />
 </div>
 
 
@@ -105,7 +198,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97102.jpg" />
 </div>
 
 
@@ -133,7 +226,7 @@ VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97103.jpg" />
 </div>
 
 
@@ -166,7 +259,7 @@ magnet:?xt=urn:btih:61EE60C83C869E3DCDF08A227A192AB16611CDE3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97104.jpg" />
 </div>
 
 
@@ -194,7 +287,7 @@ magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97105.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97105.jpg" />
 </div>
 
 
@@ -218,7 +311,7 @@ magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97107.jpg" />
 </div>
 
 
@@ -242,7 +335,7 @@ magnet:?xt=urn:btih:42FA96D432FF120FD860C2F22BC72D8F42079A30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97108.jpg" />
 </div>
 
 
@@ -270,7 +363,7 @@ magnet:?xt=urn:btih:856AA87BD01E3096FB520405C9C4813406234E82
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97109.jpg" />
 </div>
 
 
@@ -295,7 +388,7 @@ VA - XXXL Хитовый сезон Русский (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97112.jpg" />
 </div>
 
 
@@ -328,7 +421,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97115.jpg" />
 </div>
 
 
@@ -361,7 +454,7 @@ magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97117.jpg" />
 </div>
 
 
@@ -389,7 +482,7 @@ magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97120.jpg" />
 </div>
 
 
@@ -413,7 +506,7 @@ Simone Kopmajer - Nothing's Gonna Change (2011) [MP3|~225 кб/с (V1)]<Vocal Ja
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97121.jpg" />
 </div>
 
 
@@ -446,7 +539,7 @@ VA - Весенний хит-парад по-русски (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97122.jpg" />
 </div>
 
 
@@ -479,7 +572,7 @@ magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97123.jpg" />
 </div>
 
 
@@ -504,7 +597,7 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97124.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97124.jpg" />
 </div>
 
 
@@ -537,7 +630,7 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97125.jpg" />
 </div>
 
 
@@ -561,7 +654,7 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97126.jpg" />
 </div>
 
 
@@ -590,7 +683,7 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97131.jpg" />
 </div>
 
 
@@ -614,7 +707,7 @@ VA - Rock Romantic (Russian) (2012) [MP3|192-320 кб/с]<Rock, Hard Rock, Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97132.jpg" />
 </div>
 
 
@@ -647,7 +740,7 @@ magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97134.jpg" />
 </div>
 
 
@@ -662,85 +755,6 @@ magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469402   (97135) от 18.03.2012
-
-Грегори МакДональд | Жребий Флетча [1996] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C564A4A2566DC648E9A4B78435319285E15035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469952   (97136) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Масс-старт 15 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская гонка с масс-старта на 9 этапе кубка мира по биатлону в Ханты-Мансийске (Россиия)Жанр: СпортПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A65168FA588BFD88103AE8AE8DDF5D357033385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470061   (97137) от 18.03.2012
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989) [FLAC|Lossless]<New Age, Instrumental, Melody>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
-Год: 1989
-Жанр: New Age, Instrumental, Melody
-Продолжительность: 01:01:42Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: image+.cueТрек лист:
-01.  And So To Dream [09:52]
- 02. Solace (2) [09:46](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

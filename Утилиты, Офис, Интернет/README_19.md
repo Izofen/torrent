@@ -6,7 +6,7 @@ Wise Program Uninstaller 3.2.3.266 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25853.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25853.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Qalculate! 5.5.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25922.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CareUEyes 2.4.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25973.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25983.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26005.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ WizTree Enterprise 4.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26193.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26193.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ EMCO UnLock IT 7.0.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26210.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Nitro PDF Pro 14.36.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26214.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26214.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ DesktopDigitalClock 5.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26286.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Wise Registry Cleaner Pro 11.1.10.725 RePack (& portable) by Dodakaedr [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26356.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ HashTools 4.8.2 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26473.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Aiseesoft FoneLab for Android 5.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26492.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NetSetMan 5.3.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26496.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SyMenu 8.06.9162 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26504.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ IconTo Pro 7.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26530.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Simple Sticky Notes 6.7.5 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26552.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26552.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Advanced SystemCare Pro 18.2.0.222 Portable by zeka.k [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26862.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26862.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Change MAC Address 25.01 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27443.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PDF-XChange Editor Plus 10.5.2.395 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27464.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Wallpaper Engine 2.6.19 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27564.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ImgDrive Pro 2.2.1 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27641.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27641.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ AllDup 4.5.66 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27642.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27642.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ O&O ShutUp10++ 1.9.1444 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27785.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Macrium Reflect Server Plus v 8.0.7175 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27887.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Bandizip Pro-Ent 7.37 Build 69087 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27999.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ System software for Windows v.3.6.6 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28006.jpg" />
 </div>
 
 

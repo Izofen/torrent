@@ -6,7 +6,7 @@ Binary Paradigm - Road 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11973.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ John William Gordon - John William Gordon (2005) CD, Album [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12024.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12029.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12056.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12092.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12094.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12113.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12115.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ The Voodoohounds - The Voodoohounds (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12123.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12124.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12125.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ The Gravel Project - Find What You Need (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12127.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ The Muthas - They Come (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, America
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12128.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12129.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Skip House - Big Daddy Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12131.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12193.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Cottonfield Blues - Silent Porch (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12213.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Dyer Davis - Kiss The Ring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12219.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Olav & The Blues Cruise - Fulltime Lover (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12220.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Leanne Binder - I Got Something To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12221.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Nate Hammer - Dirty Pennies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12222.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fearless Scoundrels - Too Damn Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12223.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Robert Sidney Smith - 12 Bar Bob (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12225.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Ed Wills - Comin' Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12226.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12227.jpg" />
 </div>
 
 

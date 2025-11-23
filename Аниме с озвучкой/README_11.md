@@ -6,7 +6,7 @@ Girls Bravo | Браво, девушки! [2004, TV, 11 из 11] DVDRip 480p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61959.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62045.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62048.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:207BF54615C57D4F1A999FC4C1532D08E043C8FF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1E00102A50AB03AD3DC98097228B8D41C27F2A43
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62165.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:80E227F41B1C5E079CD90E9652F1E29EC2EF0B61
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62208.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:323FAE8CF5D270506A3FBD2DF89AB7A18DB597A0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62401.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62564.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0AB6C2890EB4EEE87F002F9C0309F082DFF6E10E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67388.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67417.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68608.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Kanokon - The Girl Who Cried Fox / Kanokon / Канокон [2008, TV, 12+12+2] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77036.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79703.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Gokusen / Гокусэн [2004, TV, 13 из 13] DVDrip 544p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82985.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:58532ABBCA17903CD984BAD6EC575355E491AD50
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100618.jpg" />
 </div>
 
 

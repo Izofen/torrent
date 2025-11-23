@@ -1,3 +1,80 @@
+###  Публикация: 1753083   (103895) от 03.10.2024
+
+Виктор Дандре | Портреты с натуры. Анна Павлова (2021) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Портреты с натуры.
+Самая знаменитая балерина прошлого столетия  Анна Павлова (1881–1931). В детстве её считали слишком худой и нескладной, в её успех не верил практически никто, никто, кроме самой Анны Павловой. Оказавшись однажды с матерью на балете в Мариинском театре, девочка буквально «заболела» танцами. С мечтами о них она засыпала и просыпалась, (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 12:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753007   (103896) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024)
+СУДЬЯ Мариани Маурицио (Рим, Италия)
+СТАДИОН «Вилльнев д-Аск» (Лилль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752986   (103897) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й.  Ливерпуль (Англия) - Болонья (Италия) (02.10.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Ливерпуль (Англия) - Болонья (Италия) (02.10.2024)
+СУДЬЯ Дабанович Никола (Черногория)
+СТАДИОН «Энфилд» (Ливерпуль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752999   (103898) от 03.10.2024
 
 Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Жирона (Испания) - Фейеноорд (Нидерланды) (02.10.2024) IPTV [H.264/1080p]
@@ -6,7 +83,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103898.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ magnet:?xt=urn:btih:94F71E53942A8C4C60B959E4D7702D54F23CD960
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103899.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103900.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103901.jpg" />
 </div>
 
 
@@ -109,7 +186,7 @@ magnet:?xt=urn:btih:55318693E3D39B00536D6245B329BC370971318B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103902.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ Iterum Nata - From the Infinite Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103903.jpg" />
 </div>
 
 
@@ -162,7 +239,7 @@ magnet:?xt=urn:btih:E4E6AC2B76477D65626B8F86E4E76074031E88CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103904.jpg" />
 </div>
 
 
@@ -188,7 +265,7 @@ Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103905.jpg" />
 </div>
 
 
@@ -215,7 +292,7 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103906.jpg" />
 </div>
 
 
@@ -242,7 +319,7 @@ Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103907.jpg" />
 </div>
 
 
@@ -269,7 +346,7 @@ Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103908.jpg" />
 </div>
 
 
@@ -296,7 +373,7 @@ Helloween - Metal Jukebox (1999) Remastered, 2024, Sanctuary Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103909.jpg" />
 </div>
 
 
@@ -323,7 +400,7 @@ Greg Nagy - The Real You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103910.jpg" />
 </div>
 
 
@@ -350,7 +427,7 @@ Chick Corea & Bela Fleck - Remembrance (2024) Thirty Tigers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103911.jpg" />
 </div>
 
 
@@ -377,7 +454,7 @@ Cannonball Adderley - Poppin' In Paris: Live At L'Olympia (1972) 2024, Elemental
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103912.jpg" />
 </div>
 
 
@@ -404,7 +481,7 @@ magnet:?xt=urn:btih:45C906B77D289D4A8F31F5958C9CE742A7E2259C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103913.jpg" />
 </div>
 
 
@@ -428,7 +505,7 @@ magnet:?xt=urn:btih:B2C6A23F97F00FBC8BA7C5CA6A96D417DD13B5AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103914.jpg" />
 </div>
 
 
@@ -454,7 +531,7 @@ magnet:?xt=urn:btih:6DA8A7A140B0C595EB9BE9B7BD70379D62B35C4B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103915.jpg" />
 </div>
 
 
@@ -480,7 +557,7 @@ magnet:?xt=urn:btih:630F79C7D0C4B31630258BF7FD22253397B4939B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103916.jpg" />
 </div>
 
 
@@ -506,7 +583,7 @@ Thomas Stieger - Choices (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103917.jpg" />
 </div>
 
 
@@ -533,7 +610,7 @@ Bound To B - Here I am! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103918.jpg" />
 </div>
 
 
@@ -560,7 +637,7 @@ magnet:?xt=urn:btih:9A9EC8BB17A369E53D8E140A71E9601FE8F071F8
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103919.jpg" />
 </div>
 
 
@@ -587,7 +664,7 @@ Lyberarchelulo - WyndSpring (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103920.jpg" />
 </div>
 
 
@@ -601,84 +678,6 @@ Lyberarchelulo - WyndSpring (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9A43B5C6873BC6575BA33D3094DDB1FAE26961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752406   (103921) от 30.09.2024
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Куньлунь Ред Стар (Пекин) (29.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Куньлунь Ред Стар (Пекин) (29.09.2024)
-СУДЬИ Акузовский Николай (Тольятти, Россия) Лазарев Глеб (Россия)
-СТАДИОН «МСРК «Ледовый Дворец»» (Санкт-Петербург) Зрителей: 11896Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC92B41495B4D64D1B7AFCC27375BD8A373FD5F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752407   (103922) от 30.09.2024
-
-Хоккей. КХЛ 2024-2025. Динамо (Минск) - Северсталь (Череповец) (29.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Динамо (Минск) - Северсталь (Череповец) (29.09.2024)
-СУДЬИ Раминг Станислав (Россия) Сергеев Александр (Жуковский, Россия)
-СТАДИОН «Минск-Арена» (Минск) Зрителей: 15086Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38720D11066020530D2CEB5F352922CE62FD1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752405   (103923) от 30.09.2024
-
-Хоккей. КХЛ 2024-2025. Динамо (Москва) - Нефтехимик (Нижнекамск) (29.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Динамо (Москва) - Нефтехимик (Нижнекамск) (29.09.2024)
-СУДЬИ Гофман Антон (Россия) Дударов Александр (Москва, Россия)
-СТАДИОН «ВТБ Арена» (Москва) Зрителей: 6905Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82755F613C449800F3F2DB53D367CD9FF5AEF265
 ```
 
 

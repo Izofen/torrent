@@ -1,3 +1,27 @@
+###  Публикация: 1570729   (221867) от 21.10.2022
+
+Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221867.jpg" />
+</div>
+
+
+###  Подробнее
+
+У айдол-группы "TINGS" большие мечты, но только маленькие достижения, и они не очень популярны. Лучший менеджер в мире должен был стать их спасителем, но... "Мне не интересно быть вашим менеджером". Появляется человек, Наосе Хинаки, человек без мотивации. Однако у него есть особая сила...? Это история о вас и о девушках, которые ярко сияют, чтобы (   Читать дальше...   )Производство: Япония, студия Studio KaiЖанр: повседневность, музыкальныйРежиссер: Ойкава КэйЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2495D7B6F8685EB4EBF59D5B24A57EC557E143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852107   (222937) от 21.12.2014
 
 Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Rus
@@ -6,7 +30,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222937.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222937.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224320.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224320.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224336.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224336.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224347.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224347.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224357.jpg" />
 </div>
 
 
@@ -128,7 +152,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224366.jpg" />
 </div>
 
 
@@ -152,7 +176,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224533.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224561.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226313.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226313.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229697.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229697.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230307.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:77F4558372C4ADB7E34ED3D79C0CC82D076DD360
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230322.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230322.jpg" />
 </div>
 
 
@@ -297,7 +321,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230325.jpg" />
 </div>
 
 
@@ -321,7 +345,7 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230519.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230520.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230603.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230603.jpg" />
 </div>
 
 
@@ -394,7 +418,7 @@ magnet:?xt=urn:btih:170B2C5F82CF6B9E288F43A68E2E909EE2945CE6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231061.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231061.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231120.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231120.jpg" />
 </div>
 
 
@@ -444,7 +468,7 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231132.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231132.jpg" />
 </div>
 
 
@@ -468,7 +492,7 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231151.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231532.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231532.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231610.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231610.jpg" />
 </div>
 
 
@@ -541,7 +565,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232073.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232073.jpg" />
 </div>
 
 
@@ -565,7 +589,7 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232754.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232754.jpg" />
 </div>
 
 
@@ -592,7 +616,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233108.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233108.jpg" />
 </div>
 
 
@@ -603,30 +627,6 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D3BE72A80F685A05CB366A7F800A36C6A2B16F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553425   (233183) от 25.05.2022
-
-Бедствие ли это? | Sounan Desuka? | Are You Lost? [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233183.jpg" />
-</div>
-
-
-###  Подробнее
-
-После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: Студия Ezola, Студия Studio BlancЖанр: Комедия, приключения, этти, сэйнэнРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (AniDub), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV), (Crunchyroll)Продолжительность: 12 серий по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
 ```
 
 

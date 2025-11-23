@@ -6,7 +6,7 @@ Paranormal Files 11: Sacrifice to Shadows / Паранормальные явл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53665.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Q-Dir 11.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53666.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53667.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53668.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A1262464524B590829524DE0949880F3FA185CE3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53669.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8EE13021B5B8CCD7268ADD72D11D13F27CD02D07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53670.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:66CBD9638685685929E9957C75AEF8FCB1A79AE6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53671.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:883F54E788DE193F8AB7586B972BE97962110B43
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53672.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4A01B337F7349E81C841D5DBBCEF00F59CA79414
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53673.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:D86BC30E2C890EDC584BC533A5B9EDBBE63CC756
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53674.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D26ACB191C34EAAEC966C82C3842020A00945F4B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53675.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53676.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53677.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ O&O AppBuster 1.4.1344 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53678.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ NVIDIA GeForce Desktop Game Ready 555.99 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53679.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PingPlotter Pro 5.24.3.8913 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53680.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53681.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:CD04FFEB7D9D15A4B01D09D1EDB649C2C1FA69E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53682.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:F15B5154884A943AEA5C3CBAEA0476386D3A60EB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53683.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53684.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:1EBD4F3B0AA29A7A7646B188A3BDB6CC8DA51BE3
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53685.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ LibreOffice 24.2.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53686.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ TikTok 35.1.3 Mod by Dmitry Nechiporenko + Plugin 1.42 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53687.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:29C8D90A787867190F33AE659D0293DF12578A79
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53688.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Windows XP Professional SP3 AS Edition 06.2012 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53689.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B79E3875149946B9237035D0061E432E6F9F75C6
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53690.jpg" />
 </div>
 
 

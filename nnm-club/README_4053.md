@@ -1,3 +1,75 @@
+###  Публикация: 1688481   (125060) от 30.12.2023
+
+Ведьма Лилли и Заколдованное Рождество / Hexe Lillis eingesacktes Weihnachtsfest / Lilly's Bewitched Christmas (2017) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя Лилли внешне не отличается от других школьниц, она – самая настоящая ведьма, и умело это скрывает от всех. В ее комнате живет Гектор, зеленый дракончик. Домашние думают, что это мягкая игрушка, а на самом деле это вполне разумное существо, умеющее мыслить и разговаривать. Лилли не верит в Рождество и в то, Санта-Клаус существует, она знает, что ей и ее младшему (   Читать дальше...   )Производство: Германия / Blue Eyes Fiction,Buena Vista International, FilmVergnuegenЖанр: фэнтези, драма, комедия, семейныйРежиссер: Вольфганг ГроосАктеры: Abdullah Daglioglu, Кристоф Биттенауэр, Герти Драссль, Хедда Эрлебах, Мареза Хёрбигер, Аня Клинг, Michel Komzak, Claudio Magno, Маурицио Магно, Михаэль МиттермейерПеревод: Дублированный (Велес)Язык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533F920505DD6F91AC7ACA517CD7BB0A231E4861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688705   (125061) от 30.12.2023
+
+Мама-невидимка 2 / Invisible Mom II (1999) DVD5 [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой сирота, наследник огромного состояния, попал в несколько странную семью. В первую очередь странную из-за того, что приемная мать может стать невидимой. Когда, неожиданно, появляются кузены мальчика, чтобы завладеть состоянием, его приемная мама спасает положение.Производство: США / Concorde-New HorizonsЮ, Royal Oaks Entertainment Inc.Жанр: фэнтези, комедия, семейныйРежиссер: Фред Олен РэйАктеры: Ди Уоллес-Стоун, Джастин Берфилд, Трентон Найт, Мики Доленц, Мэри Воронов, Бэрри Ливингстон, Кэти Гарвер, Эрик Лосон, Джонатан Хэйз, Рик МонтанаПеревод: одноголосый закадровый (Вячеслав Котов)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9B5E2BF561B6E40042D3E3CCC3696A98CB32FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688676   (125062) от 30.12.2023
+
+Единица с плюсом / Неразлучная пятёрка / Petka s hvezdickou (1987) HDTV [H.264/1080i] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125062.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинциальный южноморавский городок приезжает молодой учитель Петр Микеш, новый классный руководитель седьмого класса «А», известного своими озорными проделками. Главные же хулиганы класса — пять мальчишек, пять неразлучных друзей. Новый учитель сумеет наладить с ними отношения, а они сделают всё, чтобы он остался. Даже найдут невесту...Производство: Чехословакия / Filmové Studio GottwaldovЖанр: комедия, семейныйРежиссер: Мирослав БалайкаАктеры: Ян Гартль, Душан Блашкович, Ива Гуттнерова, Marián Zednikovic, Josef Prazmári, Вацлав Бабка, Вацлав Слоуп, Eva Repíková, Жан Билек, Мирослав КучераПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, чешскийСубтитры: русскиеПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B4E643D4FB8F8770EF9A852D145709971786F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688752   (125063) от 30.12.2023
 
 Журнал | Смена №1 (январь 2024) [PDF]
@@ -6,7 +78,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125063.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:00A47DBEF7E2A1E0A208CF380DB7961887C0BE31
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125064.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:1E777285C6A4B86B63FB1798A9BD1E973E036DCC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125065.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D08F68067B22778A8FFEE005EF544D0038A49100
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125066.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:E9065545FA7F2AEE8162D8B65EB4A7DEEF668111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125067.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:27870FEE07C28FF984ED2FD04EA0CCDD7F6FC02A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125068.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:ED5E2EE445A2469FA26CCC984B2C3B1C7B70E54E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125069.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:DDDBF86CB095D13BC60E1CE7B5BBD8EC172E56A5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125070.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:B83774820715B749AF19EBEC26D868FE0954B4F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125071.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:336AFF2309C72EBEC1B4F30C7DB5DEFC04A8FB78
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:1FD442AFA601BD781D185B0EF55A8FEF159BA3C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_125073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_125073.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:1FD442AFA601BD781D185B0EF55A8FEF159BA3C7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125074.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:69637EB260AEF5CBF889D79EE0F1BE311AB221C6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125075.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:D3D1083E38DA7EB51D98263D1B67D045652EB593
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125076.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125077.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ jetAudio HD Music Player Plus v12.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125078.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:A6B4C62DA846E639E7E13E092D1485A34F40BF64
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125079.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125080.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:B1236756046AC17034DC23511D489C50D997D073
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125081.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:390C004911E1327F98DF65F32C375DD8C4D823ED
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125082.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:97C14AF97098A2B534FD5009AF857B88BAEF4EC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125083.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125084.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:FDE39699BE61FDC584FC0E340296BEBD5A2495C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125085.jpg" />
 </div>
 
 
@@ -555,78 +627,6 @@ magnet:?xt=urn:btih:FDE39699BE61FDC584FC0E340296BEBD5A2495C3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D99032755CCFCB9721D4068856051E5810C69B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688637   (125086) от 30.12.2023
-
-Антон Кун | Ел я ваших демонов на завтрак! (Книга 1). Том 1 (2023) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы возвращались с боевого задания. Это была мясорубка! Штабным крысам хари набить за такую подготовку операции! Но главное, парни остались живы, я вывел всех. И тут удар, белое марево, вращающаяся кабина Ми-8, перекошенные лица парней и желтоглазый демон… Демон? Что за чёрт? Какие нафиг демоны? В нашем мире демонов нет!Жанр: Фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29A534C3AC35F3462339993C5DE42E84E1822E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688680   (125087) от 30.12.2023
-
-Поделиться? / Share? (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_125087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Социальные сети способствуют развитию токсичных отношений между пользователями, которые получают влияние или материальную выгоду только за счет бессмысленных действий друг для друга. В таком случае люди соучастники до тех пор, пока они позволяют себе соблазниться иллюзией власти. Именно такая мудрость лежит в основе Поделиться?», техно-сатиры о неназванном человеке, (   Читать дальше...   )Производство: США / Traveling Picture Show Company (TPSC), Wavemaker CreativeЖанр: фантастика, триллерРежиссер: Ира РозенсвейгАктеры: Мелвин Грегг, Брэдли Уитфорд, Даниэль Кэмпбелл, Алиси Брага, Sydney Breithaupt, Jenna Hogan, Macy Minear, Gabriel Olmeda VegaПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:22Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676068   (125088) от 30.12.2023
-
-Длинные нарды v15.4.5 Mod by victorovich31 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нарды являются одной из древнейших настольных игр в мире. Они известны уже более 5000, они даже старше чем шашки и шахматы! Миллионы людей по всему миру продолжают играть в эту интересную и азартную игру и по сей день… Нарды распространились по всему миру но в каждой части света они имеют довольно разные правила игры. Здесь реализованы Длинные нарды, которые больше (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 23.12.2023Разработчик: Miroslav KislyПоддерживаемая ОС: Android 4.1+Жанр: Настольные игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ED1B41063909E92C7BBDF386CF31FB57759430
 ```
 
 

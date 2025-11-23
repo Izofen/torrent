@@ -1,3 +1,76 @@
+###  Публикация: 1687388   (125658) от 26.12.2023
+
+Блондинка (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ира живет свою счастливую жизнь: играет в труппе небольшого питерского театра и встречается с начинающим режиссером Львом. Однако в какой-то момент театр оказывается на грани закрытия, а ее любимый мужчина внезапно исчезает. Как в этих обстоятельствах найти себя и убедить окружающих, что перекраситься в блондинку не лучшее решение всех проблем?Производство: Россия | Вита АктиваЖанр: драма, комедияРежиссер: Павел МирзоевАктеры: Дарья Жовнер, Евгений Цыганов, Юлия Марченко, Фёдор Федотов, Алена Долголенко, Игорь Угаров, Анна Арефьева, Иван Чигасов, Эра Зиганшина, Геннадий СмирновСубтитры: отсутствуютПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332B2DBF096DAF1FB0618C5FDB3CE49E9C6E7BC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687455   (125659) от 26.12.2023
+
+Чёрная дыра / Pitch Black (2000) WEB-DLRip [H.264/1080p-LQ] [Theatrical Cut] [Open Matte] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125659.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем космический корабль терпит бедствие, в результате чего совершает вынужденную посадку на отдаленной планете. Но в результате такой посадки погибает командир корабля, часть команды и большинство пассажиров.
+Оставшиеся в живых оказываются одни на жуткой и безжизненной планете. Первое, что бросается в глаза — это то, что планета имеет три солнца, (   Читать дальше...   )Производство: США / Polygram Filmed Entertainment, Interscope CommunicationsЖанр: ужасы, фантастика, боевикРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчел, Коул Хаузер, Кит Дэвид, Льюис Фиц-Джералд, Клаудия Блэк, Риана Гриффит, Джон Мур, Саймон Бурк, Лес ЧэнтериПеревод: Дублированный (R5)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600CB79E05F0EA84758B9D0917B9B2F03B61FB28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687235   (125660) от 26.12.2023
+
+Демоны дома Гарретов / Raging Grace (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегальная иммигрантка Джой перебивается подработками горничной и, не имея собственного жилья, втайне от работодателей в каждый дом приводит дочку Грейс — девочку активную и шаловливую. Однажды она устраивается в особняк Гарретов, где престарелый хозяин тяжело болен и не приходит в себя, а всем заправляет его племянница. Ночью Грейс выбирается похулиганить и, проследив (   Читать дальше...   )Производство: Великобритания, Филиппины / Last ConkerЖанр: триллер, драмаРежиссер: Пэрис ЗарсильяАктеры: Макс Эйгенманн, Джейден Боадилья, Лиэнн Бест, Дэвид Хейман, Стефани Коннелл, Seb Yates Cridland, Jodie Davey, Caleb Johnston-Miller, Eugenia Low, Софи Моррис-ШеппардПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728B0B73E06C801ED4401E5D461FAEC371C1FA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 429601   (125661) от 26.12.2023
 
 Николай Лесков | Очарованный странник (2006) [MP3, Максим Пинскер]
@@ -6,7 +79,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125661.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ magnet:?xt=urn:btih:CA42DF5E8205F453846A5C7FD23A719BC9F3E861
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125662.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Smart Driver Manager Pro 7.1.1140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125663.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Topaz Video AI 4.0.9 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125664.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:3CB84AA3D215E169BDFC4745334AA044365DBF9B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125665.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:A9B4B88AA685EB0402D41761F0839D5F066AE45A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125666.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:2AE6EC4C631A6BAC3815F67685B14E9B620BFE59
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125667.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:1877BF2B30708B3964F75A1FD2BEE9A910A130ED
 >>68
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125668.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125669.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:217C85B5F00C51263FDA51C1A482EA1F274E29B3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125670.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:89626B27DAB4DA979D05A5B40FEDDA1F85EE1B59
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125671.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125672.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:81F604896AE68CC2D30309696202A8369EE0AB35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125673.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125674.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125675.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ magnet:?xt=urn:btih:A33F5A780F42EE4432D4088487DA5076F4BE0C80
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125676.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ magnet:?xt=urn:btih:5E25DD4CAF3690ACA5B6FBA5FB0CA863D6F1E860
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125677.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ Udemy, Neil Bettison | The Blender 4 Ultimate Guide (2023) WEB-DL [EN] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125678.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ Adobe Photoshop 2024 25.3.1.241 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125679.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ magnet:?xt=urn:btih:DC9EBE0D87A87785A5853A9AE3649C70E1E91667
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125680.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ magnet:?xt=urn:btih:DC9EBE0D87A87785A5853A9AE3649C70E1E91667
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125681.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ Adguard 7.16.0 (7.16.4542.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125682.jpg" />
 </div>
 
 
@@ -539,7 +612,7 @@ magnet:?xt=urn:btih:B97D5EB254B26E0E23202D5DB28F08323DA90274
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125683.jpg" />
 </div>
 
 
@@ -552,80 +625,6 @@ magnet:?xt=urn:btih:B97D5EB254B26E0E23202D5DB28F08323DA90274
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592097   (125684) от 26.12.2023
-
-Victoria 3 v.1.5.12 (2022) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Strategy, RPG для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125684.jpg" />
-</div>
-
-
-###  Подробнее
-
-СОЗДАЙТЕ ВЕЛИКОЕ БУДУЩЕЕ
-
-Paradox Development Studio предлагает вам построить идеальное общество в суматохе безумного XIX века. Найдите способ уравновесить общественные противоречия и заслужите место под солнцем в Victoria 3 — одной из самых ожидаемых игр в истории студии.Тип издания: macOS Native gameРелиз состоялся: 2022Разработчик: Paradox Development StudioПоддерживаемая ОС: 10.15+Жанр: Симуляторы, СтратегииЯзык интерфейса: русский, английский, французский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9969463814A8B9955BBA0C726A80B9FB76C6947C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687428   (125685) от 26.12.2023
-
-Букины (2023) HDTV [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета сериала «Букины» – супруги Гена и Даша, которые наконец-то отправили детей во взрослую жизнь и решили пожить в своё удовольствие. Однако романтическую идиллию нарушают Рома и Света, внезапно решившие нагрянуть к родителям вместе со своими семьями, да ещё и с детьми. И всё бы ничего, но новые соседи Букиных не желают жить рядом с этим балаганом. Если (   Читать дальше...   )Производство: Россия | «Философия Кино»Жанр: КомедияРежиссер: Гарик Петросян, Андрей НикифоровАктеры: Виктор Логинов, Наталья Бочкарёва, Дарья Сагалова, Александр Якин, Михаил Тарабукин, Анна Глаубэ, Кирилл Кондратов, Тимур Батрутдинов, Максим Лагашкин, Екатерина СтуловаПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C873530BA23C94B2EFA05FEA4DFDDB83C5ADE9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687319   (125686) от 26.12.2023
-
-Зелёная граница / Zielona granica / The Green Border (2023) WEB-DLRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125686.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о гуманитарном кризисе на границе Польши и Беларуси. Там, пытаясь пробраться в страны ЕС, застревают семья сирийских беженцев и одинокая учительница английского из Афганистана.Производство: Польша, США, Франция, Чехия, Бельгия, Германия, Турция / Astute Films, Beluga TreeЖанр: драмаРежиссер: Агнешка ХолландАктеры: Jalal Altawil, Майя Осташевска, Бехи Джанати Атаи, Томаш Влосок, Mohamed Al Rashi, Dalia Naous, Моника Фрайчик, Жасмина Полак, Мацей Штур, Агата КулешаПеревод: Многоголосый профессиональный (JASKIER)Язык озвучки: Русский, ПольскийСубтитры: польские (forced, SDH), английскиеПродолжительность: 02:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99047E74BEBBECF644EF2DE0F3D42C334374C7B
 ```
 
 

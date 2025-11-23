@@ -1,3 +1,102 @@
+###  Публикация: 474893   (98216) от 31.03.2012
+
+DJ Premier & Bumpy Knuckles - Kolexxxion (2012) [MP3|320 кб/с]<Underground Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Thoughts
+02. Shake The Room (Feat. Flavor Flav)
+03. B.A.P.
+04. evrEEbodEE
+05. wEaRe aT WaR
+06. P.A.I.N.E.
+07. The Life
+08. FYPAU
+09. D'Lah
+10. More Levels(   Читать дальше...   )2012Жанр: Underground Hip-HopПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498F547A58AF235BE496C76AE90C0923E372FAE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475778   (98217) от 31.03.2012
+
+VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хаки - И Все Таки Люблю
+02. Тамерлан и Алена Омаргалиева - Hey Yo
+03. Black Star Mafia (Тимати & Джиган & DJ M.E.G. & Music Hayk & B.K.) - Будь Собой
+04. Влад Дарвин & Alyosha - Смысл Жизни
+05. Макс Барских - Dance
+06. Макsим - Это Же Я
+07. Юля Волкова (Julia Volkova) - All Because Of You
+08. DJ Настя Крайнова - Беги За Мной
+09. Guf - Баллада
+10. Алексей Воробьев и Виктория Дайнеко - В Последний Раз(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2655F84ADCAAF92B8AD9B084C9717821F1B81A11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474234   (98218) от 31.03.2012
+
+I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Куранты (интро)
+02. Los Angelies feat. Kristina Si
+03. Year Of Rat
+04. Broke Like A …
+05. Not Nameless feat. Mista YaMan
+06. When The Clock Stops Ticking
+07. I Left The Home feat. Jenee (OSG)
+08. Как Найти Себя feat. Fuze (KREC)
+09. Almighty Dollars feat. Gala Ga
+10. Street Poetry(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476387   (98222) от 31.03.2012
 
 VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
@@ -6,7 +105,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98222.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98224.jpg" />
 </div>
 
 
@@ -72,7 +171,7 @@ magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98226.jpg" />
 </div>
 
 
@@ -96,7 +195,7 @@ VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98227.jpg" />
 </div>
 
 
@@ -129,7 +228,7 @@ magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98229.jpg" />
 </div>
 
 
@@ -153,7 +252,7 @@ magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98230.jpg" />
 </div>
 
 
@@ -181,7 +280,7 @@ Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98233.jpg" />
 </div>
 
 
@@ -214,7 +313,7 @@ Roller Rush (P) [En] 2005
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98234.jpg" />
 </div>
 
 
@@ -238,7 +337,7 @@ magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98236.jpg" />
 </div>
 
 
@@ -262,7 +361,7 @@ magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98237.jpg" />
 </div>
 
 
@@ -286,7 +385,7 @@ Mythbuntu 12.04 LTS "Precise Pangolin" Beta 2 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98239.jpg" />
 </div>
 
 
@@ -310,7 +409,7 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98240.jpg" />
 </div>
 
 
@@ -334,7 +433,7 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98242.jpg" />
 </div>
 
 
@@ -358,7 +457,7 @@ magnet:?xt=urn:btih:BD33D48107070F566F119B1971E4FCD04F33F4FA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98243.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98243.jpg" />
 </div>
 
 
@@ -391,7 +490,7 @@ VA - Весенние Новинки Русского Радио (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98244.jpg" />
 </div>
 
 
@@ -424,7 +523,7 @@ Los Angeles Negros - 20 Grandes Exitos (1996) [MP3|320 кб/с]<Pop, Latin, Ball
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98245.jpg" />
 </div>
 
 
@@ -457,7 +556,7 @@ magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98246.jpg" />
 </div>
 
 
@@ -482,7 +581,7 @@ magnet:?xt=urn:btih:C4108EE773DC833821364DEA278961BC00F81763
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98247.jpg" />
 </div>
 
 
@@ -510,7 +609,7 @@ magnet:?xt=urn:btih:A4F4321CBA63AC1E1D20E5DB90B2E595C681A64F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98249.jpg" />
 </div>
 
 
@@ -538,7 +637,7 @@ VA - Nassau Beach Palma de Mallorca pres. Balearic Moods Chopin In My Mind (2011
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98250.jpg" />
 </div>
 
 
@@ -571,7 +670,7 @@ magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98251.jpg" />
 </div>
 
 
@@ -595,7 +694,7 @@ magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98252.jpg" />
 </div>
 
 
@@ -619,7 +718,7 @@ magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98253.jpg" />
 </div>
 
 
@@ -634,87 +733,6 @@ magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476369   (98255) от 31.03.2012
-
-Лилия Малахова | Зачем нужны мужчины [2011] [FB2,RTF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98255.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приоткрыта завеса многочисленных тайн тайн мужского "Я". Оказывается, мужской пол необходим нам. Он - двигатель эволюции и научно-технического прогресса, истории и культуры. Возможно, что без мужчин мы так и остались бы всего лишь обезьянами, научившимися прямо ходить. Эта книга станет для вас источником не только любопытной, но и полезной информации и поможет взглянуть на мужчин чуть-чуть иначе. Мужчина - разрушитель и творец одновременно, охотник и жертва, властитель и раб своей сути. Чего он заслуживает - любви или ненависти? Кто он и зачем пришел в этот мир? Могла ли природа обойтись без мужчин? Зачем нужны мужчины?2011Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9729DA84A6AC2131CE4CD9B8A74EAC6D7138CD2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476235   (98256) от 31.03.2012
-
-VA - MAXI. Романтика Русского Рока (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Небо Лондона (live) (3:12)
-2. Високосный год - Тихий Огонек (4:22)
-3. Макаревич - Перекресток (4:49)
-4. Кино - Пачка Сигарет (4:30)
-5. Ольга Дзусова - Тополя (3:36)
-6. Любэ - Старые друзья (3:49)
-7. Кино - Кукушка (6:42)
-8. Леприконсы - Напиши мне (5:06)
-9. Ляпис Трубецкой - Зеленоглазое такси (2:49)
-10. Чиж и Ко - О любви (4:39)2012Жанр: RockПродолжительность: 03:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0488A235CA78AFAC0A2363D028C8D94898B32444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475178   (98258) от 31.03.2012
-
-Дикий Юг. Тасмания - последнее убежище / Wild South. Tasmania the last refuge (1990-1999) IPTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
 ```
 
 

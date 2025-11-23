@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62570.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63161.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63381.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63490.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63491.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:F35A9FF5B9A94A0B47098EE3A23CDEDC53F90C85
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63576.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:226AC29CA732585D4E05F338E200E414E91FA27E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63684.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:19860D60C70E5F6E89C737F37D11BAA9ED7362BC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64296.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64561.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Shakespears Sister - Stay (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64565.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Chris Isaak - Wicked Game (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64567.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64588.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ La Vania - Singles Collection 5CDs (2000-2004) 1st Italian Press [APE|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64604.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64608.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:10B62484503E0A32D9B8F2BD5462D46C74950A7E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64628.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:1AEE93FCACDA2C229ECDD6B9E53A25C8F6433943
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64647.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64672.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64678.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64681.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:F4B5FE9634BA8FF2E3B4D740A983979EE481AA99
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64704.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:89D45190ED0DEC274DE4BCE1D4280844CB2256CD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64706.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:41E8552D242C199ED1971BEFCBFF17069673A501
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64728.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64772.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Rapture - Rapture (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64950.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:3C2C5ACDBB7B03ADD145DA5BAFBB4C80D74AD910
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64958.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64963.jpg" />
 </div>
 
 

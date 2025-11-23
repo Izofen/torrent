@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90928.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90933.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90942.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Slate Digital - FG-X Mastering Processor v1.1 Build 252 by AIR x86[VST|RTAS][exe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90951.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Slate Digital - FG-X Mastering Processor - программа для масте�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90953.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Slate Digital - FG-X Mastering Processor - программа для масте�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91349.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91469.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91472.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Sky Trance #2 - Distant Horizon (2010) [MP3|320 kbps]<Uplifting, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91485.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91501.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91505.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91556.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91598.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:679A40FF135B512209952B6847EF17B2DEA8CC70
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91663.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - 202 По Встречной. Убойный Автохит (2012) [MP3|128-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91789.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aquagen - Weekender (2002) [MP3|320 kbps]<Techno, trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91792.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:69EE7E49A029A04017E857FCC671112C1439C63E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91967.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:ECE72AE227C84C9509AB912D1F55876ED5CA1C28
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92008.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1CB209F720CE7956A0C840EC7FF698351B3695A4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92124.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Textural Being - Oceanic (2012) [MP3|320 kbps]<Dub Techno, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_92178.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_92178.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F087B877D26B201999D3EB0FA753DC9FA78331A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92205.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:02BADE6997199B62D006E5446CA4F0D6E73BE90B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92351.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:A6D72B06AB41B8ADEF1A097BC9D2694E876D9562
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92384.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92452.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ NG: Совершенно секретно. Секретная служба СШ�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92537.jpg" />
 </div>
 
 

@@ -1,3 +1,157 @@
+###  Публикация: 1348749   (141635) от 29.12.2019
+
+Джозеф Стейтен | Контакт на Жатве (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из межавторского цикла «Halo».
+
+2524. Планета Жатва – процветающая сельскохозяйственная колония на краю контролируемого человечеством космоса. Люди даже не подозревают, что пересекли священную границу и оказались на пути агрессивной теократической империи, известной как Ковенант. Случайный инцидент – встреча пиратского корабля инопланетян с грузовым земным (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B865DC0D717884F7331EB1D0716EF284B0E9186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086337   (141636) от 29.12.2016
+
+Доктор Стрейнджлав, или Как я научился не волноваться и полюбил атомную бомбу / Dr. Strangelove or: How I Learned to Stop Worrying and Love the Bomb (1963) BDRip [H.265/1080p-LQ]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141636.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Питера Джорджа "Красная тревога".
+Одержимый мыслью о том, что коммунисты намереваются украсть у американцев их «бесценные телесные соки», генерал Джек Д. Риппер, командир военно-воздушной базы посылает эскадрилью бомбардировщиков с ядерным оружием бомбить СССР.
+Президент США Маффи пытается спасти положение, он собирает своих советников, включая (   Читать дальше...   )Производство: США, Великобритания / Columbia Pictures Corporation, Hawk FilmsЖанр: триллер, комедия, фантастика, политическая сатираРежиссер: Стэнли КубрикАктеры: Питер Селлерс, Джордж К. Скотт, Стерлинг Хейден, Кинен Уинн, Слим Пикенс, Питер Булл, Джеймс Эрл Джонс, Трейси Рид, Джек Крили, Фрэнк БерриПеревод: Многоголосый закадровый (Первый канал)Язык субтитров: РусскийПродолжительность: 01:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E3E52CA1A75393BC284BCFB66C20F4A80664F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435967   (141637) от 29.12.2020
+
+Вячеслав Ликсо | Занимательная энциклопедия для детей. Вселенная (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге содержится немало интересных сведений о Вселенной. На ее страницах во всей полноте представлена история развития астрономии от древнейших времен до наших дней. Красочные иллюстрации будоражат воображение захватывающими видами туманностей и галактик, наглядно показывают строение планет, поясняют механизм действия черных дыр, позволяют представить особенности (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6E3308EB1C6B8A8407CBD0534495DD16AEE735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678997   (141638) от 23.11.2023
+
+Opera One 105.0.4970.21 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C31CA71EF3CCA9E0F40E17CCDDCF1CDE39CA18A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348728   (141639) от 29.12.2019
+
+Астрид Фритц | Охота на ведьму (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он пришел в ее дом, когда юная Сюзанна погрузилась в одиночество. Ее мать Маргарита погибла при загадочных обстоятельствах. Ходили слухи, что она была ведьмой, потому что ходила во сне… Настоятель местного доминиканского монастыря отец Генрих обещал Сюзанне утешение и отпущение всех грехов, а также упокой души матери. Но забота Генриха переросла в нечто иное, в опасную (   Читать дальше...   )Жанр: Мистика, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99616C913F67751AA48EA6AF82CDB2AF1C31B178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194417   (141641) от 29.12.2017
+
+VA - Hits of My Soul Vol. 29 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Aerosmith - Beyond Beautiful (04:45)
+02. HIM - Passion's Killing Floor (05:14)
+03. Guano Apes - Open Your Eyes (03:07)
+04. Bon Jovi - The Distance (04:48)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7288C704B638A7C82F5C8E1D81D3A0F05E2275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520460   (141644) от 28.12.2021
 
 Boom 3D 1.3.12 [Multi/Ru]
@@ -6,7 +160,7 @@ Boom 3D 1.3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141644.jpg" />
 </div>
 
 
@@ -30,7 +184,7 @@ magnet:?xt=urn:btih:068A0781DE74D69B162C4E2E414D3205DC2716D0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141645.jpg" />
 </div>
 
 
@@ -56,7 +210,7 @@ magnet:?xt=urn:btih:F4D6F8C61F595782EDF53C84B318D7EF1FCF508D
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141648.jpg" />
 </div>
 
 
@@ -82,7 +236,7 @@ hamedbahram.io, Hamed Bahram | The Ultimate NextJs Course (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141649.jpg" />
 </div>
 
 
@@ -108,7 +262,7 @@ Recovery USB-Flash for HP 15-ay512ur / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141650.jpg" />
 </div>
 
 
@@ -135,7 +289,7 @@ magnet:?xt=urn:btih:1A9399DF3887AAA244CE07D0FEFE4BDAB4E3AC40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141651.jpg" />
 </div>
 
 
@@ -160,7 +314,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 23.12.18 [Ru
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141652.jpg" />
 </div>
 
 
@@ -187,7 +341,7 @@ Foxit PhantomPDF Business 5.5.3.1211 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141653.jpg" />
 </div>
 
 
@@ -211,7 +365,7 @@ Foxit Phantom - приложение для просмотра, редактир
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141654.jpg" />
 </div>
 
 
@@ -235,7 +389,7 @@ magnet:?xt=urn:btih:EA92D5CD97326CA380FF5BBCCF8A0049397EE286
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141655.jpg" />
 </div>
 
 
@@ -260,7 +414,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141656.jpg" />
 </div>
 
 
@@ -284,7 +438,7 @@ magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141658.jpg" />
 </div>
 
 
@@ -310,7 +464,7 @@ magnet:?xt=urn:btih:C0278F3BDB7903D5A570C2F83A30815DD28788F9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141659.jpg" />
 </div>
 
 
@@ -335,7 +489,7 @@ magnet:?xt=urn:btih:B47CD30B1FE30E1E0FC0302D252D838F16CACD89
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141660.jpg" />
 </div>
 
 
@@ -362,7 +516,7 @@ magnet:?xt=urn:btih:38B7B6B1B6E444BA51D07CAB5E2638F1AAF99120
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141661.jpg" />
 </div>
 
 
@@ -386,7 +540,7 @@ Opus VII - Prima Opus Magnum (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141662.jpg" />
 </div>
 
 
@@ -413,7 +567,7 @@ magnet:?xt=urn:btih:C2CD855DCBBBE3AE6D1B936BCC42F5415B197157
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141663.jpg" />
 </div>
 
 
@@ -437,7 +591,7 @@ magnet:?xt=urn:btih:F02A0172133D4C10BB68D94F2F4DEB4D3F690926
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141664.jpg" />
 </div>
 
 
@@ -461,7 +615,7 @@ Foreca Погода / Foreca Weather 4.27.1 + 4.29.2 Mod by kristik, funnysith [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141667.jpg" />
 </div>
 
 
@@ -488,7 +642,7 @@ magnet:?xt=urn:btih:997B3024C696AB170CCBEC2DC10D11BBE214BD5C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141668.jpg" />
 </div>
 
 
@@ -499,156 +653,6 @@ magnet:?xt=urn:btih:997B3024C696AB170CCBEC2DC10D11BBE214BD5C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:477A8E8081F5BDEB92B4B89BE811D4274D15C3E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252514   (141669) от 28.12.2018
-
-Бар «На грудь» (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вновь обремененные насущными проблемами, жители Петербурга приходят в уже родной им бар — «На грудь», утолить свою тоску и обсудить воображаемую безнадежность бытия. Ведь там их всегда выслушают и… нальют. Страдать становится куда приятней, а посетителей со своими душещипательными историями — все больше.Производство: Россия / Киностудия МИМ по заказу RutubeЖанр: комедия, короткометражныйРежиссер: Ирина ВилковаАктеры: Денис Пьянов, Вера Фомина, Антон Сухарев, Кирилл Полухин, Татьяна Малыщицкая, Александр Баширов, Анна Иванина, Дмитрий Аверин, Ирина Вилкова, Анна Жмаева и др.Продолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99889C5180DFBF0E86AE5B24B345EA1341B3D5F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195551   (141670) от 29.12.2017
-
-Total Uninstall 6.21.1 Professional Edition  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513D8892BAE453DA45D8BECC8903E334F5319A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348801   (141671) от 29.12.2019
-
-Николай Расторгуев - Четыре ночи в Москве (1996) [FLAC|Lossless|tracks + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Won't Be Long
-02. Help!
-03. Please, Mr. Postman
-04. I'm Happy Just To Dance With You(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6361198C43A250B66091329BAA28B1750A841A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088165   (141672) от 29.12.2016
-
-Infix PDF Editor Pro 7.1.2 RePack by KpoJIuK [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141672.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Infix PDF Editor вы можете открывать, изменять и сохранять файлы PDF. Это просто и не занимает много времени: можно изменить текст, шрифты, изображения и пр. И в отличие от других PDF-редакторов, Infix работает как обычный текстовый редактор, и действительно удобен в использовании. Избавление от опечаток: быстрое исправление ошибок в файлах PDF. Использование (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C570494B1DDB3A1F102F8B8CBE5DE1D17AC28814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348832   (141673) от 29.12.2019
-
-Monster Jam: South Africa, Cape Town (27.04.2019) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: АвтоспортПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2D4A2AAC9BB1E5B2E5E3DAE75C188B6D7E45B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969230   (141674) от 30.12.2015
-
-Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandas In Tandem (5:46)
-02. You And Me Against The Sky (4:12)
-03. And Then She Stepped Aside (4:58)
-04. Around The Corner From Everywhere (4:51)(   Читать дальше...   )Жанр: Trip Hop, AmbientПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
 ```
 
 

@@ -1,3 +1,92 @@
+###  Публикация: 481447   (99356) от 12.04.2012
+
+Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaking (3:16)
+02. Beyond The Flames (3:32)
+03. Cave Of The Deceased (3:13)
+04. Dead From Inside (3:44)
+05. The Hidden (3:34)
+06. Falling (3:57)
+07. Out Of This World (3:41)
+08. Heaven Shall Burn (3:43)
+09. Take Away My Soul (2:54)
+10. The Saints (4:09)(   Читать дальше...   )2012Жанр: Melodic Death/Thrash/Power MetalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482056   (99357) от 12.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99357.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers №14
+Название: Girls Desktop Wallpapers №14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482051   (99359) от 12.04.2012
+
+[Wallpapers] Avto Wallpapers №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99359.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers №3
+Название: Avto Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F4E331CA15739D6FB18700FFDE8E13A0B93254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480631   (99362) от 12.04.2012
 
 Vulture - Oblivious To Ruin (2012) [MP3|~240 кб/с]<Stoner, Sludge, Doom>
@@ -6,7 +95,7 @@ Vulture - Oblivious To Ruin (2012) [MP3|~240 кб/с]<Stoner, Sludge, Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99362.jpg" />
 </div>
 
 
@@ -36,7 +125,7 @@ magnet:?xt=urn:btih:2108B47F67D905CCC550D7F03DCD1E8686AAB5F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99364.jpg" />
 </div>
 
 
@@ -64,7 +153,7 @@ magnet:?xt=urn:btih:C51AA3828AD950F3DA05A7AF570E7F08846498A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99368.jpg" />
 </div>
 
 
@@ -88,7 +177,7 @@ VA - Хиты на радио клубнячек и попса vol.5 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99369.jpg" />
 </div>
 
 
@@ -121,7 +210,7 @@ Spade - On The Fast Lane (2011) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99373.jpg" />
 </div>
 
 
@@ -154,7 +243,7 @@ magnet:?xt=urn:btih:001C374020C899DD10C41868D74ACC17EC883081
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99374.jpg" />
 </div>
 
 
@@ -178,7 +267,7 @@ Robert Lamm - Living Proof (2012) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99375.jpg" />
 </div>
 
 
@@ -211,7 +300,7 @@ Mozilla Thunderbird 12.0 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99378.jpg" />
 </div>
 
 
@@ -235,7 +324,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99380.jpg" />
 </div>
 
 
@@ -263,7 +352,7 @@ magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99385.jpg" />
 </div>
 
 
@@ -287,7 +376,7 @@ Tritonal - Piercing The Quiet (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99386.jpg" />
 </div>
 
 
@@ -320,7 +409,7 @@ Eleftheria Arvanitaki - Mirame (2009) [MP3|320 кб/с]<Pop, Ethnic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99388.jpg" />
 </div>
 
 
@@ -353,7 +442,7 @@ magnet:?xt=urn:btih:1C6D08F49E12D51893D01F0766529E8A8B19B704
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99392.jpg" />
 </div>
 
 
@@ -381,7 +470,7 @@ VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99394.jpg" />
 </div>
 
 
@@ -414,7 +503,7 @@ magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99396.jpg" />
 </div>
 
 
@@ -438,7 +527,7 @@ Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99400.jpg" />
 </div>
 
 
@@ -471,7 +560,7 @@ magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99401.jpg" />
 </div>
 
 
@@ -495,7 +584,7 @@ Curtis Stigers - Let's Go Out Tonight (2012) [MP3|~245 кб/с (V0)]<Vocal Jazz,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99404.jpg" />
 </div>
 
 
@@ -528,7 +617,7 @@ VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99406.jpg" />
 </div>
 
 
@@ -561,7 +650,7 @@ Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99410.jpg" />
 </div>
 
 
@@ -594,7 +683,7 @@ magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99413.jpg" />
 </div>
 
 
@@ -622,7 +711,7 @@ magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99414.jpg" />
 </div>
 
 
@@ -650,7 +739,7 @@ VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99416.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99416.jpg" />
 </div>
 
 
@@ -669,87 +758,6 @@ VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482016   (99419) от 12.04.2012
-
-Среда обитания. Жильё и жульё (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снять или сдать квартиру, получить визу или загранпаспорт, взять кредит в банке, устроиться на работу. Это не так просто, как кажется.Надо тратить время, нервы и деньги. Но сейчас ситуация изменилась. Все эти услуги оказывают посредники. За вас соберут документы, постоят в очередях, подберут вакансию. На первый взгляд, это удобно и выгодно."Среда обитания" выяснила, за что мы на самом деле платим посредникам. Где они действительно нужны, а где без них вполне можно обойтись.Жанр: ДокументальныйПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC3A244F5E6363ED2FF73CAADEF9A81764EBD3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481726   (99420) от 12.04.2012
-
-VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10 Forward - La nuit ne pas finir
-02. Aaron - U-turn (lili)
-03. Afterlife feat. calladine - Clear blue sky
-04. Akmuisque - Vamos danca
-05. Akmusique - Ocean drive 707
-06. Anima sound system - Open your eyes
-07. Audio lotion - Vanilla shake
-08. Better daze - Golden brown
-09. Bonobo - Super 8
-10. Caravan palace - Ended with the night(   Читать дальше...   )2012Жанр: Chillout | LoungeПродолжительность: 03:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481897   (99427) от 12.04.2012
-
-Валентина Пашинина | Неизвестный Есенин [2007] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99427.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Неизвестный Есенин» — третье, исправленное и дополненное издание книги Валентины Пашининой. Такого Есенина, каким он предстает на ее страницах, мы действительно не знали. По-новому осмыслены многие факты жизни великого русского поэта, доказано авторство «Послания евангелисту Демьяну», которое сберегли и сохранили политзаключенные Ухтпечлага, среди которых был и Василий Петрович Надеждин, передавший стихотворение автору этой книги, за что ему — особая благодарность. Основываясь на огромном фактическом материале, как опубликованном, так и практически неизвестном широкому кругу читателей, B.C. Пашинина предлагает свой взгляд на многие события в жизни поэта, а также обстоятельства его трагической гибели. Впервые биография Сергея Есенина развернута на динамичном фоне истории России, а не ограничена тесными стенами скандального кафе «Стойло Пегаса». Книга рассчитана на широкий круг читателей, представляет несомненный интерес для тех, кто глубоко интересуется творчеством и судьбой любимейшего поэта России.2007Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
 ```
 
 

@@ -6,7 +6,7 @@ Led Zeppelin - Boxed Set2 (1993) 2 x CD, Japanese Edition, Compilation [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26786.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krokus - 24 albums, 31 CD (1976-2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Therion - Collection (1992 - 2023) 30CD [FLAC|Lossless|image + .cue|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26868.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:25C4C619943447FD4E81DA092CABF38AD9EFAB6B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26885.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Raven - Over The Top! (The Neat Albums 1981-1984) (2019) 4 x CD, Box Set, Compil
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26887.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:3C838B27AE62A0408D5357BB608100F74DCBFFAB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26919.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F8A720F42B4EF4C06E0A36D2DA8757227DF8F9AE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26928.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26931.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Crazy Lixx - 9 альбомов (2007 - 2025) [FLAC|Lossless|image + .cue]<Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26962.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27098.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ W.A.S.P. - Bonus Tracks And B Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27416.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bonfire - 32 albums, 42 CD (1986-2025) [FLAC|Lossless|image + .cue | tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27486.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Smokie & Chris Norman - The very best of Smokie & Chris Norman 50 years annivers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27559.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Alex Beyrodt's Voodoo Circle - 8 альбомов (2008-2024) Discography [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27575.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Thin Lizzy - 39 Albums, 5 Box Set (1971 - 2025) 114 CD [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27690.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Brainstorm - Plague Of Rats (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27925.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Dream Theater - Parasomnia (2025) 2 x CD [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28041.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dimmu Borgir - Puritanical Euphoric Misanthropia (2001) 2 x CD, Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28045.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28119.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Ferrymen - Iron Will (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28361.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28375.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:2430D2DCA99D113DF0D9F9EBE19E2D3F8F79941E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28674.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Eric Burdon (The Animals & War & Jimmy Witherspoon & Brian Auger) - 24 Studio Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28741.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:D176FD2AFBEDCA94FBD4564C0DEDAE9E59BBAE68
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28806.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28814.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Foghat - 23 Albums, 2 Box Set (1972 - 2023) 56 CD [FLAC|Lossless|image + .cue|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29099.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Autorun Organizer 5.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42007.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iFind Data Recovery 9.7.4.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42008.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Dance-Charts Top 100 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42009.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DF6CC164D7D8225CA9A9B0803AAD830CD41EA4D7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42010.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:FFA7046B2F275B68E4B66093E37A85BC71EB812C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42011.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:073C2F246A7A8F92BB8F8AC14119227C3732B0B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42012.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Music News For Forum vol.028 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42013.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F19C47FF125B04206FB44923A0E484086F2AAAF7
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42014.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Glary Utilities Pro 6.16.0.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42015.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Process Lasso Pro 15.0.1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42016.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Wise Registry Cleaner Pro 11.1.7.722 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42017.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:4226E185B58AF1AF2C823E463301AB9456509475
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42018.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:520EB2917D3BE0D7FF437C0847822934DA42999F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42019.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:C11263ED8B6F80BD267ECBF6595BEFFB139141F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42020.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BB16D4213271AE7EED205328A4BFC6B346AF7A6E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42021.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7B1EE41E0704A74A2A620301A26A072AE72C087D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42022.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42023.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Незабываемые имена 70-80: Вокруг любви, час�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42024.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:49482F4B3FAD7FA5017BAB1106B49F96197A6F7F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42025.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8DFCD6FB0D4FEABCADD58EE0205EFB3740511D3A
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42026.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:ED21CD2DA02E4AC763480C0FC200BF45D1A7441A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42027.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42028.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Chained Together (2024) [En] (1.8.6) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42029.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ WinTools.net Premium 24.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42030.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E9E4C48D6956AB9194597DA53FD3EADE863F0DF1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42031.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:81230B1A8C99591F6AE555E61E98C39796B6BEEF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42032.jpg" />
 </div>
 
 

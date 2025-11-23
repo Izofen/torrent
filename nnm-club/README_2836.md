@@ -1,3 +1,81 @@
+###  Публикация: 467563   (82278) от 15.03.2012
+
+Амазонка Питера Бенчли / Peter Benchley's Amazon (1999) DVDRip [22]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет, направлявшийся в Рио-де-Жанейро, разбился в джунглях Амазонки. Шесть пассажиров спаслись, но все считают их без вести пропавшими. Несчастные вынуждены искать выход из непроходимых джунглей, в которых человеку, чтобы не стать чей-нибудь жертвой, приходится превратиться в хитроумного и беспощадного охотника.
+Новоиспеченные робинзоны даже и не догадывались, что стоят на пороге настоящих испытаний. Их ждет встреча и с агрессивными туземцами, и с племенем призраков… Начинается борьба за выживание среди хищных животных, безжалостных людей и кошмарных фантомов…Жанр: ПриключенияРежиссер: Джон Кассар, Рон Оливер, Крэйг Прайс, Скотт СаммерсгиллАктеры: С. Томас Хауэлл, Кэрол Альт, Крис Мартин, Фабиана Уденио, Тайлер Хайнс, Роб Стюарт, Гэбриел Хоган, Джон Невилл и др.Перевод: Двуголосый закадровый, профессиональный
+http://multi-up.com/668333Продолжительность: 22 x ~00:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466460   (82279) от 15.03.2012
+
+Сын Кинг Конга / The Son of Kong (1933) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82279.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается спустя приблизительно месяц после драматического финала предыдущего фильма и повествует о дальнейших приключениями режиссера Карла Денхема, который вовлечен в многочисленные судебные процессы после разрушений, вызванных Конгом. Денхем с Капитаном Энглхорном, который уверен, что это — только вопрос времени прежде, чем они разбогатеют, оставляют (   Читать дальше...   )Производство: США, RKO Radio Pictures Inc.Жанр: Фантастика, приключения, боевикРежиссер: Эрнест Б. ШодсакАктеры: Сай Клегг, Виктор Вонг, Эдвард Брэйди, Хелен Макк, Джон Марстон, Роберт Армстронг, Фрэнк Рейхер, Стив Клементе, Гарри КорнблейдПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E492E5D4D9CBD46F0CDE13221199003300EDD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467937   (82280) от 15.03.2012
+
+Defenders of Ardania [En] (Lossless Repack) 2012 | R.G. UniGamers
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defenders of Ardania – игра в стиле «tower defense», действие которой происходит в фэнтезийной вселенной Majesty. В отличие от других игр данного типа, где нужно устанавливать башни, чтобы остановить продвижение вражеских юнитов, игроки также смогут выступить на стороне нападающих и попытаться уничтожить вражескую базу. Defenders of Ardania также включает в себя элементы RTS. В игре представлено три различные расы с уникальными локациями, башнями и юнитами, а также широкий спектр заклинаний.
+
+В игре есть как однопользовательский режим, так и многопользовательский, в котором одновременно может принимать участие от двух до четырех игроков. Они могут сражаться друг против друга или против AI через интернет. Всего в мультиплеере представлено три режима игры.
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / Arcade / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE295BE0E1D4F1214F71A8F2522C3230011970A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468405   (82281) от 15.03.2012
 
 В. Рыженко | Полная энциклопедия художественных работ по дереву [2010] [PDF]
@@ -6,7 +84,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82281.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:F0B1F32525E160D38BF34A02CB31BEE9CDE7C7AF
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82283.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:E263FD501769EF8962F6D8256409B6F2614DDAAC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82285.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:3E40819FD339604A321351B8011F990F72EAAACE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82289.jpg" />
 </div>
 
 
@@ -104,7 +182,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82293.jpg" />
 </div>
 
 
@@ -128,7 +206,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82294.jpg" />
 </div>
 
 
@@ -152,7 +230,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82296.jpg" />
 </div>
 
 
@@ -176,7 +254,7 @@ SmartSound SonicFire Pro v.5.7.3 Scoring Network Edition [Мультиязычн
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82301.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ SmartSound Sonicfire Pro 5 - самая популярная программа,
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82302.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ magnet:?xt=urn:btih:59F2B2ADC18A9639C0A6B77CDDB0E5C850143896
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82304.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ magnet:?xt=urn:btih:59F2B2ADC18A9639C0A6B77CDDB0E5C850143896
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82308.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ magnet:?xt=urn:btih:59F2B2ADC18A9639C0A6B77CDDB0E5C850143896
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82311.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82312.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82314.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82315.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82316.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82318.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82319.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:97AFDAC1293861AC1ABE446E62790D2E523465A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82320.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ magnet:?xt=urn:btih:97AFDAC1293861AC1ABE446E62790D2E523465A0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82321.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Windows 7 Ultimate SP1 x86 VolgaSoft & Black Club v 1.4 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82322.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Windows 7 Ultimate SP1 x86 VolgaSoft & Black Club v 1.4 [Rus]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82323.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ VA - Лучшие тяжёлые русскоязычные баллады (1983
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82326.jpg" />
 </div>
 
 
@@ -574,82 +652,6 @@ VA - Лучшие тяжёлые русскоязычные баллады (1983
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9FBCA4B8477011DB2E40B03C41CF98A0B0DCC1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467005   (82329) от 15.03.2012
-
-Оригинальные драйвера для материнской плата GIGABYTE GA-EP41-UD3L 1.2 [Русский, Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ DVD-диска с оригинальными драйверами и программами для материнской платы GIGABYTE GA-EP41-UD3L.Название программы: Оригинальные драйвера для материнской платы GIGABYTE GA-EP41-UD3LЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468484   (82334) от 15.03.2012
-
-Марина Смирнова | 2500 скороговорок. Для детей 4-6 лет (2002) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто из нас в детстве пытался правильно и без запинок произнести какую-нибудь скороговорку? А ведь именно скороговорки помогают исправить нарушения речи и улучшить дикцию, сформировать правильный темп и ритм речи и обогатить словарный запас.
-В этом пособии собран самый лучший речевой материал: пословицы и поговорки, загадки, скороговорки, стихи.
-
-Книга принесет много (   Читать дальше...   )Жанр: логопедияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5BF1EB6968A3E6B83E7184CB647952BB628811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467772   (82335) от 15.03.2012
-
-Коллекция: Элизабет Тейлор / Retro the Collection: Elizabeth Taylor  (1944-1952) 3*DVD5 + DVD9
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бедный родственник богатого промышленника, Джордж (Клифт) по настоянию матери едет к нему с намерением заработать деньги. Но, едва начав работать на фабрике, нарушает одно из основных ее правил: начинает встречаться с девушкой, работающей вместе с ним. Элис забеременела, а Джордж неожиданно теряет к ней интерес, потому что знакомится с красавицей Анджелой. Элис угрожает (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Джордж СтивенсАктеры: Элизабет Тейлор, Монтгомери Клифт, Шелли Уинтерс, Энн Ревер, Фред Кларк, Рэймонд Берр, Херберт Хэйс, Джон Шеперд, Фрида Инескорт, Кэтрин Гивни, Уолтер Сэнд, Тед де Корсия, Джон Риджли (I), Пол Фрис, Киф Брасселл, Гертруда Астор, Лулу Мэй Борман, Кен Кристи, Майк Донован, Ральф Данн, Франклин Фарнум, Аль Фергюсон (I), Бесс Флауэрс, Кэтлин Фримэн (I), Арт Гилмор, Лиза (   Читать дальше...   )Продолжительность: 01:57:00
-Перевод: Профессиональный (двухголосый, закадровый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D77AE73B2C92CAD96516831DF88CAD1C95B647F
 ```
 
 

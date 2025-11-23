@@ -1,3 +1,76 @@
+###  Публикация: 1691464   (123344) от 12.01.2024
+
+Хоккей. НХЛ 2023-2024. Сиэтл Кракен - Вашингтон Кэпиталз (11.01.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123344.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 января 2024, пятница. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 935 зрителей (97% при вместимости 18 573)
+Главный судья: Брэндон Шредер (Санборн, США); Главный судья: Джон Макисаак (Труро, Канада); Линейный: Райан Джексон (Пуэнт-Клер, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548B30D73C6176FDE4089E47596ACCD4866AC2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691325   (123345) от 12.01.2024
+
+NASA поддержало развитие флота сверхлёгких солнечных зондов для отправки к звёздам
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_123345.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASA поддержало инициативу организации Space Initiative в рамках её проекта Swarming Proxima Centauri по разработке флота сверхлёгких зондов с фотонными парусами вместо двигателей для отправки к звёздам.Солнечные паруса необходимы таким зондам, чтобы преодолеть колоссальные расстояния, которые аппаратам придётся преодолевать для достижения, например, звезды Проксима (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435237   (123346) от 12.01.2024
+
+Новогодний голубой огонек (1982) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1982 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуУчастники: В. Басов, И. Мирошниченко, А. Михайлов, В. Винокур, А. Райкин, Т. Доронина, М. Магомаев и другие советские и зарубежные артисты.Субтитры: ОтсутствуютПродолжительность: 01:42:34+01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5669A61039F3BCA98C6925F6F4808F85800C5A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605361   (123347) от 12.01.2024
 
 Летучая мышь (1979) DVDRip [H.265/1080p] [hand made Upscale AI]
@@ -6,7 +79,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123347.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Macrorit Partition Expert 8.1.3 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123348.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:F3D5B8F7DD802617DCAD565AA39F435520ECAB74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123349.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:96572B14A7BBC7B88691932D51DE240294D75786
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123350.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ AIDA64 Extreme Edition 7.00.6716 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123351.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Kodi 20.3 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123352.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Modern Tweaker 2.0 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123353.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:455472833FC8DFA041B9051F060AD2B2F0575841
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123354.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:DEEC38F10BB3363CD9A7FEE6ED946D0433F3F0BB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123355.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123356.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123357.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ EasyUEFI Technician 5.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123358.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ magnet:?xt=urn:btih:96AF04E5072C46ECAA1DC2B994131D46A9CA182A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123359.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ magnet:?xt=urn:btih:75183ED614917E34E8723C44C5AEB12A948219D0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123360.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ MobaXterm 23.6 build 5186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123361.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:AEA520AFD407259850F38EA56F8B07E7FFA81417
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123362.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:E3964C6C6867F84C2A86587F56994E8B34A88705
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123363.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123364.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2032.0 (28.11.2023) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123365.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:5AE1C929F73DA5BB63BC8EA0860A3BC7E20EA2FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123366.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:5AE1C929F73DA5BB63BC8EA0860A3BC7E20EA2FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123367.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Windows 11 23H2 (22631.3007) x64 (3in1) by Brux [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123368.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:355C5CFE6C2FAA739192CE5B2F038562AEB60978
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123369.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123369.jpg" />
 </div>
 
 
@@ -552,78 +625,6 @@ magnet:?xt=urn:btih:355C5CFE6C2FAA739192CE5B2F038562AEB60978
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691415   (123370) от 12.01.2024
-
-Три мушкетёра: Миледи / Les trois mousquetaires: Milady / The Three Musketeers - Part II: Milady (2023) TS [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123370.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах Д’Артаньяна похищают его возлюбленную Констанцию. Пока верные друзья, три королевских мушкетёра Атос, Портос и Арамис, сражаются на поле боя, Д’Артаньян вынужден объединить усилия с таинственной Миледи, чтобы спасти свою любимую. Но страшные тайны прошлого могут разрушить как новые союзы, так и старую дружбу.Производство: Франция, Германия, Испания, БельгияЖанр: Боевик, приключения, историяРежиссер: Мартен БурбулонАктеры: Франсуа Сивиль, Венсан Кассель, Ромен Дюрис, Пио Мармай, Ева Грин, Луи Гаррель, Вики Крипс, Лина Кудри, Джейкоб Форчун-Ллойд, Эрик РуфПеревод: многоголосыйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:46:12Реклама: присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691439   (123371) от 12.01.2024
-
-Грохот сквозь тьму / Rumble Through the Dark (2023) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Бушэ когда-то был непобедимым бойцом рукопашного боя, но в последние годы сильно сдал. Мало того что он не в состоянии драться как прежде, так ещё и весь в долгах - он должен огромную сумму денег местной криминальной королеве Большой Мамочке и банку, который вот-вот заберёт дом его умирающей приёмной матери. Джеку необходимо срочно что-то придумать и погасить (   Читать дальше...   )Производство: США / Phillips Pictures, Crooked Letter Picture CompanyЖанр: боевик, триллер, детективРежиссер: Грэм Филлипс, Паркер ФиллипсАктеры: Белла Торн, Аарон Экхарт, Ричи Костер, Марианн Жан-Батист, Лиз Феннинг, Вирджиния Ньюком, Elaina Guidry, Джо Херсли, Аманда Сондерс, Кристофер УинчестерПеревод: Многоголосый профессиональный (Jaskier), Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F376D468A15A7CF95E2BF7F740B54696D6B77A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691229   (123372) от 12.01.2024
-
-Журнал | Хакер №11 (296) (ноябрь 2023) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123372.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хакер» - журнал рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но на этом все не ограничивается. В журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой подачи (   Читать дальше...   )Жанр: Компьютерный журналИздательство: ООО «Эрсиа»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809639CE092169E45404C524A0B8199A2ADE05F5
 ```
 
 

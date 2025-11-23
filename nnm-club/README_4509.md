@@ -1,3 +1,156 @@
+###  Публикация: 1195798   (139549) от 30.12.2017
+
+Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Введение в программу Houdini 15
+
+Эта серия уроков по 15-ой версии Houdini поможет вам быстро получить базовые знания в этом пакете.
+Больше всего пользы из этого курса получат абсолютные новички в Houdini, имеющие, однако, хорошее знание общей концепции работы в 3D. Мы начнём с самых азов и изучим многое, чтобы создать классную, эффектную сцену.(   Читать дальше...   )Производство: Digital-TutorsЖанр: 3D графикаПеревод: Дублированный, RastarokotПродолжительность: 07:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920419E162FBABA9C528CA6DF2F243E038A11841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740506   (139550) от 31.12.2013
+
+David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celtic Sanctuary (4:41)
+02. May It Be (3:35)
+03. He Moved Through the Fair (4:53)
+04. Sleepsong (4:54)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088375   (139552) от 30.12.2016
+
+Макс Стил / Max Steel (2016) HDRip [Line]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда подросток Макс МакГрат обнаруживает, что его тело может генерировать наиболее мощную энергию во Вселенной, ему приходится встретиться с единственным существом, способным совладать с такой энергией — таинственным техно-органическим инопланетянином по имени Стил.Производство: Великобритания, США, Dolphin Entertainment, Ingenious Media, Mattel EntertainmentЖанр: Фантастика, Боевик, ПриключенияРежиссер: Стюарт ХендлерАктеры: Бен Уинчелл, Джош Бренер, Мария Белло, Энди Гарсиа, Ана Виллафейн, Майк Дойл, Филлип ДеВона, Билли Слотер, Эл Митчелл, Лоуренс КаоПеревод: Дублированный (Чистый звук)Продолжительность: 01:32:01Реклама: Имеется реклама от спонсора показа.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA012F8B36AE2BD754ED7B816E3042629FD6A96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273161   (139554) от 30.12.2018
+
+Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birdsong
+02. In the night
+03. Under the moon
+04. Stay the night(   Читать дальше...   )Жанр: Deep House, Indie DanceПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224E72C841675F134033AFECB6C51D9B7AA6585A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436111   (139555) от 30.12.2020
+
+RAW Converter 2 v2.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139555.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время все больше и больше камер поддерживают съемку в формате RAW, но формат RAW варьируется от производителя к производителю, и большинство устройств не поддерживают их, а также они слишком велики, чтобы делиться ими с друзьями. Поэтому необходимо конвертировать фото RAW в общий формат. Программное обеспечение RAW Converter поддерживает практически популярные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A184AA237B4C224CF57D99172A2B4DACD497AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195802   (139558) от 30.12.2017
+
+Денис Деев | S-T-I-K-S. Ночь Грядущая (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты – лучший! Ты – элита! Профессиональный «пес войны», наемник, прошедший десятки вооруженных конфликтов. Ты стреляешь на слух, плевком подбиваешь танк и ходишь в туалет напалмом! Тебя отправляют в адское местечко, полное монстров? Тебе должно быть страшно? Ха, пускай монстры начинают рыть себе могилы! Ибо ты собираешься стать самым страшным злом в этом местечке.Жанр: Боевая фантастикаПродолжительность: 12:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30091C07CC4AFC1E1C543A518D4B42A516951720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435996   (139559) от 30.12.2020
 
 PDF to Word&Document Converter 6.1.3 [En]
@@ -6,7 +159,7 @@ PDF to Word&Document Converter 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139559.jpg" />
 </div>
 
 
@@ -30,7 +183,7 @@ magnet:?xt=urn:btih:838FF8C0E2F70CCEE929E0DD27036A74E15439C9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139560.jpg" />
 </div>
 
 
@@ -54,7 +207,7 @@ magnet:?xt=urn:btih:7A8447EF0AFE4D8ECFFB1C663D2C8B1109703FFB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139561.jpg" />
 </div>
 
 
@@ -78,7 +231,7 @@ magnet:?xt=urn:btih:FAE858CBDEAB12A137732AAD3A790B6C92E4A224
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139562.jpg" />
 </div>
 
 
@@ -103,7 +256,7 @@ magnet:?xt=urn:btih:E5DCF14461C8ABCFDD02D54B76F1ACD6A5C7F3DF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139563.jpg" />
 </div>
 
 
@@ -128,7 +281,7 @@ magnet:?xt=urn:btih:828BF15650C43147182091B8F7B9374CA845853D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139564.jpg" />
 </div>
 
 
@@ -152,7 +305,7 @@ magnet:?xt=urn:btih:28EE4AC51E9F1F17B34CB03E6E1B967E3F20BF16
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139565.jpg" />
 </div>
 
 
@@ -176,7 +329,7 @@ magnet:?xt=urn:btih:9E702F130694D40510016FEF285ADF98FAED2452
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139566.jpg" />
 </div>
 
 
@@ -200,7 +353,7 @@ magnet:?xt=urn:btih:C39BB749CE42594CE4730B291CD0BB63D6BF703D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139568.jpg" />
 </div>
 
 
@@ -224,7 +377,7 @@ LibreOffice 7.6.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139569.jpg" />
 </div>
 
 
@@ -248,7 +401,7 @@ magnet:?xt=urn:btih:50723F8F9B9AEDB31724CB61DB47E908390FB934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139570.jpg" />
 </div>
 
 
@@ -273,7 +426,7 @@ VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139571.jpg" />
 </div>
 
 
@@ -300,7 +453,7 @@ magnet:?xt=urn:btih:7BA2093D199FF38FC9581781DBA02EDED62FF50B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139572.jpg" />
 </div>
 
 
@@ -325,7 +478,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139573.jpg" />
 </div>
 
 
@@ -352,7 +505,7 @@ magnet:?xt=urn:btih:C29B8CF308AC3EE5AAF2D2D286D41DED08814D22
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139574.jpg" />
 </div>
 
 
@@ -376,7 +529,7 @@ magnet:?xt=urn:btih:869291B5A8E0C59072D14B9373704392536B7538
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139575.jpg" />
 </div>
 
 
@@ -400,7 +553,7 @@ magnet:?xt=urn:btih:0AD8E39FB0CD991D079216979A861465209BC2D2
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139576.jpg" />
 </div>
 
 
@@ -424,7 +577,7 @@ magnet:?xt=urn:btih:ACE04649D52783E12BCF243523A430229AE9104C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139577.jpg" />
 </div>
 
 
@@ -448,7 +601,7 @@ magnet:?xt=urn:btih:3AE7307D6D550058A75696B1FFA5FB454BA16EA5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139578.jpg" />
 </div>
 
 
@@ -473,7 +626,7 @@ magnet:?xt=urn:btih:3EDDE57D5ED83DC6B845A5FCD81D9BC5A2EB9FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139579.jpg" />
 </div>
 
 
@@ -484,153 +637,6 @@ magnet:?xt=urn:btih:3EDDE57D5ED83DC6B845A5FCD81D9BC5A2EB9FF1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF40F701A2120154CF469C4AD12BB4877041750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435916   (139581) от 30.12.2020
-
-Агата Кристи | Эркюль Пуаро. Прилив (2020) [MP3, Максим Сергеев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через несколько недель после женитьбы на привлекательной молодой вдове богач Гордон Клоуд трагически погиб, не успев составить завещание. Случайность или чей-то дьявольский план? Началась жестокая, полная хитростей и интриг схватка за наследство между молодой вдовой и родственниками миллионера. В водоворот событий оказывается втянут великий сыщик Эркюль Пуаро, которому, (   Читать дальше...   )Жанр: ДетективПеревод: Назир ИбрагимовПродолжительность: 07:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2FA8129D428F27B85D11DFDF0DD33FB5387EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088278   (139582) от 30.12.2016
-
-Шпионы по соседству / Keeping Up with the Joneses (2016) WEB-DLRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супружеская пара из пригорода оказывается втянутой в международный шпионский заговор, когда обнаруживает, что их, казалось бы, идеальные новые соседи являются правительственными агентами.Производство: США, Fox 2000 Pictures, MacDonald/Parkes ProductionsЖанр: Боевик, КомедияРежиссер: Грег МоттолаАктеры: Зак Галифианакис, Айла Фишер, Джон Хэмм, Галь Гадот, Пэттон Освальт, Минг Жао, Мэтт Уолш, Мэрибет Монро, Майкл Лью, Кевин ДаннПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Украинский (Full), Английский (Forced, Full)Продолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE8049FE1549B5C67DD023BBC4F8CB9F2DB23EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970695   (139583) от 31.12.2015
-
-Георг Лукач | История и классовое сознание. Исследования по марксистской диалектике (2003) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взаимосвязь между отрицанием "обычного хода вещей", стремлением к достижению "реальности", к "иному бытию", с одной стороны, и формированием "нового комплекса субъективности", с другой, — эта взаимосвязь вновь придала актуальность и притягательность идеям гениального марксистского теоретика XX века Георга (Дьёрдя для соотечественников (   Читать дальше...   )Жанр: ФилософияПеревод: С. Н. ЗемлянойФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7B370AADCA82E097091AF1CC87B71CC3860904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272958   (139584) от 30.12.2018
-
-Журнал | Миллион Меню №58 (осень 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллион Меню - это лучшие кулинарные рецепты, рецепты блюд высшего класса! Для вас – кулинарные рецепты разных национальных кухонь и авторские разработки, диетические и вегетарианские рецепты, праздничные и будничные, блюда профессиональных поваров и пользователей сайта, а так же самые популярные рецепты салатов, супов, плова и многие другие рецепты.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB4D2BF1DA3B5E67D6C8F2AF304625F41D4951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679107   (139585) от 24.11.2023
-
-Игорь Растеряев - Круговорот (2023) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139585.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дядька
-2. Снег
-3. Возвращение
-4. Памяти друга(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CE6C6EB9BA8D3AD648660636D434D30AE301A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349015   (139586) от 30.12.2019
-
-Владимир Журавлев | Зита. Десять шагов до войны (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможное будущее России. ...Начавшись с локального конфликта на западной границе, боевые столкновения мгновенно расширились, охватили, наползли со всех сторон. Внезапно загремел, казалось бы, недавно утихомиренный южный фронт, мелкие враги на удивление согласованно навалились, поддержанные огромной военной машиной запада – и горы запылали. Проклятый Клухор в который (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A8B570F8918053881639C4B0D2838B4F0EF0E3
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99729.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99730.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99733.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Фестиваль лучших хитов 50/50 (2012) [MP3|256 kbps]<Pop 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99735.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99740.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99742.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99744.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99747.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99752.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99758.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99765.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99772.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99773.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99774.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99775.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99780.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99783.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99788.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99800.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99819.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99821.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99826.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99828.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99829.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99830.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99833.jpg" />
 </div>
 
 

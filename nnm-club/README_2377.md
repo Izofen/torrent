@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62168.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:33138061E737D3FF466FFD0F5426843EB8BA5CC5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62169.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E683D8BD4890457BBE98E22AE906D1145D2AC262
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62170.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Прин�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62171.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:073D29F0238B4E3965D1B73FEF483C769A996E7A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62172.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62173.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B9741FD60CE69451F8614EBA1BE674D24995B0D3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62174.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62175.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B3156DDB87A6C85CC17C63489D2342F893FA1DAF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62176.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Sasaki to P-chan / Sasaki and Peeps / Сасаки и Пи-тян [2024, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62177.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F677225BBACD07EB02432EE3DFDBD4A9AE4F9D49
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62178.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F0954F3DA89E6732E5362977459761DD01A018C1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62179.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer | Нежеланн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62180.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:990BD3B2CB589C871E67599708A3FB65B889B895
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62181.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:53E2E716408F89E6FB01743474E9D2F9EA8D3453
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62182.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B49FBB7A0528B840AA2A000E1331F836FD4C1B6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62183.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AE2709B9C0D48122C8086C167A20586C26B31F6C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62184.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6C364C562488592FFE971FF656218B1300A62325
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62185.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:CE831B034B037890674A892405B9D0D73FCF9256
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62186.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:9243B979FEE8E97FE8C2FBF133ED2F5FF3CE68AC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62187.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:CF3BCF31176CABE46CF07059D36A370998C77751
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62188.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:C1F21E917DE1A15ED95329E0839A77AE98ADBADC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62189.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62190.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:6AFF6BBA2FD6B9C06FA5C1ECA797FE2D50F5F713
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62191.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AIDA64 Extreme Edition 7.20.6807 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62192.jpg" />
 </div>
 
 

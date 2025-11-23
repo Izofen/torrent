@@ -6,7 +6,7 @@ Disk Drill 5.7.917 Enterprise (x64) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B416B04D86BC4D6212F178D7202172BB7CA42FB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EB4E1EA3E6415A9D825B6EB9BA3628712669A9BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23505.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23506.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23506.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23507.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23508.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23508.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23509.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1F2ADA5C252B2B51E5337011D985C860D9E2B71E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23510.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3017 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23511.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:718C24554896A5213BAC5F8DF954809E602A99F2
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23512.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2E770B506E044C53A7B52EBEFF843ED445F0AAD6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23513.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HiPER Calc Pro v11.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23514.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:82062711FF48B4BD6B8493DC8C53807D265D23CB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23515.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Gary Tunes, Eric Blues, Red Whiskey - Save My Soul (Compilation) (2025) [MP3|320
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23516.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FolderSizes 9.7.503 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23517.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Car Karaoke Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23518.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1808CD58DDB6F9FF5D4ED8DA59DC15FC789502E4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23519.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Marina Kapuro (Марина Капуро) - Happy New Year (2024) [FLAC|Lossless
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23520.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23520.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:770E87CE27AFD0B412687D0694439EC9EDBB71D4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23521.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D0E2C5B0E709B38E88BE8A7450336B6B81D10FE2
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23522.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D6EB087F8367C8CC932A03732F0F730BE030839A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23523.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:2414DF668F066C1E04CAF02C44BD7DF4881A7AD8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23524.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23525.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F57A459DCA8F1AB91C9A3C894BFE05E4D5A79CF5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23526.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Music For You vol.32 (2025) [MP3|320 Kbps] <Prog Rock, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23527.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23527.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A4EAF0C48BEC98C77727541EAAAACE8335A0A7CB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23528.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23528.jpg" />
 </div>
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1696130   (119782) от 01.02.2024
+
+Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai Mi Morena (feat. Mo' Horizons)
+02. Peanut Vendor (feat. Anita O'Day)
+03. Hazy (feat. Queen Mab)
+04. The Secret (feat. Mister T, Jean Honeymoon)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6144BB8B22C9F3A57AD04121DF40BBB4AD67A245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696122   (119783) от 01.02.2024
+
+Подшивка журнала | Тайны ХХ века №3-10 (январь-март 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119783.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619EA381FF8DDCDC022629BDD6F89FBF61FA7FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696263   (119784) от 01.02.2024
+
+StaxRip 2.34.0 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119784.jpg" />
+</div>
+
+
+###  Подробнее
+
+StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
+Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19B45A752368347FA91571E530B63A2D23110E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696068   (119785) от 01.02.2024
 
 4K Video Downloader + 1.4.3 [Multi/Ru]
@@ -6,7 +82,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119785.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:6A4B39C5C3D12B6FF18E2B6A199020954D070F96
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119786.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:E419BF13553680B3FEBB909289090FDBB4F6643D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119787.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:310620BA40050D2E921005CC8552C7FE912A713D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119788.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:D032EA280DE54561FD8861B8CF933EA6624CA362
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119789.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:775898614DCFF357BA249AEA6F35E43B581D0AAC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119791.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:6D6760406C092011B1AE8AEB46F164363DFD5983
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119792.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ OmniFocus Pro 4.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119793.jpg" />
 </div>
 
 
@@ -230,7 +306,7 @@ Topaz Gigapixel AI for Mac 7.0.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119794.jpg" />
 </div>
 
 
@@ -254,7 +330,7 @@ magnet:?xt=urn:btih:484F78449F2D401FC240DEB669E6D1DF88D96134
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119795.jpg" />
 </div>
 
 
@@ -278,7 +354,7 @@ Draw.io 23.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119796.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ magnet:?xt=urn:btih:13E8F3AC92E5BBCF33963F7B43524F53FC1747E9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119797.jpg" />
 </div>
 
 
@@ -326,7 +402,7 @@ Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbp
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119798.jpg" />
 </div>
 
 
@@ -353,7 +429,7 @@ magnet:?xt=urn:btih:5830B3A7E5AE3C040750478F0614EB75E2E71F40
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119799.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ magnet:?xt=urn:btih:310F7862D054B2641075440D2F36A6ECAEE4F168
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119800.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ magnet:?xt=urn:btih:47B476C2213146BCD1F174E24E2D1815FC964127
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119801.jpg" />
 </div>
 
 
@@ -425,7 +501,7 @@ SwitchResX 4.13.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119802.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ Tom Waits - The Island Years (1983-1993) (2023 Remaster) [FLAC 24/192|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119803.jpg" />
 </div>
 
 
@@ -479,7 +555,7 @@ VA - Live @ Neon Countdown Festival, Thailand (2023) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119804.jpg" />
 </div>
 
 
@@ -509,7 +585,7 @@ magnet:?xt=urn:btih:6FE26B55C9FF2B23ADE5988619B78687AAB28949
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119805.jpg" />
 </div>
 
 
@@ -536,7 +612,7 @@ magnet:?xt=urn:btih:E3C1CB5E78778B096B0A6C9B6534ACEDCCB0CAE7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119806.jpg" />
 </div>
 
 
@@ -560,7 +636,7 @@ magnet:?xt=urn:btih:51E2CD0CB2A2BF231B3D0EDBA0A0E5D30CE4231B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119807.jpg" />
 </div>
 
 
@@ -571,78 +647,6 @@ Southern Home демонстрирует красивые дома, которы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B54C963C132E2F5322879E9AB695F7C9F173F81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696216   (119808) от 01.02.2024
-
-Журнал | Homebuilding & Renovating №3 (2024) [PDF][En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844A60DD6FFE0477E96399F58EB05524BEB9020F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696089   (119809) от 01.02.2024
-
-Атул Гаванде | «Все мы смертны» (2023) [MP3, Геннадий Смирнов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга о старении, смертельной болезни, смерти — то есть о вещах, которых мы так боимся, что стараемся вообще не думать о них, вытеснить на периферию сознания. Автор книги, знаменитый американский хирург Атул Гаванде, уверен, что прятать голову в песок неправильно: смерть — часть жизни, ее естественное завершение, и именно в таком качестве, осознанно и спокойно, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 10:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02870E64375480EF76BCF8D55EA52F7D6DFD4BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696096   (119810) от 01.02.2024
-
-Журнал | Системы безопасности №6 (174) (декабрь 2023-январь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119810.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания журнала – системы охранно-пожарной сигнализации, CCTV, контроля доступа, инженерно-технической защиты, оперативной связи, антитерроризма, информационной безопасности, специальной техники для правоохранительных органов, охранные услуги и многие другие аспекты безопасности.Жанр: БезопасностьИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C24FB0308736864CF0BD7A5DCAC632E68659794
 ```
 
 

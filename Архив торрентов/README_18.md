@@ -6,7 +6,7 @@ TechSmith Snagit 2025.2.1 Build 7212 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Wipe & Clean 20.0.2518 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9523.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Any Video Downloader Pro 9.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9535.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NVIDIA GeForce Desktop Game Ready 580.88 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9544.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Telegram Desktop 6.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9553.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Photoshop 2025 26.9.0.15 Full (x64) Portable by 7997 (31.07.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9568.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Adobe Photoshop 2025 26.9.0.15 Light (x64) Portable by 7997 (31.07.2025) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9570.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:85E6768099C3FA1803BE3630F76EDAB41D792FA3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9575.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ R-Studio Network 9.5 Build 191580 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9576.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9577.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8FF3F566B86AFA5655A5FB3C8F5A29D7D2AFAC5C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9610.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8FF3F566B86AFA5655A5FB3C8F5A29D7D2AFAC5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9616.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ R-Studio Network / Technician 9.5 Build 191578 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9618.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ TechSmith Camtasia 25.2.1.11234 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9624.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AIMP 5.40 Build 2689 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9642.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Double Commander 1.1.27 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9643.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIMP 5.40.2689 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9644.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Telegram Desktop 6.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9650.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9654.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MKVToolNix 94.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9665.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:CA341750901FFF27B43334D39D5E15ECC718259A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9757.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9776.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Advanced Renamer 4.13 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9784.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ YT Downloader 9.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9857.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Photoshop 2025 26.9.0.15 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9872.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Vanced Tube v5.4.80.193 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9878.jpg" />
 </div>
 
 

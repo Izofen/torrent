@@ -6,7 +6,7 @@
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock &
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_986.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1139.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1190.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1270.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2666.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3617.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4606.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4665.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5103.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6785.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6925.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6939.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7103.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7710.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4C1C45429881689B921D9E578CE4F40018919635
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7825.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Prophetic Writings (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7855.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Paul Rodgers - Voice Of Rock - Compilation (1969-2024) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8516.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9046.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9461.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard r
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9986.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10536.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10701.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10822.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11412.jpg" />
 </div>
 
 

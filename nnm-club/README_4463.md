@@ -1,3 +1,79 @@
+###  Публикация: 1521011   (137997) от 31.12.2021
+
+Национальный лес Манти-Ла Сал / Manti-La Sal National Forest (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальный лес Манти-Ла Сал, больше, чем все национальные парки Юты вместе взятые, соткан из заснеженных гор, калейдоскопической осенней листвы, священных Медвежьих Ушей, ослепительных красных скальных образований, нетронутых озёр, пышных долин, чистых рек и бесконечных панорам.Производство: СШАЖанр: документальный, видовойРежиссер: Братья ПаттисПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E43265D74DABFCE2D98A2AD759225F70C70DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273203   (137998) от 31.12.2018
+
+В. Бон | Один из многих: Жизнь для мира и свободы (1988) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вилли Бон - старейший немецкий коммунист. Он прожил большую жизнь и стал очевидцем многих исторических событий, происходивших в его стране и в мире на протяжении XX столетия. "Рассказать о его жизни - значит поведать о целой эпохе" - сказал о нем один из немецких поэтов.
+
+В книге автор вспоминает героические дни Ноябрьской революции 1918 года в Германии, (   Читать дальше...   )Жанр: История, политология, социология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DF0B17E6DD0B06DAA5387A2F512A37CE65B9A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196050   (138001) от 31.12.2017
+
+Марина Суржевская | Для кого цветет лори (2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Зачем цветёт лори».
+
+Таких, как я, называют раянами. И много лет нас уничтожали по приказу Темнейшего Владыки. Однажды все изменилось. Проклятие разрушено, а мне суждено стать не изгнанницей, а правительницей. Но и сейчас я лишь пешка на доске сильнейших магов Сумеречной Империи, что решили получить власть цветущего лори. Правда, я устала играть (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27398FEAE4E2953077E8CE1900FF96A6A73918D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088740   (138002) от 31.12.2016
 
 Comedy Woman. Новогодний выпуск (2016.12.31) WEB-DL [H.264/720p-LQ]
@@ -6,7 +82,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) WEB-DL [H.264/720p-
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138002.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:230A230F899A4193A9D2B8DD5564D240D7DDBFDA
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138003.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:3933455167D7D0C888459366E046A70CC6CBA9B3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138004.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ PictureThis - Plant Identification v3.70 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138005.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138006.jpg" />
 </div>
 
 
@@ -131,7 +207,7 @@ magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138007.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ magnet:?xt=urn:btih:AA097802944A6C20A95DEF71EAFD203DBC7AA901
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138008.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ magnet:?xt=urn:btih:69F22D16A0F708F3CEE98EB7882AEB2BF405F5D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138009.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ magnet:?xt=urn:btih:123DB8F2BB5F0466343489B1D49AAA6D3FBBA3C7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138011.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ magnet:?xt=urn:btih:CB6DEFD6ACA52F865CC35F7F276D63F177334D23
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138012.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ magnet:?xt=urn:btih:7E6AB173D8209830EAB8687336CDD0FD3760D0F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138013.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ magnet:?xt=urn:btih:08CDB3B01133F7774218F22FB77387E3EE0598F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138014.jpg" />
 </div>
 
 
@@ -300,7 +376,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138018.jpg" />
 </div>
 
 
@@ -327,7 +403,7 @@ magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138019.jpg" />
 </div>
 
 
@@ -351,7 +427,7 @@ magnet:?xt=urn:btih:FDC59E6B52FF80AC91ECB69FBDE1AEE8DA66731C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138020.jpg" />
 </div>
 
 
@@ -375,7 +451,7 @@ magnet:?xt=urn:btih:ABD30127B5461BA9705742DF059BE70D724C0240
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138021.jpg" />
 </div>
 
 
@@ -399,7 +475,7 @@ magnet:?xt=urn:btih:F6936CF88FAE15F737CB9E7334EB54CC4472E0A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138022.jpg" />
 </div>
 
 
@@ -424,7 +500,7 @@ magnet:?xt=urn:btih:B61DAB0AF39DBF2C8298E9150C1A4D1EE9BD7212
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138024.jpg" />
 </div>
 
 
@@ -448,7 +524,7 @@ magnet:?xt=urn:btih:1DF8EC4410BD8FD4D93867596F2562472910C371
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138025.jpg" />
 </div>
 
 
@@ -472,7 +548,7 @@ magnet:?xt=urn:btih:664F0751A3491500BAABBE0FF049D4C8DC66FB44
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138027.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138029.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138030.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138031.jpg" />
 </div>
 
 
@@ -561,80 +637,6 @@ magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CEB6B0894B4BCA7E2BA48C98243855C151424D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854935   (138032) от 31.12.2014
-
-Что упало - то пропало / Finders Keepers (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138032.jpg" />
-</div>
-
-
-###  Подробнее
-
-У разведенной матери появляются большие проблемы после
-заселения в новый дом, когда ее дочь становится одержимой злой куклой,
-оставленной предыдущими владельцами...Жанр: Ужасы, ТриллерРежиссер: Александр ЙелленАктеры: Стив Остин, Тобин Белл, Марк ДеКарло, Джозеф  Гатт, Мэри Пэт Глисон, Трилби Гловер, Майкл Хили, Кристен КеррПеревод: любительский, одноголосыйЯзык субтитров: АнглийскийПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E02075AC1981B66C084103D69E844219F4ECF90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196005   (138033) от 31.12.2017
-
-Андрей Смирнов | Чернокнижник (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилар Бергон — человек неопределенного возраста, ему можно дать и тридцать, и сорок, и пятьдесят лет. Его можно принять за шулера, музыканта или вора, но он Чернокнижник. Такие, как он, едят человеческое мясо, наводят порчу, разжигают вражду, беспрестанно творят зло, пьют кровь новорожденных, поклоняются демонам и приносят им человеческие жертвы. И если вы думаете, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 14:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F61E7BA01F5776209CD16BDDB44121BCBE515A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970873   (138034) от 31.12.2015
-
-Пол Э. Бэндхейм | Революционный тренинг мозга (2011) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - уникальное руководство по улучшению здоровья мозга и повышению эффективности его работы. Доктор Пол Э.Бэндхейм разработал комплексную программу, включающую полезное для мозга питание, умеренные физические нагрузки и комплекс увлекательных интеллектуальных упражнений разного уровня сложности. "Революционный тренинг мозга" поможет предотвратить (   Читать дальше...   )Жанр: Психология, Интеллект, Мозг, ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7556F7C60ABCD1FDBEDA9FDACBAD6585946567E0
 ```
 
 

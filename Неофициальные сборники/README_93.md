@@ -6,7 +6,7 @@ VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160830.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Electro Jazz Inspiration And Improvisation (2023) [MP3|320 Kbps] <Jazz, Smo
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160834.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Magical & Mellow, Poetic, Sensual & Relaxing Instrumentals (2023) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160840.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Понемногу отовсюду by Yuridar #G-H (1980-2022) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160903.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Vocal Melodic Techno for U (2022) [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161131.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161133.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alannah Myles - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161238.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161266.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161311.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161513.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161589.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - ЕвроХит Топ 40 Europa Plus 18.12.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161987.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Disco Dream (2021) [MP3|320 Kbps] <Disco, Dance, Funky House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161990.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162000.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sofia Bellini - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162016.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Say Nothing: Indie Pop Rock Selection (2020) [MP3|320 Kbps] <Indie, Pop Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162095.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - The Christmas Songs 2022 (2021) [MP3|320 Kbps] <Pop, Rock, R&b, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162106.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Essential EDM Selection (2020) [MP3|320 Kbps] <Club, Dance, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162107.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Disco Is Alive 3 (2021) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162122.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162127.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162203.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, In
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162216.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162268.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162274.jpg" />
 </div>
 
 

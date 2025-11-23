@@ -1,3 +1,27 @@
+###  Публикация: 1574449   (192508) от 31.10.2022
+
+Демонёнок / Little Demon (2022) WEBRip [H.264/720p-LQ]  (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина, которую 13 лет назад оплодотворил Сатана, и её дочка-антихрист пытаются жить обычной жизнью в Америке, но демонический отец и другие чудовищные силы постоянно нарушают их спокойствие.Производство: США, Fox Television Animation, FX Productions, Jersey Films 2nd Avenue, ShadowMachine FilmsЖанр: для взрослых, мультфильм, ужасы, комедияРежиссер: Жанетт Морено, Бен Бьелажак, Саманта АрнеттАктеры: Обри Плаза, Люси ДеВито, Дэнни ДеВито, Леннон Парэм, Дарси Фаулер, Сет Киршнер, Фил ЛаМаррПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Субтитры: русские, английскиеПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD7A2D94C21F453DA02715E6C9A5390A093D135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654650   (193926) от 22.08.2023
 
 Капитан Фолл (Капитан Крайний) / Captain Fall (2023) WEB-DL (сезон 1, серии 1-10 из 10) [H.264/1080p-LQ] TVShows
@@ -6,7 +30,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193926.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193926.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:B44CA68B68407A7EC82BA37845291CBA07111E61
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195163.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195163.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:207E918DE9191028F058FB8D01535D74F7D97EA8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195426.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195426.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:AB2196465B50CEC185C5A5DDCCDF3999D855EA3A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195428.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195428.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:0702DD64761F1BA6BEDBA2C572EE0257EFBF2510
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195458.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195458.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:B8FA479DD7029C397CA4CC005125FCE47E5F948C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195649.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195649.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:D3755CA1746BF68FA0751B8BD0D559547103229A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195757.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195757.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:1D10F867D4B7C7F09CFC3A8B0056723F4B109BD0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195912.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195912.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:11F8043E5D86E0F23A61336B46879EE75F722BE0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195919.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195919.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:99F253FDB47F7A70A9E1048E065745F2F0734DA9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196001.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196001.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:D03953E16E78B2F5C234FC6397D61B25C1D7D2BE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196235.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196235.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:9531C5FF2C11E79610CFBE74D8AA84E7C682B785
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196741.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196741.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:52EEAD6CBA0C33CF7E51A1A53E20721C800EDDB7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197002.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:009A75FAE748A04CE662D2B979E8E8A6E648CF43
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197112.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ magnet:?xt=urn:btih:405FFEC8AED7CEF0138842908DBF671D7C2DB845
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197153.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197153.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:1A85B0D737FFC443C50E748C9F0B96B38A630FD1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197181.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197181.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:292C994275E32DDC802BF2ABCCB05D024DD3C47E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197215.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:78812774D05F506E2A67F4970A1FD23CA59E2FA7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197457.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197457.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ magnet:?xt=urn:btih:3E9C32C3B924AE1C5B1AAC4A274D6D29ACBC38F0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197662.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:1929B2CA239F613A757E71AA3A880E1FE8F61420
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198379.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198379.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:94DBDD4B85BB039DE1E2B243E4B40B486758BEE9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198597.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198597.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ magnet:?xt=urn:btih:1F217BDA15790CADCE8555504C2C261B189AF7CD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199342.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199342.jpg" />
 </div>
 
 
@@ -537,7 +561,7 @@ magnet:?xt=urn:btih:99B2D81981FFCA908158867BE92B3123AD03227C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199483.jpg" />
 </div>
 
 
@@ -561,7 +585,7 @@ magnet:?xt=urn:btih:B6769A6E7BA6C061B355C3E143F4ECF909C88009
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199583.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199583.jpg" />
 </div>
 
 
@@ -585,7 +609,7 @@ magnet:?xt=urn:btih:72408A76B863D9A24E55F837474C154E87A3BEA3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199678.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199678.jpg" />
 </div>
 
 
@@ -596,30 +620,6 @@ magnet:?xt=urn:btih:72408A76B863D9A24E55F837474C154E87A3BEA3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C2DCC32B20761AE6FE28BD6E1108FA05A2EE09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584045   (199725) от 15.04.2023
-
-Совиный дом / Дом совы / The Owl House (2022) WEB-DLRip (сезон 3, серии 1-3 из 3) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной героиней является девочка по имени Луз. Она нечаянно натыкается на портал в королевство Демонов. В новой реальности Луз становится подругой мятежной ведьмы Иды и очаровательного маленького воина по имени Кинг. Несмотря на отсутствие магических способностей, Луз преследует свою мечту стать ведьмой, становясь ученицей Иды в Совином Доме и в конечном итоге находит (   Читать дальше...   )Производство: США, Walt Disney Television AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Босук Коберн, Амелия Лоренц, Бриджет АндервудАктеры: Сара-Николь Роблз, Уэнди Мэлик, Алекс Хирш, Иссак Райан Браун, Парвеш Шина, Иден Ригел, Бампер Робинсон, Мэй Уитман, Тати Габриэль, Мэттью Рис (I)Перевод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F023A479E8E5DAD76001B7BFE61DE8A7ECC4435
 ```
 
 

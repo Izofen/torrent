@@ -6,7 +6,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44976.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Office Tab Enterprise 15.00 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44980.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains PyCharm Professional 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45005.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YT Downloader 9.10.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45018.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ HomeBank 5.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45019.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (3008) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45024.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ UltraSearch Professional 4.4.1.1015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45025.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Calibre 7.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45026.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ WinTools.net Premium 24.9.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45029.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Draw.io 24.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45030.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PDFsam Basic 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45031.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ocenaudio 3.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45036.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CudaText 1.217.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45037.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AntiPlagiarism.NET 4.133.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45050.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WinTools.net Premium 24.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45052.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (3008) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45064.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Q-Dir 11.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45072.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Nitro PDF Pro 14.28.5.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45089.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ JRiver Media Center 33.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45122.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WinTools.net Premium 24.9.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45124.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Atlantis Word Processor 4.4.0.8 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45127.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Shotcut 24.08.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45128.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ PDF24 Creator 11.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45129.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ UltraSearch Professional 4.4.0.1010 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45132.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Shotcut 24.08.29 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45133.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ExamDiff Pro 15.0.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45136.jpg" />
 </div>
 
 

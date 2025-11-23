@@ -1,3 +1,85 @@
+###  Публикация: 594008   (134984) от 24.12.2012
+
+Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679836   (134985) от 27.11.2023
+
+Борис Заходер | Сказки Бориса Заходера (Аудиоспектакль) (2010) [MP3, Клара Румянова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Мелодия – детям».
+В сказках Бориса Заходера, смеясь или негодуя, дети учатся понимать простую, но очень важную истину – «что такое хорошо и что такое плохо». Так, в тему постижения жизни Борис Владимирович включает понятия Добра и Зла, Справедливости и Несправедливости. И в этом большом и сложным мире иногда бывает трудно найти свое счастье. Где же и как (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4EC7F3DD44B9B43611DE598396452167B8DE07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593356   (134986) от 24.12.2012
+
+VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:09:45
+ 01. Don’t Forget Me (Way Out West’s Dust Biter Mix) - Way Out West
+ 02. Feel the Vibe (Eric Prydz Remix) - Axwell
+ 03. Without You Near (Gabriel & Dresden Mix) - Markus Schulz, Departure & Gabriel & Dresden
+ 04. Resurrection (Gabriel & Dresden Vocal Mix) - Nicol Sponberg
+ 05. Dark Side of the Moon - Ernesto vs Bastian
+ 06. Lyteo (Rank 1 Remix) - Mr. Sam
+ 07. More Than A Life Away - Marco V
+ 08. Pleasure Island (Vocal Mix) - Randy Katana
+ 09. The Loves We Lost (Vocal Mix) - Tiësto(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679983   (134987) от 27.11.2023
 
 Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +88,7 @@ Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134987.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134989.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ Gilrs Wallpaper Collection (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134990.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134991.jpg" />
 </div>
 
 
@@ -108,7 +190,7 @@ VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134992.jpg" />
 </div>
 
 
@@ -141,7 +223,7 @@ PhotoRoom 4.7.5 (1178) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134993.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ Sexy Girls Wallpapers (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134994.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ Find Any File (FAF) 2.4.2 beta1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134995.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134997.jpg" />
 </div>
 
 
@@ -238,7 +320,7 @@ Infested - 1000 Doors (2009) [MP3|320 кб/с]<Technical Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134998.jpg" />
 </div>
 
 
@@ -271,7 +353,7 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134999.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ Gilrs Wallpaper Collection (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135000.jpg" />
 </div>
 
 
@@ -322,7 +404,7 @@ Blaze - Silicon Messiah (2000) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135001.jpg" />
 </div>
 
 
@@ -349,7 +431,7 @@ Sexy Girls Pack Wallpapers (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135002.jpg" />
 </div>
 
 
@@ -373,7 +455,7 @@ PhotoRoom 4.7.5 (b1178) Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135003.jpg" />
 </div>
 
 
@@ -397,7 +479,7 @@ Steel Rath - Prayers of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135005.jpg" />
 </div>
 
 
@@ -424,7 +506,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135006.jpg" />
 </div>
 
 
@@ -448,7 +530,7 @@ MInstAll v.25.11.2023 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135007.jpg" />
 </div>
 
 
@@ -472,7 +554,7 @@ System software for Windows v.3.5.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135008.jpg" />
 </div>
 
 
@@ -496,7 +578,7 @@ Daemonicus - Deadwork (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135009.jpg" />
 </div>
 
 
@@ -529,7 +611,7 @@ Remnant II (2) (2023) [Ru/Multi] (396.261/dlc) Repack DjDI [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135010.jpg" />
 </div>
 
 
@@ -553,7 +635,7 @@ magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135011.jpg" />
 </div>
 
 
@@ -583,7 +665,7 @@ magnet:?xt=urn:btih:F1040BC22E59B529AE8D7F64A6527CFDA5B16B2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135012.jpg" />
 </div>
 
 
@@ -594,92 +676,6 @@ magnet:?xt=urn:btih:F1040BC22E59B529AE8D7F64A6527CFDA5B16B2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDB7180F0A95BE7A383DEA58C689152D54E8172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592859   (135014) от 24.12.2012
-
-Chton - The Devil Builds (2012) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faustian Resolve
- 02. Scavenger Of A Dead World
- 03. Gods Of The Flesh
- 04. Rise Black God
- 05. Death Awaits
- 06. Contagion (The Disease)
- 07. Lord And Master
- 08. Nithon Undertow
- 09. Ratbag (Abcess Cover)
- 10. Babalon And The Beast ConjoinedЖанр: Death MetalПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF231991AAB32C7D118440327D9D5A1A1270F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371931   (135015) от 26.11.2023
-
-Хороший лжец / The Good Liar (2019) Blu-ray [H.264/1080p] [EUR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный мошенник Рой Кортни едва верит своей удаче, когда знакомится в сети с богатой вдовой Бетти Маклиш. Очаровав вдову и получив доступ ко всем ее ресурсам, Рой ловит себя на том, что она ему небезразлична.Производство: Великобритания, Германия, США / BRON StudiosЖанр: Драма, ДетективРежиссер: Билл КондонАктеры: Хелен Миррен, Иэн МакКеллен, Рассел Тови, Джим Картер, Марк Льюис Джонс, Лори Дэвидсон, Фил Данстер, Лусиан Мсамати, Йоуханнес Хёйкьюр Йоуханнессон, Тунджи КасимПеревод: Дублированный (Лицензия)Субтитры: Русские, английские, китайские, корейские, арабские, чешские, венгерские, польские, португальские, румынские, тайскиеПродолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B3FA38D6E4EB462F4DF52C37CD97A0A94EDDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593089   (135017) от 23.12.2012
-
-PUH Edition v2(конструктор USB v2)
-
->>3
->>14
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка для USB накопителя от  512 mb и больше.Сборка сделана как продолжение "Конструктор USB 1" .
-Собрано для тех ,кто по каким либо причинам не хочет или не может перечитывать кучи форумов ,что бы найти нужную информацию.
-PUH Edition v2(конструктор USB v2) - набор файлов для создания мультизагрузочного USB накопителя.
-
-Как работает:
-При форматировании носителя утилитой "Grub4DosUSB(SE)" ,носитель форматируется и на него копируются все нужные файлы требующиеся для работы сборки.После того как носитель подготовлен ,вы просто извлекаете в корень носителя нужные вам программы, все или одну, в любом сочетании.Больше не каких действий предпринимать не нужно! Все само пропишется и появиться.Название программы: PUH Edition v2(конструктор USB v2)Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

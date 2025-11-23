@@ -1,3 +1,75 @@
+###  Публикация: 1691187   (123422) от 11.01.2024
+
+GeoGebra 6.0.819.0 Classic + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123422.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D79D32DB0EDBC71BDBD3C80D563E358A7C960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691185   (123423) от 11.01.2024
+
+File & Image Uploader 8.4.0 Portable + Skins [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123423.jpg" />
+</div>
+
+
+###  Подробнее
+
+File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EA13F350F02CE119BA0032F9DA5477A30AB666
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691246   (123424) от 11.01.2024
+
+Total Commander 11.02 (11.01.2024) Portable by MiG [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896002A7F3A22DA88D55481DF258C735BD988DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691170   (123425) от 11.01.2024
 
 Крик. Ночь перед Рождеством / It's a Wonderful Knife (2023) BDRemux [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123425.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123426.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:211629DE639EA388B81070269B92251A7367C757
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123427.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:44C8B98C8EF47F4CA1802F6ED5D59FF87F245C28
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123428.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:F0145B66D6992E773C187C6DED53C52D6950BE23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123429.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:708A1C8A231433B6999F92802F5F53A04E19B345
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123430.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Clipboard Master 5.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123431.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:1C43E888F9BC7654A4C2884EEEA160387940912C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123432.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:1795EE55FB496BAFBDD15579E304121CF466EDB2
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123433.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Google Chrome 120.0.6099.217 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123434.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:6B1C2F8D1553CA14318D5345ED5B89BA1F84BFBE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123435.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Chris Rea - New Light Through Old Windows (The Best Of Chris Rea) (1988) [OGG Vo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123436.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:EE5C150D1536BB6CE5C0B701D22044CC8C705DEB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123437.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:7AA3D116F14030707B0D3AD92CC2BCCD559D152C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123438.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:1F1C15C2EB755733B16E701C716467FB2D62C383
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123439.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Pipette 24.1.9.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123440.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Darktable 4.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123441.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Google Chrome 120.0.6099.217 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123442.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Avenged Sevenfold - Waking the Fallen (Resurrected) (2003) Japanese Edition, 2 x
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123443.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:A29EA1BB7A82C068795637B557C580DC910F9170
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123444.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:CEEF7C4F401F139E2A0D88A4F8DD91F7E2573370
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123445.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:6AF602D32AB50F2EAE6F96590B2481D4536C8B21
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123446.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ magnet:?xt=urn:btih:992DEF172F750B0567BA9A9EF72C7A7156459F54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123447.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ magnet:?xt=urn:btih:992DEF172F750B0567BA9A9EF72C7A7156459F54
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E0D6C7825961CB66D33106F44170B0F57EC3DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691282   (123448) от 11.01.2024
-
-Приключeния Буратино (1959) DVDRip [H.264/1080p-LQ] [Handmade Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый мастер Джузеппе вырезал из дерева забавного мальчика и назвал его Буратино. Деревянный мальчик ожил, но прежде чем он станет настоящим человеком, ему предстоит пройти через множество испытаний и приключений. Доброта, смелость и находчивость помогут Буратино победить жестокость и алчность, найти бескорыстных и верных друзей…Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Дмитрий Бабиченко, Иван Иванов-ВаноАктеры: Нина Гуляева, Евгений Весник, Георгий Вицин, Тамара Дмитриева, Маргарита Корабельникова, Елена Понсова, Владимир Лепко, Александр Баранов, Татьяна Струкова, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8280B334B12C8332B5F615611A00D4066D3026A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691244   (123449) от 11.01.2024
-
-GFI Kerio Control 9.4.3 build 8353 [x64] 4xCD
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрацию приложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677240273E2DEA4E3C4F20871C20E22570B3E0EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690560   (123450) от 11.01.2024
-
-Кэрол и конец света / Carol & The End of the World (2023) WEBRip [H.265/1080p] (1-10 серии из 10) NewStudio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бы отреагировало человечество, столкнувшись с неизбежным вымиранием? Где бы мы нашли смысл? Какое утешение мы могли бы искать? Это важные вопросы, поднятые маленькой жемчужиной мультсериала «Кэрол и конец света». Для такого человека, как Кэрол, мир перевернулся с ног на голову, поскольку осталось чуть больше полгода до того, как планета-изгой врежется в Землю. (   Читать дальше...   )Производство: Канада, США / Bardel EntertainmentЖанр: компьютерная анимация, для взрослых, минисериал, комедияРежиссер: Дэн ГутерманАктеры: Бет Грант, Майкл Чернус, Марта Келли, Бриджет Эверетт, Мэл Родригес, Лоуренс Прессман, Кимберли Хеберт Грегори, Делберт ХантПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, английскийСубтитры: Русские (full, forced), английскиеПродолжительность: ~ 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E604D0BE4CA9301D7379677A7BD364E8472754D
 ```
 
 

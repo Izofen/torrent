@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71494.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 5.10.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71495.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:7955C192B21189F27DD640A9A5436DD09222A490
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71496.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Deep-House Hunters, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71497.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1A1C614EDF5FF8BBD8F7742E5ED9EABD26B49DF0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71498.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - To My Valentine: Romantic Lounge Tunes (2025) [FLAC 16,24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71499.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F296C7A40FF696B3B9973AF3B8F3F00D0ED8705F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71500.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Wardruna - Birna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nordic folk, ambien
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71501.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71502.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:7D2D756BE1B6395912DAE29C2948A3ED5B63AA41
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71503.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Armik - Gitano Amor (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco, Instru
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71504.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:970E21E93F079F7BAFF43889B8D3F4362CC9EE03
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71505.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Будем с тобой на связи... (Трибьют Markscheider Ku
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71506.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:66720DD589D9684373A2A649CF13251F94B1E411
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71507.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:495EC665DA37E440DA77718589800CB7B92620AB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71508.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Avatarium - Between You, God, The Devil and The Dead (2025) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71509.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Ori Uplift - Uplifting Only Episode 624 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71510.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Spiritual Deception - Semitae Mentis (2024) [FLAC|Lossless|image + .cue] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71511.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Soreption - Jord (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71512.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Demented Heart - Frantic Epidemic (2023) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71513.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Great Old Ones - Kadath (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71514.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Oscar Peterson - Get Happy (1949 - 1950) 2019, Dreyfus Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71515.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:12ABC47EE1094B2EA9C795BED513417B6AA5CC57
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71516.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:F718ADEEC34D1BECA31A05D125B401550F6EC449
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71517.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:391F27B5EF3017DFE773ABA33AA28D6AA4EF3B52
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71518.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:915F2DAA82CA1DDA272247CD2441A322990BAE77
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71519.jpg" />
 </div>
 
 

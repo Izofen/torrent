@@ -1,3 +1,77 @@
+###  Публикация: 478804   (86742) от 06.04.2012
+
+По течению реки / Follow the River (1995) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм поставлен по роману Джеймса Александера Тома (James Alexander Thom). Индейцы нападают на поселенцев и уводят мужчину, двух женщин, одна из который в положении, и ее сына. За ними устремляется погоня. В походе у женщины родилась девочка. Ребенок оказался тем связующим символом общечеловеческих ценностей, что помог установить нормальные отношения с индейцами. В племени, куда их доставили, жили и другие белые пленники, как мужчины, так и женщины. Здесь для них начинается совершенно другая жизнь. Но главная героиня не смирилась и бежала, преодолевая неимоверные трудности и оставив девочку и сына, которого один полюбивший ее индеец решил сделать воином. Посмотреть этот нестандартный вестерн можно.Жанр: Драма, ПриключенияРежиссер: Мартин ДэвидсонАктеры: Шерил Ли, Эллен Берстин, Эрик Швейг, Тим Гини, Рене О'Коннор, Тайлер Нойес, Энди Стал, Гэбриел Махт, Тони Амендола, Сэмми Д. Миллер, Грем Малкольм, Juddson Keith Linn, Джимми Ф. Скэггз, Адриан РобертсПеревод: Многоголосый закадровыйПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A2B2B31E78592E56092F01033A7119FACFDDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477880   (86745) от 06.04.2012
+
+Девушки Харви / The Harvey Girls (1946) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзен Брэдли — молодая девушка из штата Огайо. Она отправляется в Аризону выйти замуж по переписке, по дороге Сьюзен знакомится с веселыми и жизнерадостными подругами, работающими в недавно построенной закусочной под названием «Харви».
+Прибыв в городок Брэдли выясняет, что ее обманули. Вместо умного и романтичного героя «по переписке», ее встречает грубый и «немытый» ковбой, а письма ей писал, заключив пари, владелец салуна. Сьюзен некуда податься и она с радостью присоединяется к компании девушек и остается в городке.
+Местечко, где установлена новая закусочная, славится своим неприятием и отрицанием всего новаторского. Однако девушки решили перевоспитать городок…Жанр: Мьюзикл, Комедия, ВестернРежиссер: Джордж СидниАктеры: Джуди Гарлэнд, Джон Ходиак, Рэй Болджер, Анджела Лэнсбери, Престон Фостер, Сид Чарисс, Вирджиния О`Брайэн, Кенни Бэйкер, Марджори Майн, Чилл Уиллс, Селена РойлПеревод: Двуголосый закадровыйПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BEF9938A77D74B9573DE2CC41987031B78BA86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479086   (86746) от 06.04.2012
+
+Адреналин (1-2 серии из 2) (2012) IPTVRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудно поверить, но страх и страсть, депрессия и эйфория имеют одну и ту же химическую основу – адреналин! Его называют "гормоном страха", а его ближайшего родственника – норадреналин – "гормоном гнева"… Адреналин помогает человеку явиться в наш мир, его всплеск происходит в последние моменты жизни. Ведь наш организм с рождения изготавливает нам удивительные химические коктейли, которые могут помочь нам выжить, а могут и подтолкнуть к бездне…Жанр: ДокументальныйРежиссер: Елена ЛапенковаПеревод: ОригинальныйПродолжительность: 2 х ~ 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1681E397FBA94D53D085D5526BF130E3B790EAFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479031   (86747) от 06.04.2012
 
 Вопрос времени. Водород (2012) DVDRip
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86747.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86748.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Jeff Scott Soto - Damage Control [Deluxe Edition] (2012) [MP3|320 кб/с]<Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86749.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:9C1950927FAEB6BD4E2BF29BD99532B5C9B647F1
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86750.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ magnet:?xt=urn:btih:D9A3854890DB9AF2D8981D10DDBD2F9F834A88BC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86752.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:8F8368A15DCABD94258AE346C23EA2DBBDE21E1C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86753.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ magnet:?xt=urn:btih:3D5703BF5BB1C092EA6A95A3E83A8C1A8BE42C6F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86755.jpg" />
 </div>
 
 
@@ -181,7 +255,7 @@ magnet:?xt=urn:btih:8D347C0645BA240140A3AF0354326D4710E03420
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86756.jpg" />
 </div>
 
 
@@ -205,7 +279,7 @@ magnet:?xt=urn:btih:CA2DCBFF7A964F6C83A8303AD65379728FEB61D2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86757.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ magnet:?xt=urn:btih:CD837A046FABD8520A0C114DA953A07168DBE963
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86759.jpg" />
 </div>
 
 
@@ -254,7 +328,7 @@ magnet:?xt=urn:btih:B5027F333978E384CE8148376F7BB28D24560B5C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86762.jpg" />
 </div>
 
 
@@ -280,7 +354,7 @@ magnet:?xt=urn:btih:A94B4F81F0406765E9378E7EE96E98D5F8E2428D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86763.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ magnet:?xt=urn:btih:A94B4F81F0406765E9378E7EE96E98D5F8E2428D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86765.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ magnet:?xt=urn:btih:7261A634CFF49927D522B2364E955C06B1CB9289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86766.jpg" />
 </div>
 
 
@@ -358,7 +432,7 @@ magnet:?xt=urn:btih:1316D3436FC00F733E439D4389EE92E61B55FF77
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86767.jpg" />
 </div>
 
 
@@ -382,7 +456,7 @@ magnet:?xt=urn:btih:110507ED3B2220DBDB80BBAE1B07A712D0962ED7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86770.jpg" />
 </div>
 
 
@@ -406,7 +480,7 @@ Kaspersky World 1.3.4.98 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86773.jpg" />
 </div>
 
 
@@ -439,7 +513,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86775.jpg" />
 </div>
 
 
@@ -463,7 +537,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86776.jpg" />
 </div>
 
 
@@ -487,7 +561,7 @@ MIDI Pack - Collection ONE Part 5 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86777.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ Johann Sebastian Bach – Brandenburg Concertos 2, 4, 6; 1, 3, 5: 2CD, VA, (1991
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86778.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ magnet:?xt=urn:btih:A1D3EAE15D204C2803E53DC3921646A56BEAFE39
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86779.jpg" />
 </div>
 
 
@@ -560,7 +634,7 @@ magnet:?xt=urn:btih:A2EE5E2354B88549BA0606CBD605208DB99DEAA9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86780.jpg" />
 </div>
 
 
@@ -571,88 +645,6 @@ magnet:?xt=urn:btih:A2EE5E2354B88549BA0606CBD605208DB99DEAA9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BCDD0E8D7092C0CCB3E1B5A46BC352617ACB185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479019   (86781) от 06.04.2012
-
-Salfeld Child Control 2012 12.401.0.0 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Salfeld Child Control - программа ограничивает время, проводимое вашими детьми за компьютером - как только выделенное им время закончится, компьютер автоматически выключится и повторный вход будет возможен только после ввода пароля.
-
-Ограничение можно ввести как по общему времени (например, не более 1 часа в день), так и по периоду времени, когда можно работать (например, с 22:00 до 8:00 доступ запрещен).
-
-Кроме этого, программа позволяет запретить посещение нежелательных сайтов, а также заблокировать доступ к определенным дискам и папкам.Можно установить блокировку запуска тех или иных программ и внесение изменений в системный реестр. Программа ведет лог-файл всех событий.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478960   (86783) от 06.04.2012
-
-MIDI Pack - Collection ONE (MIDI) Part 4 (MIDI) [Английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86783.jpg" />
-</div>
-
-
-###  Подробнее
-
-MIDI Pack - Collection ONE - это огромнейший сборник Миди собран со всего мира содержащий 30 000 файлов для вашего творчества!
-Релиз разбит на 6 частей. Содержимое всех частей перемещается в общую папку - MIDI Pack - Collection ONE (MIDI).Язык интерфейса: АнглийскийФормат: MIDI
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478792   (86785) от 06.04.2012
-
-Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Bassoon 2: Valery Popov, Alexander Bakhchiev etc. (1983-1991)/2003, Vista Vera/[FLAC|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Georg Philipp Telemann
-Sonata f-moll 
-1.	Triste (2:29)
-2.	Allegro (4:18)
-3.	Andante (1:55)
-4.	Vivace (2:22)2003Жанр: Chamber musicПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC2B8782C5DFD23E93E5D0BA3B29796A657ED44
 ```
 
 

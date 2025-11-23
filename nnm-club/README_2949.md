@@ -1,3 +1,84 @@
+###  Публикация: 478428   (87325) от 09.04.2012
+
+Пароходный Билл младший / Steamboat Bill, Jr. (1928) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм переносит нас на реку Миссисипи времен колесных пароходов и рассказывает историю приключений испорченного молодого человека из Бостона, которого его суровый отец пытается научить премудростям навигации.Жанр: драма, мелодрама, комедия, семейныйРежиссер: Чарльз Райснер, Бастер КитонАктеры: Бастер Китон, Эрнест Торренс, Том Льюис, Мэрион БайронПеревод: НемойПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4DF9D78E00869EE17C7842EE8D520F94790CA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480739   (87326) от 09.04.2012
+
+В.С. Андреев. | Заборы, ворота, калитки, двери для загородного дома [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о многообразии заборов, ворот, калиток и дверей; о материалах; об особенностях изготовления и ремонта. Подробная теоретическая информация сопровождается пояснительными рисунками. Здесь каждый хозяин найдет необходимые советы и рекомендации, которые можно воплотить в жизнь.2011Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478567   (87328) от 09.04.2012
+
+VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alyosha - Феромоны любви
+02 Britney Spears - Criminal (Dj Sergey Fisun Bootleg remix)
+03 Влад Соколовский - До небес
+04 Sander van Doorn - Koko
+05 5sta Family - Вместе Мы
+06 Bel-Agio feat. Vybrate - Seek love tonight
+07 Градусы - Заметает
+08 Demi Lovato - Give your heart a break
+09 Марсель - Не ищи
+10 Simon From Deep Divas feat. Goody - Disco dancer2012Жанр: PopПродолжительность: 05:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54885B32F042C84E70249E8EB359BB0967A3A0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480350   (87332) от 09.04.2012
 
 Сваты у плиты. Серия №3 (2012) SATRip
@@ -6,7 +87,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87332.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ VA - Шансон Года Часть 4 (2012) [MP3|256-320 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87337.jpg" />
 </div>
 
 
@@ -65,7 +146,7 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87338.jpg" />
 </div>
 
 
@@ -98,7 +179,7 @@ magnet:?xt=urn:btih:3CB888CBEB0A7F761F551A4B1AD80196B43BF1E3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87339.jpg" />
 </div>
 
 
@@ -122,7 +203,7 @@ magnet:?xt=urn:btih:1FB4B409AA79B53032537092061824478F7ED33E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87340.jpg" />
 </div>
 
 
@@ -148,7 +229,7 @@ magnet:?xt=urn:btih:6A19CBD6BFB1C667993EFFBE929E9FC77DC61683
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87341.jpg" />
 </div>
 
 
@@ -175,7 +256,7 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87343.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ magnet:?xt=urn:btih:BAAF98762FEFF26A8976ED40869570323B95083F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87346.jpg" />
 </div>
 
 
@@ -232,7 +313,7 @@ Steinberg | Руководство пользователя HALion 3 (русск
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87347.jpg" />
 </div>
 
 
@@ -256,7 +337,7 @@ magnet:?xt=urn:btih:AEFE0FD833121622BDE03F0938C52B4309537CD3
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87348.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87349.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87351.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87352.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87354.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Robert Palmer - The Ultimate Collection 3CD (2003) Digitally Remastered [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87356.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87358.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87361.jpg" />
 </div>
 
 
@@ -496,7 +577,7 @@ magnet:?xt=urn:btih:7D26B0935A3DE7DCE366E3FF866BE664CB8BA180
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87362.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ magnet:?xt=urn:btih:A0ED1AD04D4905771221D22EE315C242F84BE67D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87365.jpg" />
 </div>
 
 
@@ -548,7 +629,7 @@ magnet:?xt=urn:btih:D93CDC9A7C32951DDB3B9BEC92C21A6E8F103EB4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87366.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ VA - The Best Of Lounge Music (2012) [MP3|320 kbps]<Chillout | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87368.jpg" />
 </div>
 
 
@@ -605,7 +686,7 @@ magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87370.jpg" />
 </div>
 
 
@@ -629,7 +710,7 @@ magnet:?xt=urn:btih:610FAEC54F6308967F6FEDBE2D04F42DCFB54620
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87372.jpg" />
 </div>
 
 
@@ -640,87 +721,6 @@ magnet:?xt=urn:btih:610FAEC54F6308967F6FEDBE2D04F42DCFB54620
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479996   (87373) от 09.04.2012
-
-VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<Романсы>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гори, гори моя звезда (Б.Штоколов)
- 02. Я помню вальса звук прелестный (Н.Брегвадзе & М.Джабуа)
- 03. Романс о романсе (В.Пономарева)
- 04. Нищая (А.Малинин)
- 05. Ямщик, не гони лошадей (С.Захаров)
- 06. Сердце на снегу (М.Магомаев)
- 07. Во глубине сибирских руд (Л.Сметанников)
- 08. Старый муж (Песня цыганки) (Н.Раутио)
- 09. Я Вас любил (Ф.Царикати)
- 10. Ночь светла (Т.Синявская)(   Читать дальше...   )1999Жанр: РомансыПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480232   (87375) от 09.04.2012
-
-[Wallpapers Подборка обоев для рабочего стола] Красивые девушки
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская красота спасет мир
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480666   (87378) от 09.04.2012
-
-Генезис / Genesis (2004) BDRip [H.264/720p] [PR]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм от создателей знаменитого и невероятно успешного "Микрокосмоса" (1996). Созданный в стиле "Микрокосмоса" и "Птиц", "Генезис" гораздо более амбициозный проект, рассказывающий о происхождении Вселенной и жизни на нашей планете: флоры, фауны и человеческой расы. На создание фильма ушло почти 10 лет. То серьезно, (   Читать дальше...   )Производство: Франция, Италия, Les Films Alain Sarde, Les Films de la Véranda, RAI Radiotelevisione ItalianaЖанр: Документальный, история, природаРежиссер: Клод Нуридсани, Мари ПереннуПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB971C106308B17080586C1254985D7EDEF91DF
 ```
 
 

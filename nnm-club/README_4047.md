@@ -1,3 +1,78 @@
+###  Публикация: 1689155   (124904) от 31.12.2023
+
+Журнал | Woodworker's Journal №1 (февраль 2024) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodworker's Journal — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, (   Читать дальше...   )Жанр: Столярное делоЯзык: АнглийскийИздательство: Rockler Press IncФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F4A52AFCC29FAF3C84E77971F30F7D28CD235F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689142   (124905) от 31.12.2023
+
+Журнал | Красивые квартиры №1 (212) (2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Красивые квартиры» — одно из ведущих популярных полноцветных периодических изданий, на страницах которого представлены интересные реализованные проекты и дизайн-концепции интерьеров квартир, апартаментов, лофтов и таунхаусов от лучших российских и зарубежных архитекторов и дизайнеров, выполненные в различных стилях и направлениях.Жанр: Архитектура, дизайнИздательство: АО "ИД "Красивые дома пресс"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1B3A0D4AC06A3BFDD9DB17DC11814E155181E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689133   (124906) от 31.12.2023
+
+Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coast to Coast (7:00)
+2. Keep On Dreaming (7:50)
+3. Deep Forest (8:53)
+4. Mystery (6:42)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638B8E1D0E13E5684AD0791EE9209005A41C72C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689122   (124907) от 31.12.2023
 
 Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
@@ -6,7 +81,7 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124907.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Harvard Business Review (HBR) | Переосмысление роли HR (2021) 
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124908.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:BCD31736D6FF377E9C900661C71F71A5917C41CC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124909.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:A2ACD8402E1A8B17F5DE36F9AA23CE6F500587BD
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124910.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Jjos - Compilation (2023) [MP3|320 Kbps] <Electro. Chill Out. Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124911.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:075D99319C016CF1B46FB58860A8A8AEE3DCFD50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124912.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ magnet:?xt=urn:btih:2DDAA9332EF0A2F002A8C03C702CD2B708D92072
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124913.jpg" />
 </div>
 
 
@@ -182,7 +257,7 @@ magnet:?xt=urn:btih:34B638FE0898D22168CD4928F861A1D1BF7D6A60
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124914.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:517A42DE39584E42928B52F33AD390D2D487CC91
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124915.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Harvard Business Review (HBR) | Управление командой (2017) [PD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124916.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ magnet:?xt=urn:btih:8F1B5A1CC687487B56FA1C4472586FCE34DE9B7F
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ magnet:?xt=urn:btih:12F04E5789BDD89049CD94D4BF29050B0C9E9DF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124918.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ Harvard Business Review (HBR) | Эффективные коммуникации 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124919.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ magnet:?xt=urn:btih:C7238E51DFD668589212545669A5B8BF726C9A51
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124920.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ magnet:?xt=urn:btih:9EAEA64D836AAD02A0BE01C5B2F1B32899531E10
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124921.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124922.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ magnet:?xt=urn:btih:8078475E9A39A374741F7C474A70877030CC4AC8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124923.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ magnet:?xt=urn:btih:220609DD524B6C0539BD72882ED26CB18226F4AF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124924.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:32741961A6ADC8752204A2F5FF2360EB6B3A2092
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124925.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ VA - RelaX (my essence) for You (2023) [MP3|192 Kbps] <Pop, Rock, Relax>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124926.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ magnet:?xt=urn:btih:7CA4A68FC4FCB618799F2857516707140C3DE6EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124927.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ magnet:?xt=urn:btih:40C6DBBE0930B4BF2F8364508FA5F64BCBDBCBB2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124928.jpg" />
 </div>
 
 
@@ -559,7 +634,7 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124929.jpg" />
 </div>
 
 
@@ -573,81 +648,6 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F5BF4FD4696EEABC539C539720A1CB53F7098D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689195   (124930) от 31.12.2023
-
-Дон Жуан де Марко / Don Juan DeMarco (1995) HDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая мелодрама о взаимоотношениях стареющего врача-психиатра и его молодого пациента, который искренне считает себя Дон Жуаном. Дружба, возникшая между героями фильма помогает вернуть врачу утраченную молодость духа, свежесть чувств и способность мечтать.
-
-Помешательство его подопечного окажется не чем иным, как исключительным отношением к женщинам, удивительной (   Читать дальше...   )Производство: США / American Zoetrope, Juno Pix, New Line Cinema, Outlaw ProductionsЖанр: драма, мелодрама, комедияРежиссер: Джереми ЛевенАктеры: Марлон Брандо, Джонни Депп, Фэй Данауэй, Жеральдин Пайя, Боб Диши, Рэйчел Тикотин, Талиса Сото, Марита Герати, Ричард С. Сарафьян, Тереза ХьюзПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB125F4D86DAC379B082B293478AFFFA780230F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689105   (124931) от 31.12.2023
-
-Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини кафе-террасы [ТВ-1] [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поссорившись с бабушкой, Хаято Кусакабэ покинул дом и уехал учиться. Прошло три года. Бабушка умерла и оставила ему в наследство своё кафе. По возвращении он находит в родном доме пятерых незнакомок.
-© crunchyrollПроизводство: студия Tezuka Productions / 手塚プロダクションЖанр: комедия, романтика, повседневность, эттиРежиссер: Кувабара СатосиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll, RikuSempai)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688974   (124932) от 31.12.2023
-
-Герой / Ying xiong / Hero (2002) BDRip [Director's Cut] [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124932.jpg" />
-</div>
-
-
-###  Подробнее
-
-III в. до н. э. Ван (царь) Цинь Шихуан завоевывает соседние царства, «собирая земли» Поднебесной воедино. Опасаясь убийц, подосланных враждебными царствами, Шихуан не подпускает к себе никого ближе 20 шагов. Но вот во дворце появляется герой без имени, и ему оказана честь подойти ближе прочих. Он ее заслужил, устранив трех самых опасных убийц, поклявшихся добыть (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New Picture Film, China Film Co-Production, EDKO Film Ltd.Жанр: фэнтези, боевик, драма, детективРежиссер: Чжан ИмоуАктеры: Джет Ли, Тони Люн Чу-вай, Мэгги Чун, Чжан Цзыи, Донни Йен, Чэнь Даомин, Лю Чжунъюань, Чжэн Тяньюн, Цинь ЯньПеревод: Авторский (Евгений Солодухин (Solod))Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3F50D275B081F05B2BBF863ABFF1B76DD1921
 ```
 
 

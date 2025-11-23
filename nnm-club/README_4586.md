@@ -1,3 +1,154 @@
+###  Публикация: 587499   (142058) от 28.12.2018
+
+Небо. Самолет. Девушка. (2002) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они увидели друг друга в кафе. Не встретиться они не могли, так как в этом кафе никого не было, кроме бармена. И затем в течение долгого времени они жили, не видя никого вокруг: любовь самодостаточна, она отвергает лишнее.
+Встречи на безлюдной станции метро «Арбатская». Он будет выкраивать время между командировками, она — между рейсами. Цветы и поцелуи на улице, (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Вера СторожеваАктеры: Рената Литвинова, Дмитрий Орлов (III), Инга Оболдина, Михаил Ефремов, Константин Мурзенко, Ярослав Бойко, Максим Курочкин, Янина Когут, Анжелика Шилова, Людмила Левина, Юлия Сулес, Светлана Свибильская, Нина Варварина, Светлана Румянцева, Валентина Виноградова, Александр Ефанов, Анатолий Житник, Михаил Климанов, Наталья Ковалева, Николай Ковбас, Олег Калмыков, Александр (   Читать дальше...   )Продолжительность: 01:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6A86CCC2FCBEA953DACBBE21191C58BDDB9AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087943   (142059) от 29.12.2016
+
+Проекты - VideoHive - 16 Christmas Toys Logo Openers - 19046968 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142059.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 Christmas Toys Logo Openers - 16 новогодних различных способов выделить ваш логотип или бренд.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A73678813EBCF95AF5EC502ACC4E7250412396D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678918   (142060) от 23.11.2023
+
+Останься со мной / Resta con me (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-16 из 16) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алессандро работает в полиции Неаполя. Его жизнь и его карьера разрушены после перестрелки с криминальной бандой, в которую была вовлечена и его беременная жена, потерявшая во время перестрелки ребёнка.Производство: Италия / PalomarЖанр: криминалРежиссер: Моника ВуллоАктеры: Сеттимо Палаццо, Франческо Арка, Мария Пиа Кальцоне, Артуро Музелли, Liliana Bottone, Mario Di Leva, Claudia Tranchese, Игнацио Олива, Анджела Чабурри, Антонио Буонанно и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD9AFB7D839D99DDA435557FE9A3C98A550B50B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348624   (142061) от 29.12.2019
+
+VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Plane - Jackal (7:17)
+02. Niko Schwind - Prima Lux (Palmfood Remix) (7:31)
+03. Rauschhaus, Peer Kusiv - Drowning (Bebetta Remix) (7:20)
+04. Prismode, Solvane - Alesis (5:36)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 03:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195434   (142062) от 29.12.2017
+
+Скайлайн 2 / Beyond Skyline (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142062.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523BF27B4CBC36282D53894380F2033FE38D2D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348858   (142065) от 29.12.2019
+
+Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirteen Women [3:03]
+02. Hallelujah I Love Her So [2:47]
+03. C'est Comme Ca [2:53]
+04. Is You Is or Is You Ain't My Baby? [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4235D0AD17B7C39AE40F3336676FC0B0BF6E0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435940   (142066) от 29.12.2020
 
 Растровый клипарт - Cakes, delicious desserts stock photo [JPG]
@@ -6,7 +157,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142066.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ KineMaster - видеоредактор 7.2.8.31088 Mod by AppKaMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142067.jpg" />
 </div>
 
 
@@ -54,7 +205,7 @@ magnet:?xt=urn:btih:6B1A319950DA4A5547A392C2BE545CC615023724
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142068.jpg" />
 </div>
 
 
@@ -80,7 +231,7 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142069.jpg" />
 </div>
 
 
@@ -104,7 +255,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142070.jpg" />
 </div>
 
 
@@ -131,7 +282,7 @@ magnet:?xt=urn:btih:85D137D73F210FF5DDEDF10A3410C69BFBA4DA10
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142071.jpg" />
 </div>
 
 
@@ -158,7 +309,7 @@ iMazing 2.5.3 (8307) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142073.jpg" />
 </div>
 
 
@@ -183,7 +334,7 @@ magnet:?xt=urn:btih:11044A0DC03FE5BAE2974AA646979011646C55BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142074.jpg" />
 </div>
 
 
@@ -207,7 +358,7 @@ magnet:?xt=urn:btih:14713E7B4535BB56B0AF4BC363F891610667D603
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142075.jpg" />
 </div>
 
 
@@ -231,7 +382,7 @@ VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142076.jpg" />
 </div>
 
 
@@ -258,7 +409,7 @@ magnet:?xt=urn:btih:EB4CCF09EF842E8F0211BF00AC7BEEC66F51744C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142077.jpg" />
 </div>
 
 
@@ -282,7 +433,7 @@ magnet:?xt=urn:btih:0B5D228F9C0550F33B6243FC7D102C503263AA96
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142078.jpg" />
 </div>
 
 
@@ -308,7 +459,7 @@ magnet:?xt=urn:btih:655A331DC20C15CF308A8A4C3EB04DB1B670B4A1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142079.jpg" />
 </div>
 
 
@@ -332,7 +483,7 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142080.jpg" />
 </div>
 
 
@@ -359,7 +510,7 @@ Emurasoft EmEditor Professional 23.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142082.jpg" />
 </div>
 
 
@@ -384,7 +535,7 @@ Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142084.jpg" />
 </div>
 
 
@@ -411,7 +562,7 @@ magnet:?xt=urn:btih:AA43CA54DDD6E2E4549A9ACE56B9975A64F96566
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142085.jpg" />
 </div>
 
 
@@ -438,7 +589,7 @@ magnet:?xt=urn:btih:B9ACE95DD982ED89A6E40AC870F043561C003A60
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142086.jpg" />
 </div>
 
 
@@ -462,7 +613,7 @@ magnet:?xt=urn:btih:64EB5ACF645BCA8E0A69465DB6192E83700993F1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142087.jpg" />
 </div>
 
 
@@ -486,7 +637,7 @@ VA - Psychotic Episodes (Selected by Psycatrick) (2021) [AAC|~324 Kbps] <Psy-Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142088.jpg" />
 </div>
 
 
@@ -500,152 +651,6 @@ VA - Psychotic Episodes (Selected by Psycatrick) (2021) [AAC|~324 Kbps] <Psy-Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5C2720A8FCD7633DC4A8E5469478E81EC02CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087856   (142089) от 29.12.2016
-
-Двойной просчет / Double Jeopardy (1999) WEBRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь героини Эшли Джадд, Либби, можно назвать идеальной. У нее крепкий брак с любящим и состоятельным мужем Ником(Брюс Гринвуд), от которого имеется общий ребенок, ее окружают верные друзья и она по-настоящему счастлива. Но в один миг этот рай заканчивается, ибо Либби обвиняют в преступлении, которого она не совершала, а ее путь к правде и восстановлении справедливости (   Читать дальше...   )Производство: США,  Канада,  Германия (British Columbia Production, Tax Credit, Paramount Pictures)Жанр: Триллер, Драма, Детектив, КриминалРежиссер: Брюс БересфордАктеры: Эшли Джадд, Томми Ли Джонс, Брюс Гринвуд, Аннабет Гиш, Бенжамин Вейр, Джей Бразо, Джон МакЛарен, Эд Эванко, Брюс Кэмпбелл, Бреннан Эллиотт и др.Перевод: Дублированный, многоголосый, двухголосый, авторскийСубтитры: Русский, английский и т.д.Продолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D8B6191C285CAD6344D4DF3DBA18BF14A8DDF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679005   (142090) от 23.11.2023
-
-Opera GX 104.0.4944.74 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10825765BBD8604C51DF61A5222AD619548D0BC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589408   (142091) от 17.12.2012
-
-Знак Венеры / Il Segno di Venere (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая провинциалка Чезира живет у родственников, работает в бюро машинисткой, а свободное время проводит в компании с двоюродной сестрой. Обе девушки мечтают выйти замуж. По прогнозам знакомой гадалки, в жизни Чезиры наступает период Венеры - время выбора жениха. Вот только все потенциальные женихи, с которыми Чезире удается познакомиться, увидев красавицу-сестру, мгновенно переключаются на нее.Жанр: Мелодрама, КомедияРежиссер: Дино РизиАктеры: София Лорен,Франка Валери, Витторио Де Сика, Раф Валлоне, Вирджилио Риенто, Тина Пика,Пеппино Де Филиппо, Альберто Сорди, Лина Дженнари, Элоиза Чианни, Леопольдо Триесте, Маурицио Арена, Франко Фантазия, Марчелла Ровена, Анита ДурантеПеревод: Профессиональный двухголосый закадровыйПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5465CBFC774EFFFE7F1B9E1EB7052B8EC8FCC507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195435   (142092) от 29.12.2017
-
-Глобальный Метал / Global Metal (2008) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм демонстрирует международные оттенки, пожалуй, самого универсального музыкального жанра — heavy metal. В своем произведении «Global Metal» режиссеры Scot McFadyen и Sam Dunn предприняли попытку рассмотреть степень влияния наиболее «пагубного» западного музыкального жанра — heavy metal — на мировые культуры за пределами Европы и Северной Америки.Производство: Канада, Banger FilmsЖанр: Документальный, МузыкаРежиссер: Sam Dunn, Scot McFadyenПеревод: Переводман/одноголосый закадровый, любительский (М.Чадов)Субтитры: РусскиеПродолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D856AA0ED9CCBFF0467B70B1030A89CE5D7B2AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970262   (142093) от 29.12.2015
-
-Acronis Disk Director 12 Build 12.0.3270 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis Disk Director 12 — это набор мощных инструментов для оптимизации использования дисковых ресурсов и защиты данных. С его помощью можно создавать разделы дисков и управлять ими, чтобы хранить различные файловые или операционные системы на одном диске, быстро восстанавливать потерянные или удаленные данные, сокращать время создания резервных копий образов и (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A827D17BCE66E2B8FA1598D4721A7B84265ED261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520549   (142094) от 28.12.2021
-
-SiteSucker Pro 4.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142094.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657B8ABECF1CCAC9938D16D3DAE5BAF41C55354E
 ```
 
 

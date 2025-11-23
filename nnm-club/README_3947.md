@@ -1,3 +1,76 @@
+###  Публикация: 1692624   (122304) от 18.01.2024
+
+Красные комнаты / Les chambres rouges / Red Rooms (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суде идет рассмотрение громкого дела серийного убийц Людовика Шевалье. Молодая женщина Кэлли-Энн ночует у здания суда, чтобы успеть занять место в зале суда и не пропустить заседание. Она болезненно одержима личностью убийцы и хочет разгадать тайну пропавшего видео, на котором запечатлено убийство 13-летней девочки, похожей на героиню как две капли воды.Производство: Канада / Nemesis Films ProductionsЖанр: Триллер, криминал, детективРежиссер: Паскаль ПлантеАктеры: Жюльетт Гарьепи, Лори Бабен, Элизабет Локас, Максвелл МакКейб-Локос, Натали Таннус, Пьер Шаньон, Ги Товетт, Шарлотта Обен, Себастьен Бюлак, Фредерик Де ГранпреПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, французскийСубтитры: АнглийскиеПродолжительность: 01:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7124E738A520433F71D6FB0E64279B043E0392D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692772   (122305) от 18.01.2024
+
+Врата ада / The Gates (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианский Лондон. Серийный убийца использует тела женщин в оккультных ритуалах, надеясь воскресить свою умершую жену. Однажды расплата настигает его, и он становится первым британским заключенным, которого казнят на электрическом стуле. Однако убийца силен в черных искусствах, и в последние минуты жизни он проклинает тюрьму и всех, кто в ней находится.Производство: Ирландия / Forever Safe Productions, Mad Honey Productions, Studio AtlanticЖанр: Ужасы, триллерРежиссер: Стивен ХоллАктеры: Ричард Брэйк, Майкл Йар, Дэвид Пирс, Джон Рис-Дэвис, Елена Делия, Кристин Малхерн, Питер Кунан, Тристан Хинью, Брайан Форчун, Клер ЛойПеревод: Дублированный (Студия Позитив)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF8327DA083BCACD2695C03F43172449483E44B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790238   (122306) от 18.01.2024
+
+Жатва / The Reaping (2007) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня знаменита оригинальным хобби — развеивать мифы. Придумав себе новое развлечение, она отправляется в маленький, Богом забытый городок в штате Техас с намерением развеять его зловещую легенду.
+В процессе расследования, она понимает, что на этот раз ей придется столкнуться с чем-то действительно мистическим… Ужас, царящий в городе — это не россказни (   Читать дальше...   )Производство: Warner Bros. Pictures Co., Village Roadshow Pictures, Dark Castle Entertainment / СШАЖанр: Ужасы, Триллер, МистикаРежиссер: Стивен ХопкинсАктеры: Хилари Суонк, Аннасофия Робб, Идрис Эльба, Уильям Рэгсдейл, Дэвид Морриси, Эдди Фернандес, Бургесс Дженкинс, Лара Грайс, Маноло КардонаПеревод: Дублированный, Авторский (одноголосый), ДвухголосыйСубтитры: Русский, АнглийскийПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CC9ADBDDE471E5A1A0CC0B5820A14BDC254E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692935   (122307) от 18.01.2024
 
 Запретная страсть / L'ete dernier / Last Summer (2023) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122307.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:AED7DD2D2FF9816DF30BBED3FDBBDED816872EE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122308.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:77416E51FE270554C49DFE86D33CC4AE15F17432
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122309.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:98A8F8378045DB3DD65CDE34851E1EF74A564F21
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122310.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:CB9075F34F4EDED110A91C4C160FF94214DE3C0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122311.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:F40E7AD57F3C4E38F59B235FB42EFCA9CBDADB21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122312.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:CB13C442AA147B0E9B3768AAE509F9EB9758DE34
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122313.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:C6927531E2AB1B305E8ED7F56D07BD00147BEEF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122314.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:7C71AD29F66E5D405FBF7C5019BFDAA2C30C6C01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122315.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ magnet:?xt=urn:btih:A59CDC1BAC7C17EE3C88355F7352AB2F04EC4DA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122316.jpg" />
 </div>
 
 
@@ -246,7 +319,7 @@ magnet:?xt=urn:btih:A59CDC1BAC7C17EE3C88355F7352AB2F04EC4DA0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122317.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ magnet:?xt=urn:btih:A59CDC1BAC7C17EE3C88355F7352AB2F04EC4DA0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122318.jpg" />
 </div>
 
 
@@ -294,7 +367,7 @@ magnet:?xt=urn:btih:A6C4EB92E4F32DFBDBB075D6E3EF3FA5F3C1FDB5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122319.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ RightFont 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122320.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ Mildred Bailey - 1932 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122321.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ SnippetsLab 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122322.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122323.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ BatchOutput PDF 3.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122324.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ EazyDraw 11.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122325.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122326.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ Boinx FotoMagico Pro 6 v.6.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122327.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ MarkMyWords 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122328.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122329.jpg" />
 </div>
 
 
@@ -558,81 +631,6 @@ III. The Summit(   Читать дальше...   )Жанр: Progressive RockП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2D2C3A3A0F2B4AB6388685AA64D62E4E5D10FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692604   (122330) от 17.01.2024
-
-Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo
-02. The Dragonfly
-03. Metamorphosis
-04. Forsaken(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B38F84971E24EB1A9F671F44709F64CA35D485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692561   (122331) от 17.01.2024
-
-Color Folder - Custom Icons for Mac 3.8 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122331.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Color Folder вы сможете задать любой внешний вид выбранной вами папкиТип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2022 elimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692750   (122332) от 17.01.2024
-
-GM CHM Reader Pro for Mac 2.5.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122332.jpg" />
-</div>
-
-
-###  Подробнее
-
-GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
 ```
 
 

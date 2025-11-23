@@ -6,7 +6,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26484.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bund
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26513.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26514.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Stellar Settlers: Space Base Builder (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26515.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hands of Necromancy (2022) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26527.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26540.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26544.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26546.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26587.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26587.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26590.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26590.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26595.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26620.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26626.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26626.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26632.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26642.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26644.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26649.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26655.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26693.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26693.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26697.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26701.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26702.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26702.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26703.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26703.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26706.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26706.jpg" />
 </div>
 
 

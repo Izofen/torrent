@@ -1,3 +1,81 @@
+###  Публикация: 1682617   (131497) от 07.12.2023
+
+Сибирская Благозвонница | Из творений преподобного Ефрема Сирина. Об антихристе, кончине мира и Страшном Суде (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию благочестивого читателя предлагаются слова преподобного Ефрема Сирина, в которых учитель покаяния живо и образно показывает события, сопутствующие кончине мира, и Страшный Суд Господа нашего Иисуса Христа, побуждая слушателей к раскаянию в своих грехах и изменению образа жизни.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48651AA3C79F6B8848D0F6C58E365B4B7706BEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682547   (131499) от 07.12.2023
+
+Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackest Eyes (5:23)
+02. Harridan (8:07)
+03. Of The New Day (4:44)
+04. Rats Return (5:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E4BCF73946D5D3D27551A4BD53C0E687245567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682299   (131501) от 07.12.2023
+
+Baker & Cas - Hooligans (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock n Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Sug (2:32)
+02. The Woman I Love (2:33)
+03. I Told Jesus (4:53)
+04. It's Getting Strange (3:49)(   Читать дальше...   )Жанр: Blues, Rock n RollПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B8F3BA46538B6577423CCAE3F1826CBD7E6FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595855   (131502) от 30.12.2012
 
 Рисованная графика - Artworks by Henning Ludvigsen
@@ -6,7 +84,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131502.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:7E298310F11E9285A3411A8069AA9FDE3C2B3C22
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131505.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:BA7193423F2216112D191F8F6ECEAAC2EC656A5F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131506.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131508.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131509.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Chris Gregory - Bluestinato (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131510.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Willie Clayton - Showtime Mr. C (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131511.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131512.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ magnet:?xt=urn:btih:32DF8A2E308C63AF5C110190B2296D6D18C95663
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131513.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Matthew Scott - Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131515.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:6BB49B0C8782533FE314874764FCA393DDC68364
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131516.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ magnet:?xt=urn:btih:15BB058893C362E43001AD1FAB2A829089D6B2BE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131517.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131519.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ magnet:?xt=urn:btih:D2F8D031003F1AE3052464ED8A6113BF2AE15F2D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131520.jpg" />
 </div>
 
 
@@ -367,7 +445,7 @@ magnet:?xt=urn:btih:975AE0CAC48FB3338CEF1E3D63DA7FF05C0A7FF7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131521.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ Tony Voltaggio - Scratchings (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131523.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ FleshTorture - The Stench Of Humanity (2011) [MP3|320 кб/с]<Brutal Death Grin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131524.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Eric B Turner - IT AIN'T EASY (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131525.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ magnet:?xt=urn:btih:1E4BB327A689AF248FFBF6D1BEF76A89C9DFA22E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131526.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Proud Outsiders - Anything To Offer? (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131527.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ magnet:?xt=urn:btih:10462367A50A6977D8783EA8686BBE5829E5A6E3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131529.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ magnet:?xt=urn:btih:20B1BAD08E483789A4B7CE144A73A950CBE06684
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131530.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131531.jpg" />
 </div>
 
 
@@ -590,89 +668,6 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:840CE3E0A7D31B1AFAA9F3B878868336F5748D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596108   (131532) от 30.12.2012
-
-Николай Раков | Охота на охотников [2012] [FB2,RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война с Империей гаюнов вступает в свою завершающую фазу. Генеральное сражение флотов может начаться в ближайшие несколько дней, но не принесет победы ни одной из сторон.
- Коварный враг начал свою охоту. Он ждет взаимного уничтожения противоборствующих сил, чтобы, добив ослабевших противников, захватить планеты и Союза, и Империи.
- Тайна становится известна Шаману, пытающемуся добыть секрет нуль-пространственной транспортировки. Враг не знает, что его замысел раскрыт.
- Превратить охотников в дичь. Нанести ему неожиданный смертельный удар, не оставив ни одного шанса на успех, - вот задача, поставленная перед собой группой диверсантов Управления специальных операций Вооруженных сил Союза.
- Нетрацы начинают охоту на охотников, раскрывая секрет врага и используя его в своих целях, применяя при этом знания и методы, свойственные только им, обладающим тайнами волновой энергетики.
- 1-2 книга Сборник | Антология - Серия "Боевая фантастика" издательства ЛенИздат 273 тома [2005-2012]Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50077569E6A72F20BE673B5C2E5A18F12BE9B6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682221   (131533) от 07.12.2023
-
-Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Servant's Diary (01:10)
-02. The Dark Wanderer (05:47)
-03. Tristram (04:56)
-04. The Desert Sands (04:56)(   Читать дальше...   )Жанр: Heavy, Post-Black MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682294   (131535) от 07.12.2023
-
-Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Give You My Love (4:40)
-02. Hey Blues Mama (3:30)
-03. Stovall's Farm (5:26)
-04. County Prison Blues (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
 ```
 
 

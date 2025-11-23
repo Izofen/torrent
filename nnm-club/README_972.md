@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:D62099D5123390BB4DDCA71AC9D274815F8DADF8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25621.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25621.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E42376D243A843EDE5E1CBA7D392CA2392D5C2E5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25622.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25622.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - One Shot '80 Volume 10 (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25623.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25623.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - One Shot '80 Volume 12 (2001) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25624.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25624.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - One Shot '80 Volume 9 (2000) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25625.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:646DA795E651697FE60D560CDC04567CFC15C624
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25626.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25626.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:F5C017BC36BA9C7D2B9B87DAB89A2533E4CE2DFC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25627.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25627.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Anastacia (Anastácia) - Not That Kind (2000) 25th Anniversary, 2025, Epic [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25628.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25628.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:5014ACC780233CF414419EE487FCB2C4C4A20C11
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25629.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organ
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25630.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - One Shot '80 Volume 11 (2001) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25631.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25631.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 134.0.6998.36 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25632.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25632.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2E1D03D1ECD0CB9295833D16324DF50D5157E7DF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25633.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25633.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Vocal Trance NNM 4 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25634.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25634.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25635.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25635.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DFD343330D3B9556DE00E2EDB815D9229F57640B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25636.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25636.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:4A99275652434AF0AF39F7878A6E0CEA7292949E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25637.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25637.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:55B56D9800DB6C1E48804D271C77B0CCA083085E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25638.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25638.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:29C79EF2931A9D5F69FE40C5CECFE5FAE61430E9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25639.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25639.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ ApowerREC 1.7.5.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25640.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25640.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25641.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25641.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Gekijouban Spy x Family Code: White | Spy x Family Code: White | Семья шп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25642.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25642.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:446E888566C87A63E7794CC206F2F7F32BEBC070
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25643.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25643.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:5E834F648D7D9083357998D38F5C3161DA3E9E90
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25644.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25645.jpg" />
 </div>
 
 

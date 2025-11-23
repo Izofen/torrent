@@ -6,7 +6,7 @@ Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_947.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sycamore Sisters - Out Of The Cage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_948.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bill Evans / Jim Hall - Waltz for Debby and Other Melodies (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_949.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A3ED80AD02E55939A4CB8EDC8714C3E4FCFD00CB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_950.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BB963B7453B791070C3771CDA11CFDF48C9B8C0C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_951.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mike Andersen - All Out Of Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_952.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Peter O'Mara - Avenue U (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_953.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sigma Wolf Initiative - Blues of the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_954.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:94DA8BD142C54F4C35BAFD67C091E3460EDDB0EC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_955.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Paradox - Mysterium (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_956.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_957.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_958.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:75E0AF06D66406B6912452CA211218DED6252AA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_959.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:75E0AF06D66406B6912452CA211218DED6252AA4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_960.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_961.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_962.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6802845A36344AD259BEAB02A3E822C6D8DA9BD7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_963.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:2D0F813EDFF90F9D1D835EA677FDBA707BD2E763
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_964.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A6F8427607D9F007B2FB37AF70ACE3A3FA4F1041
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_965.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_966.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:E234BC917A721916B307700E34DDC4D1B119BAC7
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_967.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1624736068B6A6D41E5512D446227C0AE2F82F5A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_968.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6499B50B41AE5A16CAA5B9F399726236EA3BFFC9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_969.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2BCF83858F8F5E1A927112DBB94EF3D32AD06808
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_970.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:59DAFF93BFC1FA1E839ED8706AE5B1D7B00B3B5A
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_971.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:B8708A149492E823C43DC5080A36BF0D8CA92DA6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_972.jpg" />
 </div>
 
 

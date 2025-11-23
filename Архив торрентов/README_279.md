@@ -6,7 +6,7 @@ OBS Studio 30.1.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61936.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61940.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:571E71995DF29497FE12446E588BAE58A296E963
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61969.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A59FEC6795E3CAC2ED2452D5991CB8DD6D4BCF35
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62001.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 12.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62007.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ O&O Defrag Professional 28.0 Build 10006 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62009.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ FBackup 9.9.860 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62018.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ FanControl V185 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62028.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62030.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Tixati 3.24 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62032.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FBFD917AC262D5762C9EAF0BF35EE4CC9AE0B09D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62039.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Psiphon 3 build 181 (21.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62044.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe Photoshop Express 13.2.394 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62046.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 11 Manager 1.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62063.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:C281C83BBA69A17F16D3EBA78D130D6F3EBF9E42
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62065.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62071.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Tor Browser Bundle 13.0.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62088.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Advanced Renamer 3.95 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62116.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Viber 22.3.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62129.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Wise Care 365 Pro 6.6.6.636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62130.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ SupRemo 4.11.0.2489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62132.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Opera One 108.0.5067.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62133.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ uTorrent Pro 3.6.0 Build 47028 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62137.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AMD Radeon Software Adrenalin Edition 24.3.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62140.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Foobar2000 2.1.3 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62144.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 10 Manager 3.9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62147.jpg" />
 </div>
 
 

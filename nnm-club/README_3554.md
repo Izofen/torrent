@@ -1,3 +1,75 @@
+###  Публикация: 1712627   (112086) от 03.04.2024
+
+Дорога с односторонним движением / One Way Street (1950) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укравший деньги мафии доктор вместе со своей подружкой направляется в небольшую деревушку в Мексике.Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, триллер, драма, криминалРежиссер: Уго ФрегонезеАктеры: Джеймс Мейсон, Марта Торен, Дэн Дьюриа, Бэзил Руисдейл, Уильям Конрад, Родольфо Акоста, Кинг Донован, Роберт Эспиноза, Тито Ренальдо, Маргарито ЛунаПеревод: Авторский (Вадим Белов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6189630CE1E39157F776EEC8EE102D74214B5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712797   (112087) от 03.04.2024
+
+Газета | Аргументы и Факты. Москва №14 (3-9 апреля 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A95F5BF9A9C96D24946C2EA1559202501E3F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712730   (112088) от 03.04.2024
+
+Антон Леонтьев | Восьмой смертный грех (2022) [MP3, Евгений Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кирилл Терц, спившаяся кинозвезда, решил покинуть этот бренный мир. Он уже пришел в заброшенный порт с твердым намерением утопиться, но его планам помешали какие-то таинственные личности, увозившие на яхте… маленькую девочку. Кирилл стал свидетелем похищения ребенка! Это его до крайности заинтриговало… А когда он узнал, что украдена дочка его коллеги Денизы Ровиго, (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 14:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8032C1C036978D5A1909222EDC147848CFB00DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712764   (112089) от 03.04.2024
 
 Skype 8.116.0.213 [Multi/Ru]
@@ -6,7 +78,7 @@ Skype 8.116.0.213 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112089.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E02B51364405174C9B5281A70CDA5BB3A5FC53B9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112090.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:72D6965CDCCD8377261C1364347D0E9A5A6011A6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112091.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:E15EB660B90CBDD0C241C70CBACD9C07280C4C02
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112092.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Kelly Holbert - Early Dog (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112093.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ At The Cross - Sword Of The Spirit (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112094.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:873D7DC015477446E3B5DD8F92752B1D67DF9922
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112095.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:B734160045544502E74EF3BDE69093BF75595964
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112096.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:F77B755CCC3DE6A3F41A87146B46D5963BAAED22
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112097.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:F40AEB61701FDE1D8A3704D452AA0E844BF43A8E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112098.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:1FD1FCB5E97C8E55CC7ABD734597D0A4A2FB61C2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112099.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Text Edit Plus 14.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112100.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:18DAE12320EAFBC40BF7B0E6E4CE82708AF422CA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112101.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:6CA6955DB952CE4E2E2601B22C92BD8B1590210E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112102.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:440AB8B5B4D0899E300379268F489EAEBA2CABC3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112103.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Perfectly Clear WorkBench 4.6.0.2650 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112104.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:97A4ED157CDFF071997141B3B55ECD69136B21BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112105.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Korolova - Live @ Captive Soul, Centrum Eventowe Butelkownia Warsaw (2024-03-16)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112106.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:8D264DEB7D1D6D8D98840C0CA7AF7656D68B6282
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112107.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:768FAF0AA7BA8EF24D62A502011597154152A432
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112108.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:FB44EA802D7825981BB9715177D653F522CA170D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112109.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ QOwnNotes 24.4.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112110.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Image Uploader 1.4.0 Build 5137 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112111.jpg" />
 </div>
 
 
@@ -557,78 +629,6 @@ Image Uploader - бесплатная программа для Windows c отк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B52EBBABDA14DE86BDCF199BF5612F48A9FDB62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712745   (112112) от 03.04.2024
-
-Firefox Browser 124.0.2 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A26E323BFEB80C6BDF5C6E820AF3296198577E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712614   (112113) от 03.04.2024
-
-Журнал | Сабрина. Спецвыпуск №2 Вяжем без швов (2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112113.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FE30519C9E325E98A81320757C5BD8F8A29917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712677   (112114) от 03.04.2024
-
-YT Downloader 9.7.0 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112114.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F370BD2D6185E51A33A9AC73E8D4C3CA4A288DD7
 ```
 
 

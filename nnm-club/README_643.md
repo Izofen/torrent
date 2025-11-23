@@ -6,7 +6,7 @@ Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17033.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17034.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17035.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17036.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17036.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:1BCE42A9056C015220ABB58A7145C1C968D8A69E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17037.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17038.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17039.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17040.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17041.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17042.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17043.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:CA75734BCC7A92A10E4DDDD965C4910AFF1DBE9F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17044.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:570DD22C781AFA17760886394235345F7584093F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17045.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ BitTorrent 7.11.0.47143 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17046.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17047.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:9273FBB61DAB4B7EB3845A02E248110834DED1D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17048.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:7502E601EAF0F8B4C2A6B7186137882215ED97C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17049.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MediaHuman YouTube Downloader 3.9.12 (2405) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17050.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17051.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17052.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Open Shell (Classic Shell) 4.4.196 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17053.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17054.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17055.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17056.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2AACF12EDDBE4147C5BD2C674DDE008A6A5091B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17057.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17058.jpg" />
 </div>
 
 

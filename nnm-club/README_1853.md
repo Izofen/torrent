@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:BEE59F0078C2512A474BA12A0B8F988156D05F3C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48534.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:13DDAE22B58FE36D9F92DCB4862A66AC4309FD1A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48535.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1FB3E745B51771A6B3E93D99F10624CBC2F47CD7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48536.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3523A7CA8382CB642033CE29F065178F43221F61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48537.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C0007A7C0149F291905160CD360E01FBB4E49894
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48538.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Adobe Acrobat Pro 2024.002.20965 (x32-x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48539.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A3BC90B6B3AF4E9503225CB4C517A26DA077F788
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48540.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:17A81A34896288873C64C6EE41FECC08A52E590A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48541.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:24F18B4D732C7F934D744B71FF0C6239EC203721
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48542.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8CB4E437DBC156AD89E08C99630CF1C834C29117
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48543.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ YT Downloader 9.9.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48544.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Pop Summer Seasons (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48545.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:C2847C35E983972A9376D031C0192071793CF3C2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48546.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:249FB08EE3481B12808EB1E8A873F872C17C8A2E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48547.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48548.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D81C164D13C6C69417A77CA377C2C963DB0CB205
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48549.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:3D349BE8AB6B4000FEE2E2D470F5411A7A29F254
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48550.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ JustAxe (2024) [Ru/En] (1.00) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48551.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Disco Style Session (2024) [MP3|320 Kbps] <Disco, Dance, Eurodance>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48552.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ eM Client Pro 10.0.3351.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48553.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Disco Friday (2024) [MP3|320 Kbps] <Disco, Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48554.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wise Care 365 Pro 6.7.5.650 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48555.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:CFC74EB78CCB704F6579BD326F25CD355794B5EA
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48556.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - 00s Stars (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48557.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Over Islands (2024) [Multi] (2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48558.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ File & Image Uploader 8.5.1 Portable + Skins [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68495.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Coolutils Total Mail Converter 6.2.0.399 RePack (& Portable) by elchupacabra [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70700.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ProxyCap 5.02 [Английский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76223.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vidalia 2.2.35-6 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76844.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser 143.0.4 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94617.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Firefox Browser 143.0.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94619.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ By Click Downloader Premium 2.4.26 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94625.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Telegram Desktop 6.1.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100903.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Floorp Browser 12.2.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100979.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MAX Desktop 25.12.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100994.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Internet Download Manager 6.42 Build 49 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101007.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Internet Download Manager 6.42 Build 49 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101011.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MAX Desktop 25.12.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101607.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Internet Download Manager 6.42 Build 50 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101618.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Internet Download Manager 6.42 Build 49 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101628.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 02.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101633.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Any Video Downloader Pro 9.6.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101638.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Internet Download Manager 6.42 Build 50 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101639.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) Portable b
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103783.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Tor Browser Bundle 14.5.8 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104365.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Chromium 141.0.7390.66 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104472.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Internet Download Manager 6.42 Build 50 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104482.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:5463004CB0BE2AA788083A8CA6CD32CA17C89DBE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104484.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104486.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ RSS Guard 4.7.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106111.jpg" />
 </div>
 
 

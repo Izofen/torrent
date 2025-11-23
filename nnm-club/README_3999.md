@@ -1,3 +1,77 @@
+###  Публикация: 1690804   (123656) от 09.01.2024
+
+Findroid | Владыка металла (Книга 2) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123656.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Владыка металла» – роман, вторая книга одноименного цикла, жанр боевое фэнтези, темное фэнтези, РеалРПГ.
+
+Дрейк Арс всю свою жизнь прожил в небольшом городке, мечтая однажды отправиться в столицу и вступить в один из кланов. Но мечта исполнилась совсем не так как он воображал. Странная находка втягивает юношу в круговорот смертей, предательств и заговоров. Теперь, (   Читать дальше...   )Жанр: Боевое фэнтези, РеалРПГ, Темное фэнтезиИздательство: ИДДКПродолжительность: 08:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DD25E4ED176466CAB9EB9172BE7C5B7EFFAB27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690927   (123657) от 09.01.2024
+
+FreeFileSync 13.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123657.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A9FED6D600D4A8F63F2F0AD9000042C40B4922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690933   (123658) от 09.01.2024
+
+Роберт Шекли | Предварительный просмотр (2023) [MP3, Олег Булдаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утром Питер Гонориус получил уведомление от местного Отдела родственных уз, в котором требовалось, чтобы он обязательно заключил брак. Теперь ему необходимо найти себе жену как можно быстрее, чтобы избежать тюремного заключения за неисполнение этого.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF479A5C2137F389F0009B3E2A3BC456D346D23B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690683   (123659) от 09.01.2024
 
 Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <Pop, Soft Rock, Pop Rock>
@@ -6,7 +80,7 @@ Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <P
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123659.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:93997413B9B451A1845CFAD6EEECFAB7D0AD6564
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123660.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|48
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123661.jpg" />
 </div>
 
 
@@ -84,7 +158,7 @@ magnet:?xt=urn:btih:241C965C0733BB49B8206AFBBC13D3DD4B1831A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123662.jpg" />
 </div>
 
 
@@ -111,7 +185,7 @@ magnet:?xt=urn:btih:F3248CFFAECE16566AB45741107D4F5438A79501
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123663.jpg" />
 </div>
 
 
@@ -135,7 +209,7 @@ magnet:?xt=urn:btih:FE33C1CC5848B509F0DD810D02FA4E9533DBC8AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123664.jpg" />
 </div>
 
 
@@ -162,7 +236,7 @@ Fort Firewall 3.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123665.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123666.jpg" />
 </div>
 
 
@@ -213,7 +287,7 @@ Q-Dir 11.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123667.jpg" />
 </div>
 
 
@@ -238,7 +312,7 @@ magnet:?xt=urn:btih:578EC2C34804BA28D22E46FB25DB33F1F57AE302
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123668.jpg" />
 </div>
 
 
@@ -262,7 +336,7 @@ magnet:?xt=urn:btih:E155A4DA92E08CF8711CF3B67F3CD0E0EE4C63FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123669.jpg" />
 </div>
 
 
@@ -286,7 +360,7 @@ Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123670.jpg" />
 </div>
 
 
@@ -313,7 +387,7 @@ magnet:?xt=urn:btih:C5800C29C13D265C71A92984EF517E28614058F3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123671.jpg" />
 </div>
 
 
@@ -337,7 +411,7 @@ Suffocation - Hymns from the Apocrypha (2023) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123672.jpg" />
 </div>
 
 
@@ -364,7 +438,7 @@ VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123673.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ Wise Disk Cleaner 11.0.7.821 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123674.jpg" />
 </div>
 
 
@@ -415,7 +489,7 @@ magnet:?xt=urn:btih:C764BB3ED4A097655ABB6E9DDB6FE25DC801416C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123675.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ magnet:?xt=urn:btih:6A89867FEA5F09203050DBDB7F77E0CBAC90A20F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123676.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:813411166C4791740340E9431E981BBEFACE90B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123677.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ Multi Commander Full Edition 13.4 Build 2977 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123678.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123679.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ magnet:?xt=urn:btih:495DD105ABC65AEF6BDDCED3D53AA032C9A1823E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123680.jpg" />
 </div>
 
 
@@ -563,7 +637,7 @@ XnView MP 1.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123681.jpg" />
 </div>
 
 
@@ -574,81 +648,6 @@ XnView MP - мощное многофункциональное приложен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2820B93C8960DC1985065240A9F1DE0ABD8E089E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690806   (123682) от 09.01.2024
-
-Сергей Карелин, Виталий Останин | Мастер Порталов (Книга 2) (2024) [MP3, Вадим Ерофеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кого-то сбивает автобус, и после смерти он попадает в фентези с гаремом и эльфийками. Кого-то богиня призывает, чтобы спасти всех от Темного Властелина. А у меня «просто» пробудилось древнее наследие и я научился открывать порталы. Да, в другой мир.
-
-Вроде бы и этого достаточно, чтобы с ума сойти, так еще и планетка после какого-то Армагеддца, мутанты со всех сторон, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтезиИздательство: ЛитРес, АвторПродолжительность: 08:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA282769C4AE037D3B6D8D2CD3BA8950E2B6E083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690803   (123683) от 09.01.2024
-
-Патрик Кинг | Негласные правила общения и этикета (2023) [MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорите «спасибо» и «пожалуйста». Не стойте как столб у двери. Поздоровайтесь и улыбнитесь. Не спрашивайте про зарплату. Это негласные социальные нормы, и соблюдать их не так уж и сложно, правда? Если вы их знаете, конечно.
-Хотите узнать, какие социальные ошибки вы совершали и как их исправить? Тогда эта книга для вас. Перед вами справочник для жизни в современном (   Читать дальше...   )Жанр: ПсихологияИздательство: БиблосПродолжительность: 04:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD24BDEF29D4A5EBEF7DCE067BF2FA0F7398030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690868   (123684) от 09.01.2024
-
-Firefox Browser 121.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18405D7E81D81D4AF661C001CA75ABB1784CBA52
 ```
 
 

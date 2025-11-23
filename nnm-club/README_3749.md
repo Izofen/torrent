@@ -1,3 +1,81 @@
+###  Публикация: 1700362   (117156) от 16.02.2024
+
+GraphicConverter 12 for Mac 12.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117156.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AC54EAE48089DD2C9114B31426995ACCACAD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700443   (117157) от 16.02.2024
+
+Von Hertzen Brothers - Live At Tavastia (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Day Of Reckoning
+02 - Blue Forest
+03 - The Promise
+04 - Frozen Butterflies(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23949EF5745A4F5DD5B17BCB93154CA3F4DC5C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700287   (117158) от 16.02.2024
+
+Art Of Anarchy - Let There Be Anarchy (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Hard
+02. Echo Your Madness
+03. Vilified
+04. Bridge Of Tomorrow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275041633601C11D6B92A7A45493A8CA24782329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700351   (117159) от 16.02.2024
 
 И.В. Корнаухова | Русские богатыри. Былины и героические сказки (2005) [MP3, Наталия Минаева и др.]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117159.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ UMC - CHAPTER 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117160.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:7A8572D414A6DC34D1427A084BB779B5D91B1F8C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117161.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117162.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:D178B08EBD186A0D595DA057D04D4C4480DFDC59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117163.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ UMC - CHAPTER 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117164.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ magnet:?xt=urn:btih:91D52E377D6586EFBDACC9FCDA6796004D87E844
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117165.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ UMC - CHAPTER 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117166.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117167.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ Witchsnake - Deathcult of the Snake (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117168.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ magnet:?xt=urn:btih:605E95592167EF09BCEB71FB4E47364C3CE30AAC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117169.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ Illumishade - Eclyptic: Wake of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117170.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ ProFind for Mac 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117171.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ magnet:?xt=urn:btih:5155B1FB9E669B61F7BC6BFFFC9684B39EB2514C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117172.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117173.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117174.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117175.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117176.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ magnet:?xt=urn:btih:5DE0C8BF824A4159BCC2E70816CFF11EB7A4D4ED
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117177.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Illumishade - Another Side of You (2024) [MP3|320 Kbps] <Symphonic Metal, Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117178.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Sante DICOM Editor 10.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117179.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Monkey's Audio 10.50 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117180.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ MiniMeters for Mac 0.8.17 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117181.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ MiniMeters - это простое автономное приложение д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDCC02E47C1E71625597D8CE131807B42757982
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699838   (117182) от 16.02.2024
-
-Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Woman, Stop Whatcha Doin' [00:04:18]
-02 - I Only Need a Next Time [00:03:58]
-03 - My Serene Coleen [00:03:22]
-04 - Lookin' for a Better Way [00:03:09](   Читать дальше...   )Жанр: blues rock, Pop RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81ED79118929697F51163B94B507A463C8656053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700226   (117183) от 16.02.2024
-
-TablePlus 5.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управление базой данных стало проще
-Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837CF58CC101AA4DF8704DF6A492CCE8A2DBEC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700069   (117184) от 16.02.2024
-
-VA - 10 Years Of Suanda Music - Eximinds (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eximinds - Solveig's Song (Extended Mix) [5:14]
-02. Eximinds & Proyal - Mood (Extended Mix) [5:07]
-03. Eximinds & Golax - Horizon (Extended Mix) [4:42]
-04. Eximinds - Sundown (Extended Mix) [4:49](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85CF7B72590BA76533164D4375EB3AF20F4FAAA
 ```
 
 

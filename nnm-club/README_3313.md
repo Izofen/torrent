@@ -1,3 +1,80 @@
+###  Публикация: 1740589   (105820) от 02.08.2024
+
+Рамазан (1933) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105820.jpg" />
+</div>
+
+
+###  Подробнее
+
+О росте сознания бедняка узбека в условиях борьбы с религиозными предрассудками и классовыми врагами. Узбекистан начала 1930-х годов. Бай, мулла и замаскировавшийся враг пытаются использовать мусульманский праздник рамазан, чтобы сорвать работу на хлопковых полях...
+
+Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта «Культура.РФ» (   Читать дальше...   )Производство: СССР / УзбекгоскиноЖанр: драма, немое киноРежиссер: Наби ГаниевАктеры: Эргаш Хамраев, Р. АхмедовСубтитры: русские (интертитры)Продолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450FC129973E71FA1D50DE30648086F98D0B0FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740378   (105821) от 02.08.2024
+
+Неспокойной ночи / Nightman (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасыРежиссер: Мелани ДеллойАктеры: Зара Девлин, Оуэн Даффи, Марк Хуберман, Джейс Бэйли Кеннеди, Миб Леонард, Миб Магуайр, Элизабет Мойнихан, Айн Ни ЛаогэрПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740596   (105822) от 02.08.2024
+
+The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Edin [6:47]
+02 - Pentagrams [6:26]
+03 - Sighommi [2:55]
+04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CA35FF08763E2837D90F894BFB6C2C38F5BBB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740482   (105823) от 02.08.2024
 
 Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Gothic, Glam Rock>
@@ -6,7 +83,7 @@ Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105823.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Los Lonely Boys - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105824.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ magnet:?xt=urn:btih:70E9BBDADF2821D5C5A13F27FD742A266D8CBEE5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105825.jpg" />
 </div>
 
 
@@ -85,7 +162,7 @@ Blind Guardian - Somewhere Far Beyond (Live at Rock Hard Festival 2022) (2024) [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105826.jpg" />
 </div>
 
 
@@ -112,7 +189,7 @@ magnet:?xt=urn:btih:21C4B4657C54FFBDF1640313798D23016B327686
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105827.jpg" />
 </div>
 
 
@@ -138,7 +215,7 @@ aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105828.jpg" />
 </div>
 
 
@@ -165,7 +242,7 @@ magnet:?xt=urn:btih:3F08588075D7E66DF25A580D570AF50FD9FB9AF1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105829.jpg" />
 </div>
 
 
@@ -189,7 +266,7 @@ Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105830.jpg" />
 </div>
 
 
@@ -216,7 +293,7 @@ magnet:?xt=urn:btih:EAC1DCDDB612BAFFAFF5D180FF413C324F3D4C14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105831.jpg" />
 </div>
 
 
@@ -242,7 +319,7 @@ magnet:?xt=urn:btih:90695E3A577599D3CFE50BA313310B310AF8D165
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105832.jpg" />
 </div>
 
 
@@ -266,7 +343,7 @@ magnet:?xt=urn:btih:ABCEF04765201A27C1306A848103B8FA3DCAC271
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105833.jpg" />
 </div>
 
 
@@ -291,7 +368,7 @@ Blacklist - With Murderous Intent (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105834.jpg" />
 </div>
 
 
@@ -318,7 +395,7 @@ magnet:?xt=urn:btih:44AD54AABB4DBBE551F122978C149571DEA03533
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105835.jpg" />
 </div>
 
 
@@ -342,7 +419,7 @@ magnet:?xt=urn:btih:96CF663A45BA4A0EBA84F02D1970BA2E21917DD2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105836.jpg" />
 </div>
 
 
@@ -369,7 +446,7 @@ magnet:?xt=urn:btih:9EAEC26086C9999227AA77FE03B8ACB2111D26D8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105837.jpg" />
 </div>
 
 
@@ -393,7 +470,7 @@ magnet:?xt=urn:btih:975C79F8053BC694747907881943F89727104338
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105838.jpg" />
 </div>
 
 
@@ -417,7 +494,7 @@ VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105839.jpg" />
 </div>
 
 
@@ -444,7 +521,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 05 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105840.jpg" />
 </div>
 
 
@@ -471,7 +548,7 @@ magnet:?xt=urn:btih:B8F7FC4BFCEFBD2361F9C512B5FA888A2D28BF38
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105841.jpg" />
 </div>
 
 
@@ -495,7 +572,7 @@ VA - EDM Dance Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105842.jpg" />
 </div>
 
 
@@ -522,7 +599,7 @@ magnet:?xt=urn:btih:BDFE00907D110D249655B6D58EE7E368C30381BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105843.jpg" />
 </div>
 
 
@@ -546,7 +623,7 @@ VA - Electronica Confessions, Vol. 10 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105844.jpg" />
 </div>
 
 
@@ -573,7 +650,7 @@ VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105845.jpg" />
 </div>
 
 
@@ -587,78 +664,6 @@ VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E1337E4C6DDD23993DE59A3A2C5C733C7D2734D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740500   (105846) от 02.08.2024
-
-Журнал | Главбух №15 (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ECF6FB1395074F6B174343109D88B215576636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740498   (105847) от 02.08.2024
-
-Журнал | Главбух №14 (июль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42383541A1F3F566E277D07DFF3C37AD6AEC9A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740380   (105848) от 02.08.2024
-
-Неспокойной ночи / Nightman (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасыРежиссер: Мелани ДеллойАктеры: Зара Девлин, Оуэн Даффи, Марк Хуберман, Джейс Бэйли Кеннеди, Миб Леонард, Миб Магуайр, Элизабет Мойнихан, Айн Ни ЛаогэрПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7545.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7546.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9BC7D236B2694423574BE505D7926472B0D995FF
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7547.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:48044CA416730AD9B9D8450F7AFC4965ACB72E41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7548.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7549.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:18E7E4D265CA378767DFE6D6CE0FE28822006635
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7551.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7552.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3DDA1A7524931A8911F724206EA5FE4833B24FB2
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7553.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7554.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7555.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:6579C53842FE5F99363E43F76322D1D03D72A665
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7557.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7558.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D6E2B9D56001692E16D547D3DC781EA989BA44AE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7559.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7560.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:34AA0670CDCB1A53543C1455332D8C104793A720
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7561.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Halestorm - Дискография (19 releases) (1997-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7562.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4A473361BBB8B32C810BBF4223D057B0C8145849
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7563.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7564.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7565.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7566.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7567.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7568.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7569.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:BBC7276A993154CC66C0678C21B50301827C2ADB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7570.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:24B1F78075E80932A5A4D2FD6507CF7C806BB99C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7571.jpg" />
 </div>
 
 

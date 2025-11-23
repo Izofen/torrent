@@ -6,7 +6,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_591.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_615.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_763.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_858.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_864.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1120.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1284.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1410.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1412.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1469.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1586.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1950.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1988.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1995.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2007.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2110.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2141.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2144.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2451.jpg" />
 </div>
 
 

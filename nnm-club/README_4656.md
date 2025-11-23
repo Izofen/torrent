@@ -1,3 +1,151 @@
+###  Публикация: 1348048   (144302) от 27.12.2019
+
+Дитя робота / I Am Mother (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144302.jpg" />
+</div>
+
+
+###  Подробнее
+
+После глобального катаклизма человечество вымирает. В подземном бункере автоматически активизируется аварийная программа, и робот-гуманоид «Мать» выращивает из эмбриона человеческого ребенка. Девушка, воспитанная под бережным присмотром «Матери», никогда не видела ни поверхности Земли, ни других людей. Но однажды ее мир переворачивается, когда на пороге убежища появляется (   Читать дальше...   )Производство: Австралия / The Penguin Empire, Southern Light Films, Rhea Films (II)Жанр: Ужасы, фантастика, триллер, драмаРежиссер: Грант СпьюторАктеры: Роуз Бирн, Хилари Суэнк, Клара Ругор, Люк Хокер, Тейлия Стурзэйкер, Джейкоб Нолан, Хэйзел Сэндери, Саммер Лентон, Мэдди ЛентонПеревод: ДублированныйСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D94B85573F052D94AA73E2A835073CD181E7DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589820   (144303) от 16.12.2012
+
+Универсальный солдат 4 / Universal Soldier: Day of Reckoning (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее время. Программа «Unisol» по-прежнему актуальна и снова введена в эксплуатацию. Давним и непримиримым врагам времён Вьетнамской войны Эндрю Скотту и Люку Деверо суждено встретиться в очередной раз, дабы продолжить своё извечное противостояние и нескончаемую борьбу. Однако, новые опасности и трудности заставляют двух солдат на время объединиться пред лицом (   Читать дальше...   )Производство: CША / Foresight Unlimited, Signature Pictures, Baumgarten ManagementЖанр: Фантастика, БоевикРежиссер: Джон ХайамсАктеры: Жан-Клод Ван Дамм, Дольф Лундгрен, Скотт Эдкинс, Кристофер Ван Варенберг, Дэвид Дженсен, Остин Нолти, Рой Джонс мл., Мария Боннер, Рас Блэквелл, Джеймс ДюМонтПеревод: Профессиональный (полное дублирование)Субтитры: ОтсутствуютПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AB24EFEF016453F6003EACADBEEB1B2FA8A685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519923   (144304) от 26.12.2021
+
+Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геймдизайнер Томас Андерсон сделал себе имя работой над трилогией игр «Матрица». Хотя окружающий мир периодически даёт сбои и обнажает свою истинную сущность, бывший Нео исправно посещает психотерапевта, принимает пилюли и практически убедил себя, что всё это — игра его воображения. Но однажды на него выходит хакерша Багз и предлагает снова следовать за белым кроликом.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: Фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (full, SDH), украинские (Forced), английские (full, SDH)Продолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91367FE10E7FA4B4A18802C9ACBF05B4DCC44755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435514   (144305) от 28.12.2020
+
+VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новинки и немного эксклюзива вы услышите в новых треках сборника "Deep Glow Electro House". Deep House и вправду можно слушать часами напролет, за чашкой ароматного кофе наблюдая из окна жизнь ночного мегаполиса в свете неоновой рекламы и ощущая переплетение звуков города в которые вливаются эмоций людей.001. Renoa - Two Beers
+002. Deep Couture - In The Music
+003. Scot & Millfield - Get The Beat
+004. Bruce Leroys - Cassette Tape(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678589   (144306) от 22.11.2023
+
+Dropshare 5 v.5.42 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144306.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF3F081AEF35B7789D962381D02A9E51CA75ECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969813   (144307) от 28.12.2015
+
+Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Columbia Pictures, LStar Capital, Sony Pictures Animation, Sony Pictures Digital, Sony Pictures ImageworksЖанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Генндий ТартаковскийПерсонажи: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский (Forced, iTunes), украинский (iTunes), английский (SDH, Commentary)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAD427C74241C8CBCA7681DDF9F0939A449E0E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195153   (144309) от 28.12.2017
 
 В.М. Лурье | Русское православие между Киевом и Москвой (2009) [PDF]
@@ -6,7 +154,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144309.jpg" />
 </div>
 
 
@@ -30,7 +178,7 @@ magnet:?xt=urn:btih:D37E0C2724F444CDBF763BC9F17E1A57DDBB6B72
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144310.jpg" />
 </div>
 
 
@@ -54,7 +202,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144311.jpg" />
 </div>
 
 
@@ -78,7 +226,7 @@ NCH DreamPlan Plus 8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144312.jpg" />
 </div>
 
 
@@ -105,7 +253,7 @@ magnet:?xt=urn:btih:7136F2DFD332F431393F430EFE29084A8717B1FD
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144313.jpg" />
 </div>
 
 
@@ -131,7 +279,7 @@ VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Cla
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144314.jpg" />
 </div>
 
 
@@ -158,7 +306,7 @@ magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144315.jpg" />
 </div>
 
 
@@ -191,7 +339,7 @@ magnet:?xt=urn:btih:DEDB3DA05DA7C2564528583DF22BBBB1C2200EDE
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144316.jpg" />
 </div>
 
 
@@ -215,7 +363,7 @@ Process Lasso Pro 9.0.0.548 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144318.jpg" />
 </div>
 
 
@@ -239,7 +387,7 @@ Lindi Ortega (Линди Ортега) - Fall From Grace (2007) Last Gang Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144319.jpg" />
 </div>
 
 
@@ -266,7 +414,7 @@ magnet:?xt=urn:btih:3C0EE9CF47215D66DDA5FE799B496EC11CF0E0C4
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144320.jpg" />
 </div>
 
 
@@ -291,7 +439,7 @@ Adobe Flash Player 20.0.0.267 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144321.jpg" />
 </div>
 
 
@@ -315,7 +463,7 @@ magnet:?xt=urn:btih:0DD1B858D5331BF1CC3A97AAA91D1E1A64EEF680
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144323.jpg" />
 </div>
 
 
@@ -340,7 +488,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -367,7 +515,7 @@ Maxthon Browser 5.1.5.200 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144325.jpg" />
 </div>
 
 
@@ -392,7 +540,7 @@ magnet:?xt=urn:btih:226A0C77B4A3F0AD1AD00A0D4F95E6F0CB4E4A8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144326.jpg" />
 </div>
 
 
@@ -416,7 +564,7 @@ BatchOutput PDF 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144327.jpg" />
 </div>
 
 
@@ -441,7 +589,7 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144328.jpg" />
 </div>
 
 
@@ -468,7 +616,7 @@ magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144329.jpg" />
 </div>
 
 
@@ -492,7 +640,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru OST (2019) [FL
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144330.jpg" />
 </div>
 
 
@@ -503,162 +651,6 @@ Shinchou Yuusha ~Kono Yuusha ga Ore TUEEE Kuse ni Shinchou Sugiru~ OPТип из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CE9BA3AD69328E2642252A22940B3ACEA8E9AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272429   (144331) от 27.12.2018
-
-Журнал | Дом №1 (январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Дом" - помощник тем, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья — коттеджей, дачных и садовых домиков, а также надворных построек.Жанр: Дизайн, ремонт. строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC54875422DC3DD74F160CFD41CB9D552D1C67FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435375   (144332) от 28.12.2020
-
-VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда наступает время морозных вьюг и долгих вечеров, пора включить музыку сборника «Feel The Nature». Спокойные, умиротворяющие и расслабляющие мелодии помогут встретить зимнюю грусть с улыбкой и насладиться этим замечательным временем года. Пора завернуться в плед, налить горячего какао и послушать эту приятную музыку.001. Max D Milford - Movements
-002. Shuta Yasukochi - Floating
-003. Gleezy - June Chat
-004. Logic Moon - Momentum(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 08:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D0A8919876CE15CB823063B2A711F3E9FA5BBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590101   (144333) от 16.12.2012
-
-Извлечение / Extracted (2012) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириПродюсер: Гэбриел Кауэн, Джон Суитц, Керри Джонсон БэйлиАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Двухголосый закадровый любительский +  одноголосый закадровый любительскийЯзык субтитров: Английский, Датский,Финский, Шведский, НорвежскийПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087535   (144334) от 28.12.2016
-
-Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Disco, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drinkee  (04:59)
-02. Awoo (03:17)
-03. Matadora (04:02)
-04. Hey Lion (03:29)(   Читать дальше...   )Жанр: Nu-Disco, ElectronicПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195254   (144335) от 28.12.2017
-
-Lindi Ortega (Линди Ортега) - The Taste Of Forbidden Fruit (2001) Last Gang Records, Canada [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery My Love 3:31
-02. Nothing At All 4:20
-03. Coffee Shops 4:28
-04. Sweet Jezebel 4:49(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, IndieПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE2C0A7976CF3EA8D9F81736337FA544FD27624
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678704   (144336) от 22.11.2023
-
-Juggernaut - Ground Zero Conflict (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking Life To Save Life (05:23)
-02. Shadows Of Reality (05:15)
-03. Free Words To Fight (03:46)
-04. Lost In Collapse (04:39)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B224FCDB9EFEA13C348D5889B41019E36626426B
 ```
 
 

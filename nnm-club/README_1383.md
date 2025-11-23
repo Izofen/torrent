@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36311.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36312.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftMaker Office Professional 2024 rev. S1220.1116 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36313.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:59C744E98E82CBBAF1FB2B034D47765B7D1F6B8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36314.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A829AA2950EFDE359B32C309622E9C6B171EFF91
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36315.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36316.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36317.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1A9AED254C46EA5F727287057DEE5B50AB6453F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36318.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A4A126A82F02A34D208DF60AC1463F5CE8796108
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36319.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:70B35A0C0F8C867FFF9E8E56BE9F131B03FFE7DF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36320.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36321.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:6C110D8A8A7CED83D071BD88389AC38DBAD2481E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36322.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:34BC9CD77B801E8B22A4C435FBF315C4C9BC8B73
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36323.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36324.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SolidWorks 2024 SP5.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36325.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:54B4F0A49617AA767EADE862E3B8D5FD1A1E7477
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36326.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Strategic Command WWII: World at War (2018) [Multi] (1.20.00) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36327.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36328.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:44DC31460E766854CE3D343A70A4DFFE654B11CD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36329.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:647672A18152CDB369686E4964C0EABA649F56DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36330.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6FF3B6468279299DA46B6E1D116D3479B7E49126
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36331.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:EE78EFE999FD2D26ECCCC0D9B7152D4B83220654
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36332.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0BD75D45CFE30CBF2926B97E92D83A57DAB0659D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36333.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4E0E0435075939EDE901968E6D0EE86D1EAEE302
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36334.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:ED221413F39165B06591BFA2C7CDE04160B92444
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36335.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:1B936033428C3D5E4006BAE8616793BA1FBAFDEB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36336.jpg" />
 </div>
 
 

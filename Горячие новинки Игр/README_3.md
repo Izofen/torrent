@@ -6,7 +6,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Neyyah (2025) [Ru/Multi] (Build 19847679) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4487.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4488.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4495.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4520.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rogue Hex (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4570.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4576.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Dark Queen of Mortholme (2025) [Ru/Multi] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4579.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4580.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4605.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4621.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack seleZen [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4626.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hell is Us (2025) [Ru/Multi] (build 19773152) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4724.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4746.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ INCISION (2022) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4852.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5431.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5574.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5593.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5618.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ World War Z VR (2025) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7173.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29083.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lord Ambermaze (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91149.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91167.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91184.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wobbly Life (2020) [Ru/Multi] (1.0.0.2-17415dd4e2) Repack FitGirl [Game & Soundt
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91185.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91186.jpg" />
 </div>
 
 

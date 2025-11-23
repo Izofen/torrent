@@ -1,3 +1,77 @@
+###  Публикация: 1599943   (159444) от 25.12.2022
+
+PreviewMarkdown 1.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предварительный просмотр Easy Markdown QuickLook и миниатюры значков. PreviewMarkdown обеспечивает предварительный просмотр файлов QuickLook и миниатюры значков файлов для документов, созданных с использованием популярного формата разметки markdown.
+Приложение предоставляет два расширения приложения: Previewer и Thumbnailer, которые можно просматривать и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022. Tony SmithПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D345C89CC0444460F4885070DCBBDA84F50B413D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675761   (159445) от 10.11.2023
+
+Adobe Acrobat Reader 2023.006.20380.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA70F2B3294B171844411FB60049D79C4166BFA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599936   (159446) от 25.12.2022
+
+Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0626E4398796A071C0753DBB7A20F4C6D1E10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675860   (159451) от 10.11.2023
 
 MCS Drivers Disk 23.9.20.2100 [Multi/Ru]
@@ -6,7 +80,7 @@ MCS Drivers Disk 23.9.20.2100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159451.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Process Lasso Pro 12.4.2.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159456.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ AOMEI Partition Assistant Technician Edition 10.2.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159472.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Total Commander 11.02 Extended 23.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159493.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ OpenVPN 2.6.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159497.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ PotPlayer 231110 (1.7.22037) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159505.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Blue Iris 5.3.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159507.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ Windows 11 Manager 1.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159508.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ MemTest86 10.2 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159528.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ Ventoy 1.0.86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159529.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ darktable 4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159585.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ SlimBrowser 17.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159586.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ magnet:?xt=urn:btih:9BCFA686EB944E8A3F4E175B7F3BEEEC92DCBC9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159587.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ Privacy Eraser Free 5.31.0 Build 4400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159603.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ magnet:?xt=urn:btih:1276100E831158D0B7AFD025944E92D5B87B6AE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159674.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ magnet:?xt=urn:btih:2F734EC5CC37255FD8DA781CC0BAD03DAE783F06
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159676.jpg" />
 </div>
 
 
@@ -400,7 +474,7 @@ Futuremark 3DMark 2.25.8056 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159677.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ Abelssoft SSD Fresh Plus 2022 11.12.43614 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159714.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ FastStone Capture 9.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159721.jpg" />
 </div>
 
 
@@ -472,7 +546,7 @@ GPU-Z 2.52.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159723.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ LDPlayer 9.0.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159726.jpg" />
 </div>
 
 
@@ -521,7 +595,7 @@ Windows 11 Manager 1.1.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159727.jpg" />
 </div>
 
 
@@ -545,7 +619,7 @@ FastStone Capture 9.8 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159729.jpg" />
 </div>
 
 
@@ -556,78 +630,6 @@ FastStone Capture представляет собой довольно мощн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:587B202A1527602AE70FF3292CDD49E7D04B57EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599307   (159731) от 23.12.2022
-
-MiniTool Power Data Recovery 11.4 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159731.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E62C0578D362C9827D77A253CA20B4A6BC291D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599428   (159737) от 23.12.2022
-
-MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159737.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8789117E7CE5E9B1EA64A1B217008A1D556F5101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599433   (159738) от 23.12.2022
-
-MyLanViewer 6.0.3 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159738.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EFF8FEDFF63114AF955D73B8FFD2B1B39AD26C
 ```
 
 

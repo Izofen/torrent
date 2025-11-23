@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83888.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83890.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83895.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ QipShot 1.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83896.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VectorLinux 7.0 "Light" [i486] (1xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83903.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0DFD591D21E22F2E3615386114D3D85FE4674F57
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83911.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Iron Maiden - En Vivo! (Live) (2012) Scene [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83914.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CD 1:
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83917.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PhotoInstrument 5.5.553 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83927.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Photoinstrument - редактор для обработки цифровых ф
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83929.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:9A756ECE770B0201EA2EF21D24679FC27952551B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83944.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:9A756ECE770B0201EA2EF21D24679FC27952551B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83965.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Tребования: Nokia 5800 RM-356   (   Читать дальше...   )
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83970.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Phil Collins: Live At Montreux (2004/2012) [1080i] Blu-ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83975.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nancy Drew: The Final Scene / Нэнси Дрю похищение в театр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83988.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Endels 1.00 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83993.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Endels (New Denwer Local Server, аббревиатура читается ка�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83996.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83999.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84012.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Adobe Reader X 10.0.1, WinRAR 4.01 Rus x32/x64, AIDA64, Mozilla Firefox, Uninsta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84025.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84028.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84034.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Trance Top 100 Vol 12 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84040.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84041.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84043.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84049.jpg" />
 </div>
 
 

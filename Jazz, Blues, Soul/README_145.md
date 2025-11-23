@@ -6,7 +6,7 @@ Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167205.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167300.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167314.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167325.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Elvin Jones - Revival: Live At Pookie's Pub (1967) 2022, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167345.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jim Snidero - Far Far Away (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167363.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Whiskey Foundation - Leisure (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167371.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Monica Zetterlund And The Thad Jones & Mel Lewis Orchestra - It Only Happens Eve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167579.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Backbone Blues Band - Old New Borrowed Blues (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167602.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Randall Breneman & The Skinnerbros - Devil Plays The Blues (2022) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167642.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ellington Trio - Things Ain't What They Used To Be (2022) JazzSick Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167675.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Richard Bargel - Dead Slow Stampede (2022) [FLAC|Lossless|WEB-DL|tracks] <Delta 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167679.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Komet City - Don't Go to Strangers - A tribute to the Tulsa Sound (2022) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167686.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ TNYFBB - Trio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167720.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167809.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Berk & The Virtual Band - Jazz Chill Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167901.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168012.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Jazz Saxophone Greats (2019) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168045.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Andy Taylor Group - Drifting Days (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168129.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168150.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168160.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168183.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168223.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168243.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168270.jpg" />
 </div>
 
 

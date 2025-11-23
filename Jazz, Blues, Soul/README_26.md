@@ -6,7 +6,7 @@ Buddy Reed and th' Rip it Ups - Soul House (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66358.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Catfish John Tisdell - Somethin' To Feel (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66359.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Teskey - White Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66374.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66375.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66379.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ John Stewart Simpson and Old Brown Dog - Chasing the Moon (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66381.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sam Ghezzi - Bad Boy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66388.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ John Elijah - Take and Give (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Loop of Boom - Human Artifacts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66394.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66401.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pino Scotto - The Devil's Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66403.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66412.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66413.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Richard Wyands - The Arrival (1992) DIW Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66451.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66452.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66453.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sal Salvador - Sal Salvador (1954) 1991, Toshiba-EMI [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66454.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66455.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Patti Austin - Avant Gershwin (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66462.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Bongo Boy Records Backroom Blues, Vol. 13 (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66463.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mourning [A] BLKstar - Flowers For The Living (2025) [MP3|320 Kbps] <Soul, afrof
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66464.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jelly Roll Morton - Last Sessions: The Complete General Recordings (1939, 1940) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66468.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66469.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66471.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Roger Kellaway - The Roger Kellaway Trio (1965) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66472.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Barbara Dennerlein - Hot Stuff (1990) Enja Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66473.jpg" />
 </div>
 
 

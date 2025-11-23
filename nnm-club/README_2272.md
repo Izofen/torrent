@@ -6,7 +6,7 @@ Adguard 7.17.0 (7.17.4705.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59437.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blender 4.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59438.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VirtualBox 7.0.16 Build 162802 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59439.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6B4620D0C926F1EE0987D0ABBDDE6E8E330B7244
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59440.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:54D83EC85BD2DF1771187BEE8833EA42A936847E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59441.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A75BB5A6EA58D7D6D9BC2ABF9FF5D900739E7C6C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59442.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:08C1383D967144AE87E4F3F63B3A17A6EE71498A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59443.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:AE812206A297FD0721B2A8C4E8C8758022547D0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59444.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:AB65B4C3A02B880AC4A6B1C5C69A74FD05139657
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59445.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A53356803B17C3E25316AA8DF3298444823080EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59446.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59447.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:01E97729C7DFC1DD1E2A65DD53083E6FE6F783F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59448.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0B128CC62612B8282C9738C7410FE59729AACE4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59449.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Abelssoft SSD Fresh Plus 2024 13.01.53859 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59450.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Shanghai Summer (2024) [Ru/Multi] (1.6.20.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59451.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C1D97E225CD0B836C6217E135F94E62F3C905276
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59452.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F9EC9AF878181147FBDA26170814956C1D1C7E4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59453.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ CCleaner 6.23.11010 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59454.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59455.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ INSPIRE (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59456.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:3FC7687F8C2C5A082934ED0ECC1DB91515900EC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59457.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:C28A53A4789C545FDE1A9F3F99FCE2217EE0E46C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59458.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9255AF977530273344F40EAA669F15BE5A8BE640
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59459.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C0FA5C439AC3269F88E9A5ED5A740652E9532DE0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59460.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59461.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59462.jpg" />
 </div>
 
 

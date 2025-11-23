@@ -1,3 +1,77 @@
+###  Публикация: 1675192   (160460) от 08.11.2023
+
+DxO FilmPack 7 for Mac v.7.1.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160460.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO FilmPack — это подключаемый модуль для Adobe Photoshop, Adobe Lightroom, Apple Aperture и DxO Optics Pro. Кроме того, доступен как автономное приложение. DxO FilmPack придает цифровым изображениям стиль самых известных фотопленок: цвета – и зернистость, включая Kodachrome, Tri-X, Velvia, были проанализированы и воспроизводятся так, чтобы они могли быть применены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 12.6.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62575EA6BABFA152A02F334A0D9DB4107177A3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675262   (160463) от 08.11.2023
+
+JixiPix Artista Impresso Pro 1.8.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
+Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C083562DE60342077D3D0F819185D260CC327999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675199   (160470) от 08.11.2023
+
+DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160470.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO ViewPoint — окончательная победа над геометрическими искажениями.
+DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский , Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB5539A6FF338E9793920AE614B269B1E8E8F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675219   (160474) от 08.11.2023
 
 Marked 2 - Markdown Preview 2.6.31 [En]
@@ -6,7 +80,7 @@ Marked 2 - Markdown Preview 2.6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160474.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160475.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Dash 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160478.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Deckset 2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160479.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ QLab 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160481.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ DefenderKiller 1.4/11.0.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160500.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ AOMEI Backupper Technician Plus 7.3.3 (06.11.2023) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160506.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ magnet:?xt=urn:btih:B32B0DA8962F8C84DAAC66F2513E1E0903DA272F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160510.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160511.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ AOMEI Backupper Pro 7.3.3 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160512.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:C3AADB2BE87AF10A447B212B63DEDE0ADB982FE1
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160514.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ VSDC Video Editor Pro 8.3.6.500 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160524.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ XviD4PSP 8.1.56 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160526.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ Office Tool Plus 10.4.1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160528.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ FonePaw Android Data Recovery 5.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160531.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ Epic Pen Pro 3.12.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160532.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ Bartender 5 v.5.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160533.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ ToonMe 0.6.92 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160535.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ AOMEI Partition Assistant Technician Edition 10.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160536.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Psiphon 3 build 180 (06.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160541.jpg" />
 </div>
 
 
@@ -492,7 +566,7 @@ OnionFruit Connect 2023.1104 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160549.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.5 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160552.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ FastStone Capture 10.3 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160553.jpg" />
 </div>
 
 
@@ -552,79 +626,6 @@ FastStone Capture - мощная и многофункциональная пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3939C3AB459B4DB231CCC27C3C7681F0796600E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674913   (160556) от 07.11.2023
-
-Quick CPU 4.8.0.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick CPU — это приложение, разработанное для точной настройки и мониторинга производительности процессора, параметров питания и напряжения, таких как: парковка ядер, масштабирование частоты, Turbo Boost, C-States, Speed ​​Shift и FIVR Контроль, а также некоторые другие возможности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891715066FE0C87004BCC05BD18A0B121ACD5DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674890   (160561) от 07.11.2023
-
-ProfiCAD 12.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160561.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProfiCAD - программа, которая будет очень полезна работникам технических профессий и учащимся технических ВУЗов. Она представляет собой простой редактор, предназначенный для создания электрических схем и прочей похожей документации. Библиотека данного приложения включает в себя практически все существующие элементы для схем, которые разбиты на группы для обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DED246C7C5E2CAAC4A79C64D3142A56EA0126D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674935   (160564) от 07.11.2023
-
-Ashampoo UnInstaller 14.00.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo UnInstaller 14 поможет вам установить, протестировать и удалить программы без следа (и без забот). Вамрешать, что останется, а что должно исчезнуть с вашего ПК!
-Программа тщательно контролирует каждый процесс установки, что позволяет выполнить полное удаление, при желании. Можно удалить даже те установки, которые не были проконтролированы – всё благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26AD0902ADF8D576862CD6A5F22354FD88ADFEE
 ```
 
 

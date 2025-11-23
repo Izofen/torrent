@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58215.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D02ED73C9B300FFAA869FB26E21354D9264C500
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58216.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:09C3BECDEBA6A392872B30ED11185FFD7A3D6081
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58217.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Autodesk AutoCAD 2025 for Mac V.58.M.214 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58218.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:318E030C2C244DAD07058E9EFBDADBADBE7944F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58219.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:26744C63EDD6D03F0E8A96929F91F206F633502B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58220.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58221.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4D3DC12C5C57B8A02FD74BA31CB7BF47C3213AB6
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58222.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:85D1AA0BCF12F8A5BF11E28C4C1640D606FDAC4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58223.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Record Super Chart 27.04.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58224.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:694CE9A71ADF2F9EADAB10FE8ABB48485EFF8291
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58225.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:E8B97690270D10CC92AAF9B5BECBE604EA912622
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58226.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MKVToolNix 84.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58227.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C16905A1618BBC4ECC4A614BF58A898BADA3410D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58228.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Photo AI 3.0.1 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58229.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:043831988AC989B6A934DF21F4E9F62AC91A9FD6
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58230.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:1C1C37D5180AC0F1E8386B63116651A64F87FC0F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58231.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:811A68585209852F72EA5FC982DB28AAE8BB2FE2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58232.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58233.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:860BD512FDA0DE0C88E0C83B852B4F4791F066C3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58234.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Fast Video Cutter Joiner 4.6.2 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58235.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ KORG - Wavestate Native 1.3.7 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58236.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3137C2B755E06808504C8BDE1E8CB1E8186FB0E3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58237.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:B22B75EF68CEBCD14ACA542BD30EED9F69988417
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58238.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:1E0A8937FF22446B0899838F994F03C84FA54741
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58239.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:CADE37B5CBFD849C1D50E3CD66B97C575007BBD1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58240.jpg" />
 </div>
 
 

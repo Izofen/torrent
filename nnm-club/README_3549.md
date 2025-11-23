@@ -1,3 +1,77 @@
+###  Публикация: 1713321   (111956) от 05.04.2024
+
+Icecream Photo Editor Pro 1.49 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2581B51686F18C2A014740FF7390CC405A0262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713416   (111957) от 05.04.2024
+
+Sante DICOM Editor 10.0.8 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
+Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB20DB9DDD01E456D9816A5C7AB817FB7A47BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713288   (111958) от 05.04.2024
+
+Sumatra PDF 3.6.16004 Prerelease + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A420B6473B45036A53341DEAF41F796A55B4F5C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713396   (111959) от 05.04.2024
 
 Память / Memory (2023) WEB-DLRip [H.264] [UKR звук с ТS] [AD]
@@ -6,7 +80,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111959.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:C52C8FA06F7BC8521C3D9A5ECAC080DE9DA4B891
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111960.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ JetBrains RubyMine 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111961.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:2A1A96AE4688521F2F2CFE2B32759EEBB094379B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111962.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111963.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111964.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:CB39ABC08725ADC4E9168D2D236ACF176DA4F813
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111965.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Icecream Slideshow Maker PRO 5.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111966.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ StressMyPC 5.33 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111967.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111968.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ KStars 3.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111969.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ YT Downloader 9.7.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111970.jpg" />
 </div>
 
 
@@ -295,7 +369,7 @@ magnet:?xt=urn:btih:85A568F3E94949AD16B165B24E3402B988480545
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111971.jpg" />
 </div>
 
 
@@ -319,7 +393,7 @@ magnet:?xt=urn:btih:19FFD9398D224F92DF5212D957D14129E6D6E926
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111972.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:40DDC350E3D9A433DA608EE86E9B156726C1E86D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111973.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111974.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111975.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ PhotoResizerOK 2.91 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111976.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ VA - Music News vol.361 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111977.jpg" />
 </div>
 
 
@@ -471,7 +545,7 @@ Italian Best Shorts 7: Быть женщиной / Femminile Singolare / Feminin
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111978.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111979.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ GPU-Z 2.58.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111980.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ FurMark 2.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111981.jpg" />
 </div>
 
 
@@ -558,81 +632,6 @@ FurMark 2 является преемником почтенного FurMark 1..
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F973EDB852A78FDF5833AB9A6ECE77C6C4BAE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607476   (111982) от 05.04.2024
-
-Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в Барселоне в 2008 году, группа CRISIX прошла путь от молодых талантливых трэш-металлистов, победив большинством голосов во всемирном конкурсе Metal Battle на легендарном немецком фестивале Wacken Open Air в 2009 году и став лучшим испанским новичком по версии журнала Rockzone в 2011 году, до одной из самых представительных метал-групп в Испании, а ее музыка (   Читать дальше...   )2011 - The Menace
-2013 - Rise...Then Rest
-2016 - From Blue To Black
-2018 - Against The Odds MMXVIIIЖанр: Thrash MetalПродолжительность: 05:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713376   (111983) от 05.04.2024
-
-Монстр / Monster / Kaibutsu (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая вдова воспитывает сына Минато в одиночку. Мальчик учится в средних классах и почти ничего не рассказывает о школе, но его странное поведение настораживает женщину. А когда Минато приходит с повреждённым ухом, мать идёт разбираться в школу — всё указывает на то, что мальчика третирует учитель, но школьное руководство не торопится ничего предпринимать.Производство: Япония / Aoi Promotion, Bun-Buku, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу Корээда / Hirokazu KoreedaАктеры: Соя Курокава, Хината Хиираги, Сакура Андо, Эйта Нагаяма, Юко Танака, Акихиро Какута, Даисукэ Курода, Рю Мориока, Аю Китаура, Мицуки ТакахатаПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский, японскийСубтитры: ЯпонскиеПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F02BDF999E97EB864F5BCC4C717A000CF2A2D2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713330   (111984) от 05.04.2024
-
-Icecream Screen Recorder PRO 7.37 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder – простая программа для записи видео с экрана, которая позволяет записывать любую зону экрана или сделать ее скриншот. Записывайте видеоинструкции, приложения и игры, вэбинары, онлайн видео, звонки через Skype и многое другое. Осуществляйте запись экрана со звуком и вебкамерой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CCC3740136CBAFDB6308C1F6F4077921EFCC7E
 ```
 
 

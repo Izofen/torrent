@@ -1,3 +1,78 @@
+###  Публикация: 1436146   (138142) от 30.12.2020
+
+Георгий Чернядьев | Урок ретуши 10 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Урок по обработке и ретуши в лайтрум и фотошоп от Георгия ЧернядьеваЖанр: Ретушь фотоПродолжительность: 00:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25D7E51012AA27EBD2867324DF0CA8D240F4751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349221   (138144) от 31.12.2019
+
+Евгения Михайлова | Имитация страсти (2019) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василиса считала, что ее карьера удалась. Роскошная жизнь в Америке, богатый муж – о чем еще может мечтать бывшая модель? Но на самом деле их семейная жизнь под угрозой…
+Ксения наконец-то смогла устроиться в Штатах. Вначале ей понравилось работать няней в шикарном особняке, однако потом Ксения поняла, куда попала, но было уже поздно…
+Для бывшего криминального авторитета (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8190608B27C1C129E92C14ABC75D3D05FCEC34F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968487   (138145) от 31.12.2015
+
+Лихорадка / The Fever (2004) HDTV [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она прожила настолько обычную жизнь, что "никогда не стала бы читать унылую брошюру о своей жизни".
+Но со временем, женщина стала осознавать свой потребительский образ жизни, экономическую эксплуатацию бедных слоев населения, неравенство. Толчком к этому становится книга, которую она однажды находит на пороге своего дома – «Капитал» Карла Маркса. Серия (   Читать дальше...   )Производство: США, Великобритания, HBO Films, Home Box Office (HBO)Жанр: ДрамаРежиссер: Карло Гэбриель НероАктеры: Ванесса Редгрейв, Анджелина Джоли, Майкл Мур, Джоэли Ричардсон, Джеральдин Джеймс, Мириам Тернер, Камерон Д’Анджело, Кира Д’Анджело, Раде ШербеджияПеревод: Многоголосый закадровый (AMedia)Продолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1534F38706945A0CBF50A4B0801166A10ED797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088675   (138146) от 31.12.2016
 
 Stand Up (2016.12.18) WEB-DL [H.264/720p-LQ] (Концерт Стаса Старовойтова)
@@ -6,7 +81,7 @@ Stand Up (2016.12.18) WEB-DL [H.264/720p-LQ] (Концерт Стаса Стар
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138146.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:B78B3A31A937D7C9CA9392475BFE1A32BE12DEF5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138147.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:4F8E9BADF5D0C15DE028F1746031CF7439C0C523
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138149.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ magnet:?xt=urn:btih:E63E6B41F050732EA53A7F8C6DB1EE7E449BA784
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138150.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ Boris FX Continuum Complete 2021 v14.0.1.602 (PlugIns OFX) 2021 v14.0.1.602 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138153.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:D8605C0A836BCC3A3C0E791DD4292F96BD30020F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138154.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:04014CC72BD8C99FAC1784901D15FD254C4587A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138156.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:04014CC72BD8C99FAC1784901D15FD254C4587A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138157.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:B7871C17EA415688C72D5B8223F6A897EF2ADF87
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138158.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138159.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138162.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ magnet:?xt=urn:btih:823C05C3356FF8273E302DB42706C99F99791746
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138163.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138164.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ magnet:?xt=urn:btih:DD7A7DE0C928B94D0764F28DF074D9489217E1F2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138168.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138169.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Daum PotPlayer 1.6.57875 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138172.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ magnet:?xt=urn:btih:83249D4AAC3C5A9F89C3243E2D19EC7AF2AE21A7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138173.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138174.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack Fenixx [Digital De
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138175.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [27.12.2018] [Ru/En]
 >>22
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138176.jpg" />
 </div>
 
 
@@ -532,7 +607,7 @@ magnet:?xt=urn:btih:E86DB092B6C8832ECE45EA06D55089725F1B225E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138177.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138178.jpg" />
 </div>
 
 
@@ -568,82 +643,6 @@ magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B676E691A0E0F5CEA69810F0739B52E7436F92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349151   (138180) от 31.12.2019
-
-Олег Рой, Татьяна Маликова | Хрустальное сердце. Волшебная новогодняя сказка (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка Олега Роя и Татьяны Маликовой «Хрустальное сердце» – это история для всех, у кого есть мечта! Для всех, в чьём сердце живёт любовь! Кто верит в то, что герои могут оживать, а слова и предметы обладать волшебной силой!
-Она произошла в самый чудесный день – в канун Рождества, когда весёлые жители маленького уютного городка были охвачены приятными хлопотами и (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4363ECB79913BD1CD9C76FEABA5AC16E84AAAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195916   (138182) от 31.12.2017
-
-Битва экстрасенсов (2017.12.30) WEB-DLRip (сезон 18, выпуск 15: Дайджест)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138182.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80E191AF0322EBCB789780B6E35F23A90C20EB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520994   (138183) от 31.12.2021
-
-VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Kisses in the Rain (4:00)
-02. Chris le Blanc, Alison Degbe - Moon over Paradise (3:22)
-03. Digby Jones, Lushlo - Shimmer (Original Mix) (3:31)
-04. Schwarz & Funk - Only Tears (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD0BCAFCA98FAC54FB4B775C01E5BE2E1A9F676
 ```
 
 

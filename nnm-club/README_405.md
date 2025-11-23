@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10713.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:141D8232E54516DDDCC008260F1D5910724FAC48
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10714.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10715.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Video AI 7.1.0 RePack (& Portable) by elchupacabra [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10716.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0A38D65FAC517032313E5A924210D7CBDC55C605
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10717.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:77C7B3C6B7A0C834141DBAF15564512C2DCB4428
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10718.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:77C7B3C6B7A0C834141DBAF15564512C2DCB4428
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10719.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E923D83E1A92DA5EA379877B9BBA46D72E10AB28
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10720.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E923D83E1A92DA5EA379877B9BBA46D72E10AB28
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10721.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10722.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ v2rayN 7.13.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10723.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3P2_85055/dlc) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10724.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:410327EEA79DEAD0833808776F7B1E00778AC517
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10725.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:2455C97CA4FC819343576A317A1E0BA96C16052C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10726.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10727.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5A17B19EBE555F22A794FFC90A5817EFA8A324F5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10728.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dark Envoy (2023) [Ru/Multi] (1.7.1.73935) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10730.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:0CE31C42B177CC798640FF02CA71CFFE09B31176
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10732.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:0CE31C42B177CC798640FF02CA71CFFE09B31176
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10734.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:2C9C73F42A2280285682F10BDA1BDAF8F8E2E24B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10735.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10736.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:3BFC974F624146537B3FBF24C30908770802B7A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10737.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.0.2.0/dlc) License GOG [Alex Murphy Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10738.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:0EF7144AC6A1E947761D39F4890C3098FF5C15CE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10739.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:9F85177525E751A3D7F7368D2EE1C1AE2B6EFB29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10740.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9F85177525E751A3D7F7368D2EE1C1AE2B6EFB29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10741.jpg" />
 </div>
 
 

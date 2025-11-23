@@ -6,7 +6,7 @@ PDF-XChange Editor Plus 10.3.0.386 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vit Registry Fix Pro 14.9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58043.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2024.002.20687 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58047.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VCap Downloader 0.1.21.6023 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58054.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TechSmith Snagit 2024.1.2 build 2333 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58056.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58061.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v17 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58069.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ CrystalDiskInfo 9.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58074.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Foxit PDF Reader 2024.2.0.25138 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58075.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.2 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58076.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C2D186110D6664A962F502002C11B81BF76EBD82
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58084.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v17 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58093.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Topaz Gigapixel AI 7.1.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58130.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Aurora DSP - Rhino 1.6.0 STANDALONE, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58131.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ TikTok 34.5.3 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58138.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ JRiver Media Center 32.0.42  RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58149.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Screenpresso Pro 2.1.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58153.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Topaz Photo AI 3.0.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58183.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58197.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:983DBE4FBAD922B91C596506171DC38C46D86919
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58220.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ MKVToolNix 84.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58227.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Topaz Photo AI 3.0.1 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58229.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58233.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fast Video Cutter Joiner 4.6.2 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58235.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ KORG - Wavestate Native 1.3.7 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58236.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3137C2B755E06808504C8BDE1E8CB1E8186FB0E3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58237.jpg" />
 </div>
 
 

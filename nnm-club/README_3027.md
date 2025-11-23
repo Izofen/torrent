@@ -1,3 +1,101 @@
+###  Публикация: 457896   (94325) от 25.02.2012
+
+Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Jungle Of Sounds (With Iva) 07:53
+ 02 Electrify 06:36
+ 03 Dune (With Sideform) 07:05
+ 04 Synapse 06:31
+ 05 Borderland 06:26
+ 06 Vertigo (With E-Clip) 07:23
+ 07 Crystal 07:16
+ 08 Deep Blue (With Middle Mode) 08:04
+ 09 Quirky 07:452011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455743   (94328) от 25.02.2012
+
+VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anjiro Rijo – Sunshine (Original Mix) (7:07)
+ 02. Carl Louis & Martin Danielle - FiveAM (Thomas Sagstad Remix) (6:41)
+ 03. Carl Louis, Martin Danielle - Five AM (Original Mix) (6:08)
+ 04. Daviddance - South Bitchs feat Rona Geffen (Original Mix) (7:16)
+ 05. Dirty South & Thomas Gold & Kate Elsworth - Alive (Idriss Chebak Xmas Remode) (5:25)
+ 06. Domestic Technology - Split It Up (Original Mix) (8:00)
+ 07. Garuso - I Need You (Original Mix) (7:07)
+ 08. Jane Maximova - Amid The Road (Original Mix) (5:20)
+ 09. Jeremy Rowlett - Vanilla Skies (Wilson & Mclennan Cruise Control Remix) (9:48)
+ 010. Kanov - Meditations (Andrew Benson Remix) (7:03)20.02.2012Жанр: Progressive HouseПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455620   (94335) от 25.02.2012
+
+VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiho Microbitez - Turbolence (Mykoe Remix) (6:22)
+ 02. Amaze - Syndrome (Original mix) (6:48)
+ 03. Avrosse - Jittery Jim (Gaga Mateo Remix) (6:34)
+ 04. ChabudHigh - Tec Soul (Original Mix) (6:03)
+ 05. Irod - Wake Up (Original Mix) (6:14)
+ 06. J-Valencia - Fur Neffen (Original Mix) (6:33)
+ 07. James Delato - Black Cadillac (6:05)
+ 08. John Tejada and Justin Maxwell - Our Aimless Dance (6:37)
+ 09. Lu4o And Green Kid - Fatal Error (Original Mix) (6:58)
+ 10. Microcheep & Mollo - Paranoid Confusion (Original Mix) (7:34)(   Читать дальше...   )19.02.2012Жанр: MinimalПродолжительность: 02:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E95BCE5B94CBE4FCC3C63E090C95714D07F61F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457855   (94342) от 25.02.2012
 
 VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
@@ -6,7 +104,7 @@ VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94342.jpg" />
 </div>
 
 
@@ -38,7 +136,7 @@ Audiomatic - Weekend Society (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94345.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94345.jpg" />
 </div>
 
 
@@ -71,7 +169,7 @@ Win7codecs 3.5.1 Final + x64 Components / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94347.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94347.jpg" />
 </div>
 
 
@@ -98,7 +196,7 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94354.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94354.jpg" />
 </div>
 
 
@@ -131,7 +229,7 @@ Nox Arcana - House Of Nightmares (2010) [MP3|320 kbps]<Neo-Classical, Dark Ambie
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94357.jpg" />
 </div>
 
 
@@ -164,7 +262,7 @@ George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94360.jpg" />
 </div>
 
 
@@ -197,7 +295,7 @@ Andain - Much Too Much (2012) HDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94364.jpg" />
 </div>
 
 
@@ -221,7 +319,7 @@ Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94367.jpg" />
 </div>
 
 
@@ -251,7 +349,7 @@ Gromth - The Immortal (2011) [MP3|240 - 320 кб/с]<Symphonic Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94375.jpg" />
 </div>
 
 
@@ -284,7 +382,7 @@ Ruff Ryders - Past Present Future (Hosted By DJ Khaled) (2012) [MP3|160 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94376.jpg" />
 </div>
 
 
@@ -317,7 +415,7 @@ Roadstar - Grand Hotel (2006) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94381.jpg" />
 </div>
 
 
@@ -350,7 +448,7 @@ Emika - 3 Hours EP (2012) [MP3|320 kbps]<Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94393.jpg" />
 </div>
 
 
@@ -378,7 +476,7 @@ magnet:?xt=urn:btih:72678659BC436D93B45D9513ABC230C1FE995B46
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94396.jpg" />
 </div>
 
 
@@ -402,7 +500,7 @@ Red Samara Automobile Club - Прозрачно (2012) [MP3|320 кб/с]<Rock, I
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94400.jpg" />
 </div>
 
 
@@ -435,7 +533,7 @@ Armin van Buuren - A State of Trance 549 SBD (23.02.2012) [MP3|320 кб/с]<Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94404.jpg" />
 </div>
 
 
@@ -468,7 +566,7 @@ magnet:?xt=urn:btih:864178E2C1FDE593B005FDCBC25F44E9F0AC5BAB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94411.jpg" />
 </div>
 
 
@@ -492,7 +590,7 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94414.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94414.jpg" />
 </div>
 
 
@@ -524,7 +622,7 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94417.jpg" />
 </div>
 
 
@@ -549,7 +647,7 @@ magnet:?xt=urn:btih:B8BD5849DC07493AB3C6D4F467A4F7ADFE2A992C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94418.jpg" />
 </div>
 
 
@@ -573,7 +671,7 @@ Dj VoJo - CLUB DESIRE vol.10 - Dancing Humanity (2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94424.jpg" />
 </div>
 
 
@@ -606,7 +704,7 @@ magnet:?xt=urn:btih:CB353CF9B0781DC554FFFDDBA8E98A84EF01939E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94432.jpg" />
 </div>
 
 
@@ -630,7 +728,7 @@ magnet:?xt=urn:btih:D267F5C5CCEA013062E0ABB8A33F20B06716FBDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94464.jpg" />
 </div>
 
 
@@ -654,7 +752,7 @@ magnet:?xt=urn:btih:75942822412E6546157010C4AC4BAF5DC16C0EF5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94466.jpg" />
 </div>
 
 
@@ -665,96 +763,6 @@ magnet:?xt=urn:btih:75942822412E6546157010C4AC4BAF5DC16C0EF5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2306C95D917E33B5DD2A5416F9D30F8C38C0B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456422   (94484) от 26.02.2012
-
-Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diode 03:38
-02. Egg 04:02
-03. Trainwreck 03:38
-04. Synchro 05:43
-05. Paralysis 04:12
-06. Xenon 04:13
-07. Gordius 04:01
-08. Fractals 04:07
-09. ENKON 03:33
-10. Andromeda 03:49(   Читать дальше...   )2010Жанр: Progressive/Math MetalПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A201C94DDB1EC6678937E470305F74F41526EEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458631   (94489) от 26.02.2012
-
-Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Run From Me
-02 - The Lone Green Valley
-03 - Icy Muse
-04 - Love Is A Terrible Thing
-05 - Pleading
-06 - This Meeting
-07 - The Precipice
-08 - Theodora
-09 - Nightbird2007Жанр: Symphonic Gothic MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822013   (94494) от 05.10.2025
-
-День учителя!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94494.jpg" />
-</div>
-
-
-###  Подробнее
-
-От всей души поздравляем дорогих педагогов с Днём учителя!
-День учителя — праздник, который отмечают по всей России. В этот день принято поздравлять не только школьных педагогов, но и преподавателей вузов, колледжей, наставников дополнительного образования — всех, кто делится знаниями и помогает воспитывать новое поколение.День учителя – один из самых значимых и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

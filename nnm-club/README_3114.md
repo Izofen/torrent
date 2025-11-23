@@ -1,3 +1,84 @@
+###  Публикация: 482016   (99419) от 12.04.2012
+
+Среда обитания. Жильё и жульё (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снять или сдать квартиру, получить визу или загранпаспорт, взять кредит в банке, устроиться на работу. Это не так просто, как кажется.Надо тратить время, нервы и деньги. Но сейчас ситуация изменилась. Все эти услуги оказывают посредники. За вас соберут документы, постоят в очередях, подберут вакансию. На первый взгляд, это удобно и выгодно."Среда обитания" выяснила, за что мы на самом деле платим посредникам. Где они действительно нужны, а где без них вполне можно обойтись.Жанр: ДокументальныйПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC3A244F5E6363ED2FF73CAADEF9A81764EBD3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481726   (99420) от 12.04.2012
+
+VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10 Forward - La nuit ne pas finir
+02. Aaron - U-turn (lili)
+03. Afterlife feat. calladine - Clear blue sky
+04. Akmuisque - Vamos danca
+05. Akmusique - Ocean drive 707
+06. Anima sound system - Open your eyes
+07. Audio lotion - Vanilla shake
+08. Better daze - Golden brown
+09. Bonobo - Super 8
+10. Caravan palace - Ended with the night(   Читать дальше...   )2012Жанр: Chillout | LoungeПродолжительность: 03:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481897   (99427) от 12.04.2012
+
+Валентина Пашинина | Неизвестный Есенин [2007] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99427.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Неизвестный Есенин» — третье, исправленное и дополненное издание книги Валентины Пашининой. Такого Есенина, каким он предстает на ее страницах, мы действительно не знали. По-новому осмыслены многие факты жизни великого русского поэта, доказано авторство «Послания евангелисту Демьяну», которое сберегли и сохранили политзаключенные Ухтпечлага, среди которых был и Василий Петрович Надеждин, передавший стихотворение автору этой книги, за что ему — особая благодарность. Основываясь на огромном фактическом материале, как опубликованном, так и практически неизвестном широкому кругу читателей, B.C. Пашинина предлагает свой взгляд на многие события в жизни поэта, а также обстоятельства его трагической гибели. Впервые биография Сергея Есенина развернута на динамичном фоне истории России, а не ограничена тесными стенами скандального кафе «Стойло Пегаса». Книга рассчитана на широкий круг читателей, представляет несомненный интерес для тех, кто глубоко интересуется творчеством и судьбой любимейшего поэта России.2007Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481924   (99429) от 12.04.2012
 
 Одесса-сентиментальное путешествие (2004) DVDRip
@@ -6,7 +87,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99429.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Alcohol 52% 2.0.2 Build 3929 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99430.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Alcohol 52% - широко известная программа для эмул
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99431.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99433.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99435.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<Frenc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99436.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ HostsMan 4.0.84 Beta5 & Portable [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99439.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99439.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99444.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99446.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ Brainville (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99448.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99449.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99451.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ magnet:?xt=urn:btih:ACAA8F6F7F282F8435318D928933226B05D8351B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99452.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ Dj VoJo - STYLE vol.2: В Ж...ПУ ПАФОС (07.04.2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99455.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99456.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99457.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99457.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99459.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99460.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99462.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99464.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99465.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99467.jpg" />
 </div>
 
 
@@ -612,7 +693,7 @@ Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99471.jpg" />
 </div>
 
 
@@ -632,82 +713,6 @@ Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482513   (99473) от 13.04.2012
-
-[Wallpapers] Scotland (Шотландия) wallpaper | для БориСКА47
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз подготовлен по просьбеРазрешение файлов: 1280x840 - 1600х1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482435   (99474) от 13.04.2012
-
-Журнал | 5 колесо №3 (март 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99474.jpg" />
-</div>
-
-
-###  Подробнее
-
-«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482712   (99475) от 13.04.2012
-
-[Wallpapers] HD Wallpapers №12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99475.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №12
-Название: HD Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
 ```
 
 

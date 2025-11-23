@@ -1,3 +1,75 @@
+###  Публикация: 1635420   (232513) от 25.05.2023
+
+Photo Album GPS Mapping Tool 2.8.4.777 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_232513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Album GPS Mapping Tool - это программа, которая поможет вам просмотреть GPS-координаты ваших фотографий на карте. Она способна легким движением извлекать данные о местоположении, хранящиеся в метаданных ваших фотографий, сделанных телефонами и планшетами, и отображает их на карте в стиле Google Earth. Вы также можете использовать эту разработку для добавления (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579793   (232546) от 28.09.2022
+
+Яндекс.Браузер для геймеров 22.9.2.1500 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_232546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F511326FD740EEA3769C084AD00C49619FCEC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579490   (232738) от 27.09.2022
+
+Universal Maps Downloader 10.103 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_232738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Maps Downloader - программное решение для скачивания карт заданной местности. Позволяет загрузить автономные карты созданные со спутников, которые также используются сервисами Google, Yahoo, Bing и Microsoft Maps.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999C2EB520AB33BC6B5D1836A05096F402A36712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579455   (232748) от 27.09.2022
 
 NCH Doxillion Document Converter Plus 6.32 [En]
@@ -6,7 +78,7 @@ NCH Doxillion Document Converter Plus 6.32 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232748.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232748.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ iObit Start Menu 8 6.0.02 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233996.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Bulk Image Downloader 6.27 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234734.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234734.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ FTP Rush 3.5.5.0 + Portable [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234866.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Poricom Portable 1.1.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235502.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235502.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235882.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235882.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ WinUtilities Pro 15.86 (акция Сomss) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236159.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Alternate Password Generator 1.140 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236368.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236368.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ GiliSoft Formathor 6.2.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236453.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Winstep Nexus Ultimate 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236980.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Winstep Xtreme 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237047.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Icecream PDF Split & Merge Pro 3.47 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237847.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237847.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ PDF Shaper Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237870.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237870.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237957.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237957.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Your Universal MultiBoot Installer (YUMI) 2.0.9.4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238586.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ System Ninja Pro 3.2.10 (26.08.2022) RePack (& Portable) by elchupacabra [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239127.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239127.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ AlterPDF Pro 6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239303.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239303.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ Uninstall Tool 3.6.0 Build 5684 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239438.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Blumentals WeBuilder 2022 17.3.0.244 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239763.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239763.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ save2pc Ultimate 5.6.5.1627 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241299.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241299.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Directory Lister Enterprise 2.48 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241337.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241337.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Directory Lister Enterprise 2.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241916.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241916.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ MiPony Pro 3.2.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242254.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242254.jpg" />
 </div>
 
 
@@ -551,80 +623,6 @@ MiPony Pro 3.2.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E09D2C99BBD1A0CA4D392EE7451F66863C4288B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623818   (242706) от 03.04.2023
-
-Dual Monitor Auto Mouse Lock 1.0.0.8 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dual Monitor Auto Mouse Lock - это инструмент, который помогает вам использовать два монитора и несколько мониторов. Программное обеспечение автоматически фиксирует указатель мыши на экране в соответствии с вашими настройками.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623749   (243104) от 03.04.2023
-
-LogViewPlus 3.0.16 [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243104.jpg" />
-</div>
-
-
-###  Подробнее
-
-LogViewPlus - мощная программа, которая предназначена для просмотра и анализа лог файлов приложений или системы. Она предоставляет ряд инструментов предназначенных для работы с лог файлами, и удобный пользовательский интерфейс с поддержкой тем оформления.
-LogViewPlus значительно облегчает просмотр записей лог-файла. В программе есть функция фильтрации информации (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623964   (243139) от 03.04.2023
-
-HitPaw Screen Recorder 2.3.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243139.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Screen Recorder — популярная программа, разработанная для записи экранных действий. Эта крошечная программа позволяет вам записывать игры, экраны, веб-камеры и видео «картинка в картинке» за несколько простых шагов. Интерфейс программы прост и удобен в использовании, и любой может с легкостью освоить его.
-Кроме того, он также предоставляет новейшие инструменты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
 ```
 
 

@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44429.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8E01EB856FD70C35809C6385F61CA7F7DD62648C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47625.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [MP3|320 Kbps] <Hip-Hop
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50242.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51717.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Souls of Mischief - 93 'Til Infinity (1993) [FLAC|Lossless]<Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51739.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Patrice - 6 Альбомов (2000-2010) [FLAC|Lossless]<Reggae, Hip-Hop, Electr
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51747.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Control Machete - 5 Albums (1996-2006) [FLAC|Lossless]<Hip-Hop / Mexican Rap / L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51752.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51756.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae,
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51758.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51779.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51780.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Regg
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51784.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downte
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52259.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52539.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52565.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53106.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:5F4FBD779E02CB20B5FCC99CDD8C3A2E1093BFA9
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54986.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54992.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ghostface Killah - Set The Tone (Guns & Roses) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56778.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ UB40 - UB45 (2024) [FLAC|Lossless|image + .cue] <Reggae>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58139.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58972.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ UB40 - UB45 (2024) [MP3|320 Kbps] <Reggae, Ska>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59192.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65122.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65809.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65841.jpg" />
 </div>
 
 

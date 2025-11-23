@@ -6,7 +6,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack Deceptic
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21075.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Антон Ларичев | Docker + Ansible - с нуля, деплой 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21076.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8F831D44FCB252662B4097D1AF6C46038A50CBBF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21077.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21078.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3BD69771841AF13F5C81B38E9E12655ADD45C3B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21079.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AAD71CCE36BC50285E9090F995F2E0ED43EEEFCE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21080.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Jean Michael Jarre - Oxygene (1976) [DTS 2.0 CD-DA|1510 Kbps|tracks] <Electronic
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21081.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Navitel / Официальные карты релиза Q1 2025 v9 от 16.04.2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21082.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21083.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21084.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Magenta Horizon - Neverending Harvest (2024) [Ru/Multi] (1.0.15) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21085.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21086.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F92ED74279BD8A32B237B6EAB80DB2D5BE5CD7D1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21087.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21088.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21089.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SketchUp Pro 2025 25.0.634 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21090.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21092.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21093.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21095.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ AM 1984 - Collection (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21096.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:AE92D9AAA863638A05DCCE47DAB3129367BEA917
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21097.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0449A52FE33012CB12AC599B423FECA083523F00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21098.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:0449A52FE33012CB12AC599B423FECA083523F00
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21099.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21099.jpg" />
 </div>
 
 

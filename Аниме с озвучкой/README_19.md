@@ -6,7 +6,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:40040557ED652845E0A513F14799EEEACD187E32
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156386.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158138.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:118991225EBFF1180B42C10096D7D98D08426055
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158783.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159046.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159119.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159513.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159678.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный гла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160098.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночны�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160112.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160568.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160576.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160736.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160822.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160826.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161104.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161112.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161585.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161594.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161597.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DearS | ДиарС [2004, TV, 12 + 1] DVDRip 544p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162148.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162269.jpg" />
 </div>
 
 

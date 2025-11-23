@@ -1,3 +1,77 @@
+###  Публикация: 484400   (89444) от 19.04.2012
+
+ВАС: авторское право защищает не авторов, а правообладателей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89444.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Существующее законодательство в сфере интеллектуальной собственности надо пересмотреть, полагает глава ВАССуществующее законодательство в сфере интеллектуальной собственности защищает не столько права авторов, сколько интересы крупных компаний, заявил председатель Высшего арбитражного суда (ВАС) Антон Иванов. Такую точку зрения он выразил на пресс-конференции, которая посвящена второму Петербургскому международному юридическому форуму, передает РИА «Новости».Регулирование интеллектуальной собственности стало противоположностью того, ради чего оно задумывалось, полагает Иванов. Законы задумывались для защиты творческих личностей, создающих «новое во всех сферах деятельности», а превратились в нормы для лейблов, скупающих «за бесценок чужие творческие решения» и продающие их остальным, заявил глава ВАС. «И заставляют их (покупателей) платить, но уже не на цели творчества, а на свои собственные коммерческие цели», — сказал Иванов.Председатель ВАС считает, что противоречие стало очевидным с развитием Интенета. «Я (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484702   (89447) от 19.04.2012
+
+Нокаут / Haywire (2011) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэллори Кейн — секретный спецагент. Она молода, умна и красива. Время от времени шеф международной спецслужбы Кеннет вызывает ее для выполнения заданий, не всегда санкционированных правительством. Но после провала череды операций Мэллори осознает, что она пешка в двойной игре. Теперь ей нужно использовать весь свой талант и опыт, чтобы скрыться от международного розыска, защитить свою семью и отомстить за предательство…Жанр: Боевик, ТриллерРежиссер: Стивен СодербергАктеры: Джина Карано, Юэн МакГрегор, Майкл Дуглас, Антонио Бандерас, Ченнинг Татум, Матьё Кассовиц, Майкл Фассбендер, Майкл Ангарано, Дебби Линн Росс, Джулиан АлькаразПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:32:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484827   (89448) от 19.04.2012
+
+Александр Лазаревич | "Червь" Дилогия [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89448.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Червь. 1992 год: "Князь Тьмы""
+ Рассказ, созданный в 1991 году, недавно отметил свое 20-летие. Основная оригинальная идея рассказа - искусственный интеллект не будет создан искусственно, а появится в ходе естественного отбора компьютерных программ по принципу дарвиновской эволюции. Несмотря на то, что эта идея была впоследствии (2003 г.) украдена Голливудом и использована в фильме "Терминатор-3" (т.н. "Скайнет"), я все же надеюсь, что аудиокнигу (а точнее "аудиофильм" - фонограмму к так и не снятому кинофильму), будет интересно послушать и новому поколению читателей (слушателей).2012Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485097   (89458) от 19.04.2012
 
 Кейт и Лео / Kate & Leopold (2001) BDRip [Director's cut]
@@ -6,7 +80,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89458.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89466.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89468.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89471.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89473.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89478.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89479.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89480.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ magnet:?xt=urn:btih:B185017734DF7EE9738E61B17A282AC742A001E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89481.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ magnet:?xt=urn:btih:A7B8E55C64452322663ADE56C83375F6A9E28AAF
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89482.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89484.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89485.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89486.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ magnet:?xt=urn:btih:1015E2EFC5966A941ED85536CF9577D9A5310B6A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89487.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89489.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89491.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 12.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89492.jpg" />
 </div>
 
 
@@ -449,7 +523,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89493.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89494.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ Botanicula (P) [Milti12/+] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89500.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:207CE82FA9C8877862E6F696DF209934EEC1DD4F
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89502.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89505.jpg" />
 </div>
 
 
@@ -557,78 +631,6 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484612   (89507) от 19.04.2012
-
-Другой мир: Пробуждение / Underworld: Awakening (2012) [H.264/1080p-LQ] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через 12 лет в состоянии, близком к коматозному, Селин узнает о существовании родной дочери Евы - гибрида вампира и ликана. И Селин необходимо помешать БиоКом создать суперликанов, которые убьют их всех.Производство: СШАЖанр: ужасы, боевик, фэнтезиРежиссер: Монс Морлинд, Бьёрн СтейнАктеры: Кейт Бекинсейл, Стивен Ри, Майкл Или, Тео Джеймс, Индия Айли, Чарльз Дэнс, Сандрин Холт, Кристен Холден-Рид, Джейкоб Блэр, Адам РейдПеревод: ДублированныйСубтитры: Английские,Русские (Комментарии), Английские (Форсированные), Английские, Английские (Комментарии)Продолжительность: 01:28:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484685   (89509) от 19.04.2012
-
-Разделитель / The Divide (2011) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89509.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются в подвале одного из зданий в Нью-Йорке, который стал своего рода спасательным бункером для восьмерых людей, когда город был разрушен в результате мощного взрыва неизвестного происхождения. Где-то в глубине подвала они видят человека в ОЗК и с оружием, который, похоже, объявил на них охоту.Жанр: ужасы, фантастика, триллерРежиссер: Ксавьер ГенсАктеры: Лорен Джерман, Майкл Бьен, Майло Вентимилья, Кортни Б. Вэнс, Эштон Холмс, Розанна Аркетт, Иван Гонзалез, Майкл Эклунд, Дженнифер БланкПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 02:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C44D00B2838E1CC9DE04B7027EF008D5412D291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484888   (89511) от 19.04.2012
-
-[RePack] Insanely Twisted Shadow Planet [En] 2012 l R.G. ReCoding
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухмерный «мультинаправленный шутер», посвященный полетам на летающей тарелке и изучению титульной «Теневой планеты», заполоненной недружелюбной живностью.Тип издания: RePackРазработчик: Shadow Planet ProductionsЖанр: АrcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB6476BE68D55E34A865879BF40D948D5C91DB5
 ```
 
 

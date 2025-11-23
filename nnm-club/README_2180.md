@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:129DB1E8667B1CA90BCF6FD3B84A59BE270DB775
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57046.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:32721B0AA35C32B1A5BADEE73B8B05342F88894F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57047.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:870B9EB6777EA86B1196A5C8E4787CE317134E91
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57048.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B8BE152D10504981177BE35BFE762774A9C7213E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57049.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack FitGirl [Ultim
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57050.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E4C2EF26B2447D832E74592B1A9C3E22C90A8342
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57051.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CE95916A7201B7B2664E9ED42270C913899C5392
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57052.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:93EB9C4F43ADD478C371D38E14BB96E4FCD2BB2A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57053.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57054.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Scene Razor1911 [Ulti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57055.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ C Днём Победы!
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57056.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ C Праздником Великой Победы!
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57057.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F0BDA545F7B889FB4C39B64EB980CE514831A952
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57058.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:418CF7ADA4EFA2031787D5F19925105781419380
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57059.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:58D078AF3F94596F35CFD5C76149392046C7BF72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57060.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BE99DBA78C39C509EFF1A2CF77BBC42283147303
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57061.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:435D2245541EF408FF684E8334ABAD0563C1C471
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57062.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7CB8D60D0F6CF83412E778F0E60E7901CB69F4DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57063.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:8635E8B1F2ED834E7D9F280ED5A17B1D7EBE36E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57064.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57065.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:A1C09EC51345F80516F8A31C1772811A21216D11
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57066.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:705BC859D368D443E1173FE708AF737675CA0358
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57067.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:705BC859D368D443E1173FE708AF737675CA0358
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57068.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:90F83466B1197C287CC3733ADA7B594AC6803A94
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57069.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C78ADFA94CCA62C323102C1ACFF4FFC506CD93BA
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57070.jpg" />
 </div>
 
 

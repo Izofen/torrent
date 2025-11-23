@@ -6,7 +6,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24310.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24311.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CPU-Z 2.15.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24312.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by Dodakaedr [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24313.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CD9E87BDAA59B825A2E5EC9F937171035189A142
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24314.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DF852558F1D80CA8DB1A6B9D103619D001CD1C9C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24315.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:AB9B4FD57EC3B64AFA7DF4544C4F75657A4DBA41
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24316.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Windows 11 [10.0.26100.3476], Version 24H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24317.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C03E4D76AB88B7BC0E947590B95B06CEEDF1A5F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24318.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24319.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24320.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Udemy, David Nixon | Unreal Engine 5 for Games: Physics (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24321.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:FAF1BF36EE156B5401D5D554F1C0437CF137F480
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24322.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Windows 10 [10.0.19045.5608], Version 22H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24323.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:95A3DF0E22F219968A7A27F90CFBD2711A0E5F0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24324.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3E0E25327FC6BBB4E19742F12632966805A8C528
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24325.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ TranslucentTB 2024.4 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24326.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3066E86CAF710FB798E904AF5F68E7BE6C0B6891
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24327.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1B861C5976F77ADAEC894E900806DCD3706FE4E7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24328.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C7BABCB01C9E51A0F3F110B384CFD104157C7789
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24329.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Microsoft Windows 10 [10.0.19045.5608], Version 22H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24330.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:CFD7B1657F3903039FF709388D31BD30C3AD7428
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24331.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:FE96E1D430867CFCEADC29F60036D7BADB96EF66
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24332.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:E3AFAE325AE94BDBE59865A9F8B458E41971C0C8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24333.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Windows Server 2025 LTSC [10.0.26100.3476], Version 24H2 (Updated March 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24334.jpg" />
 </div>
 
 

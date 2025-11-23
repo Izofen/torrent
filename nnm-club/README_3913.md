@@ -1,3 +1,80 @@
+###  Публикация: 1693977   (121420) от 23.01.2024
+
+The Universim (2018) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121420.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Universim, симулятор бога, в котором успех вашей цивилизации зависит от грамотного управления планетой и собственным гневом. Ваши забавные человечки научились добывать огонь! Не успеете вы оглянуться, как они начнут строить деревни, затем города, затем впечатляющие приспособления, высасывающие из земли все соки, а затем, вероятно, и космические корабли, которые (   Читать дальше...   )Тип издания: SceneРазработчик: Crytivo GamesЖанр: Simulation, Strategy, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Английский, Португальский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823302   (121421) от 11.10.2025
+
+Сруб - Ележивика. Сокрытые записи (2025) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети Леса! Где-то в чаще, в глухих, забытых богом краях, стоит одинокий панельный дом-призрак. В былые времена была тут здравница — место, где врачевали не тела, но души, измученные городской суетой. Лекарством же служил редкий отвар из дикой ележивики, ягоды столь же призрачной, сколь и целительной, что произрастает лишь в этих сумрачных, намоленных местах.
+
+Ныне (   Читать дальше...   )1. Письмо с приглашением в здравницу
+2. Журнал здравницы о номере 141
+3. Испокон
+4. Журнал здравницы о номере 103(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4610112752F4DA5A7B69831ED9D3B6A8F2B6B529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692944   (121422) от 23.01.2024
+
+Выкуп / Bigongsikjakjeon / Ransomed / Unofficial Operation (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1980-х. Сотрудник дипломатической службы внезапно получает зашифрованное сообщение от своего похищенного коллеги, которого долгое время считали погибшим. Он решает отправиться на поиски своего сослуживца и спасти его любой ценой, вступив в смертельную схватку с отъявленными преступниками.Производство: Корея Южная, B&C CONTENT, ShowboxЖанр: боевик, комедияРежиссер: Ким Сон-хунАктеры: Ха Джон-у, Чу Джи-хун, Ю Сын-мок, Ким Ын-су, Лим Хён-гук, Ким Джон-су, Пак Хёк-квон, Берн Горман, Со Ён-сам, Чхве Джон-уПеревод: Дублированный (Видео Продакшн)Язык озвучки: русский, корейскийСубтитры: русские (IVI), корейские (forced, full, SDH), английскиеПродолжительность: 02:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E81F2FDD4E72C04F56CF82CCABD6D601E8479D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823299   (121423) от 11.10.2025
 
 Оверлеи - Gogivo - Realistic sunlight PNG and JPG overlays [PNG, JPG]
@@ -6,7 +83,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121423.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ MathWorks MATLAB R2023b v23.2.0.2485118 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121424.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121424.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ MATLAB – это интерактивная среда программиров
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121425.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:EA8C8AF9156EF9C79122CD91EF4D664FDB2DAB20
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121426.jpg" />
 </div>
 
 
@@ -104,7 +181,7 @@ YT Downloader 9.17.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121427.jpg" />
 </div>
 
 
@@ -128,7 +205,7 @@ Ant Download Manager Pro 2.16.0  Build 91578 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121428.jpg" />
 </div>
 
 
@@ -152,7 +229,7 @@ Telegram Desktop 6.2.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121429.jpg" />
 </div>
 
 
@@ -178,7 +255,7 @@ magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121430.jpg" />
 </div>
 
 
@@ -202,7 +279,7 @@ O&O Defrag Professional 30.0 Build 1057 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121431.jpg" />
 </div>
 
 
@@ -227,7 +304,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121432.jpg" />
 </div>
 
 
@@ -251,7 +328,7 @@ PIDKey Lite 1.64.4 b50 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121433.jpg" />
 </div>
 
 
@@ -275,7 +352,7 @@ magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121434.jpg" />
 </div>
 
 
@@ -299,7 +376,7 @@ magnet:?xt=urn:btih:D0C3AE363F52DC3819FE236CB917C9FC42432E0D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121435.jpg" />
 </div>
 
 
@@ -324,7 +401,7 @@ magnet:?xt=urn:btih:4272C395463FE32ED1B778575B902414CD494458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121436.jpg" />
 </div>
 
 
@@ -348,7 +425,7 @@ TrashMe 3.5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121437.jpg" />
 </div>
 
 
@@ -372,7 +449,7 @@ magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121438.jpg" />
 </div>
 
 
@@ -399,7 +476,7 @@ Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121439.jpg" />
 </div>
 
 
@@ -426,7 +503,7 @@ Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121440.jpg" />
 </div>
 
 
@@ -453,7 +530,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121441.jpg" />
 </div>
 
 
@@ -477,7 +554,7 @@ Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121442.jpg" />
 </div>
 
 
@@ -504,7 +581,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121443.jpg" />
 </div>
 
 
@@ -528,7 +605,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121444.jpg" />
 </div>
 
 
@@ -552,7 +629,7 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121445.jpg" />
 </div>
 
 
@@ -566,84 +643,6 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AD4C8ADF4CF00B30DDBB5B6B9754A0A60E5AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693821   (121446) от 22.01.2024
-
-Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling 02:51
-02. In Pieces 04:59
-03. Intruders 05:30
-04. The Children Of Water 05:42(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838D1010A9A2EA740765CAF1F4AC36F67BBFA933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823286   (121447) от 11.10.2025
-
-Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhanced Edition]
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя (заново) мрачный сказочный мир Little Nightmares с поддержкой 60 кадров в секунду и разрешением 4K. Little Nightmares Enhanced Edition позволяет увеличить число кадров в секунду или повысить качество изображения. В игре появятся улучшенные визуальные эффекты, включая трассировку лучей, объёмные лучи, эффекты воды и увеличенное количество частиц. (   Читать дальше...   )Тип издания: RepackРазработчик: Engine Software BVЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693781   (121448) от 22.01.2024
-
-Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunter (5:19)
-02. Breed (5:50)
-03. Ji (3:46)
-04. Gently Walking the Himalayas (4:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
 ```
 
 

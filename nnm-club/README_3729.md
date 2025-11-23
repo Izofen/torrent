@@ -1,3 +1,75 @@
+###  Публикация: 1701239   (116636) от 20.02.2024
+
+Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepticon [Digital Deluxe Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cossacks 3 - стратегия в реальном времени с уклоном на историческую достоверность. События игры действительно переносят нас во время эпох, за которое мы играем, а максимальное погружение создается за счет огромного количества деталей. На карте, которая всегда будет иметь разный ландшафт по мере открытия, вы сможете построить город, снабдить его руководящим составом (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Strategy (Real-time), 3D, IsometricЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD491996C616C12E6860A06FB0C740C0DD9C7C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701176   (116637) от 20.02.2024
+
+Сталкер / Stalker (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Застрять в жутком старом лифте поздно вечером без связи не самое приятное времяпровождение, но Роуз попадает в ситуацию намного хуже. Странный и безобидный на первый взгляд пассажир, оказавшийся запертым с ней в кабине лифта, оказывается не тем, кем кажется. И скоро становится ясно одно - из лифта живым выйдет только один из них.Производство: Великобритания, StrongholdЖанр: триллерРежиссер: Стив ДжонсонАктеры: Софи Скелтон, Стюарт Бреннан, Брэт Харт, Olivia J. Night, Додди Эль-ГабриПеревод: Дублированный (Moygolos)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9564195F0C9DB21ECD5520F943FCD8BBC9BF81F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700931   (116638) от 20.02.2024
+
+В Госдуме разъяснили ограничения в выращивании ипомеи трехцветной на даче
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ранее стало известно, за выращивание ипомеи трехцветной на дачном участке можно получить до двух лет лишения свободы. Но так сурово накажут не каждого уличенного дачника. Разъяснения в комментарии "РГ" по этому поводу дал депутат Госдумы, председатель Союза дачников Подмосковья Никита Чаплин."Ипомею трехцветную включили в перечень растений, подлежащих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701161   (116639) от 20.02.2024
 
 Девушка Миллера / Miller's Girl (2024) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116639.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:24EBEC4411B8837B54428309F0FBC8ACA9C4CBAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116640.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:25125342FFA5FB55D96554B5D26C5135E869EBCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116641.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:201D8662AFF6781FD266CA5449C2D3C5C23D2B9B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116642.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4046 (Updated Feb 2024) by FaTaL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116643.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Windows 11 удалит данные пользователя, если отка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116644.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Windows 11 удалит данные пользователя, если отка
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116645.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:833187C79E485427CAFA891E7C9706218D8A5E21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116646.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ The Once - Out Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116647.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Eisenkult - Vulgare, deutsche Hassmusik (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116648.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116649.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116650.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ The Immediate Family - Srin In The Game (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116651.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ Folder-Factory 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116652.jpg" />
 </div>
 
 
@@ -364,7 +436,7 @@ Fatal Rails - Damned (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116653.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116654.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ NCH Crescendo Masters Pro 10.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116655.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116656.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116657.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Suicide Of Society - War Investment (2020) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116658.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ EdgeView 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116659.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ QOwnNotes 24.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116660.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ magnet:?xt=urn:btih:874DDB6D7658B53CE061202E74EF5781201D0B43
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116661.jpg" />
 </div>
 
 
@@ -582,81 +654,6 @@ magnet:?xt=urn:btih:874DDB6D7658B53CE061202E74EF5781201D0B43
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE0D88B3EE03768D99A4C2D0FADCC8975DA1CC85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701022   (116662) от 19.02.2024
-
-Fort Firewall 3.11.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0FC12EED24E647718D350C1BD4EDCCA807F907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700895   (116663) от 19.02.2024
-
-Mr.Bison - Echoes From The Universe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock/Psych/Prog/Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Child Of The Night Sky
-02. Collision
-03. Dead In The Eye
-04. Fragments(   Читать дальше...   )Жанр: Heavy Rock/Psych/Prog/StonerПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E879DEA5EBD34DDEDC6A6DAB9AF4C86FF918FB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701051   (116664) от 19.02.2024
-
-Подшивка газеты | Моя Семья №1-6 (январь-февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116664.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ADC347E60D74973C48C0706D9A0E65712E1956
 ```
 
 

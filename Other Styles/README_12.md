@@ -6,7 +6,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130836.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131948.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132348.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132372.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133344.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133476.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_133511.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_133511.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133526.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133923.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134223.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134346.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134516.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134516.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135121.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135183.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135189.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135296.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135397.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135636.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136486.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137620.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137685.jpg" />
 </div>
 
 

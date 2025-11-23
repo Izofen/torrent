@@ -1,3 +1,79 @@
+###  Публикация: 1699119   (118144) от 11.02.2024
+
+А. Ф. Сафонов, А. М. Гатаулин и др. | Системы земледелия (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены теоретические, методологические и технологические основы систем земледелия. Даны агроэкономическое и агроэкологическое обосно­вания структуры посевных площадей, оценка системы севооборотов. Пока­зана почвозащитная ресурсосберегающая направленность системы обра­ботки почвы. Рассмотрена система обустройства природных кормовых уго­дий.
+Для студентов вузов, (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3552AD195CAB39BB66343E04D6528C489B5540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699094   (118145) от 11.02.2024
+
+PeaZip 9.7.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118145.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5280B17AA583425879552462E776EEA1B90907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698867   (118146) от 11.02.2024
+
+My Dying Bride - A Mortal Binding (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Her Dominion
+02. Thornwyck Hymn
+03. The 2nd of Three Bells
+04. Unthroned Creed(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:3654:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D98F92AA9CA927F905F7DEA146FD0471959B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699050   (118147) от 11.02.2024
 
 Syntheticsax - Mirage (2021) [FLAC|Lossless|tracks] <Disco>
@@ -6,7 +82,7 @@ Syntheticsax - Mirage (2021) [FLAC|Lossless|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118147.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ CastBox - Популярные подкасты v11.11.0 Mod by Balatan [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118148.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:DD49FB78E7E3F55B2187855D498816549712DBE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118149.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:DD49FB78E7E3F55B2187855D498816549712DBE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118150.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ magnet:?xt=urn:btih:EBDBC7A9702803C4D8A4D0F298F2C27BAC4EE327
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118151.jpg" />
 </div>
 
 
@@ -126,7 +202,7 @@ magnet:?xt=urn:btih:CB2E42500F85BE0D9373DDAF02AF462944A50576
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118152.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:3E4F1684D4CF559EC188EC0F988630A0E4064965
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118153.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ magnet:?xt=urn:btih:D387D65985AABA7122EDCE3883FC1C0EBD8599CC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118154.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ magnet:?xt=urn:btih:DF9E1607D1240E0B995CAD88647558FA54B70C04
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118155.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ magnet:?xt=urn:btih:9BA51066249A641826F4C8AF96E46CCB66A64034
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118156.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ magnet:?xt=urn:btih:58852272CBAEFA8D5E612BC1E3D13D1AFEE62FCA
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118157.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ magnet:?xt=urn:btih:A77F3FB9C379F0FEA2F8FA724BC9946ECD1022B3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118158.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ magnet:?xt=urn:btih:D35AB64C9FDB4BD206C2652E673D2D94B76C4954
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118159.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ magnet:?xt=urn:btih:8E5D0E01A705A62951CE7374F090DA36AF8D65A3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118160.jpg" />
 </div>
 
 
@@ -353,7 +429,7 @@ magnet:?xt=urn:btih:047717DF0078CB3E77E538887AB28C450498B8E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118161.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ VA - Electro Swing compilation part 53 (2024) [MP3|320 Kbps] <Electro Swing, Nu 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118162.jpg" />
 </div>
 
 
@@ -404,7 +480,7 @@ magnet:?xt=urn:btih:6272F74CD4A686CB376132B19CA28CAD104B591A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118163.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ magnet:?xt=urn:btih:315B2C3B14B6AA347228AE5EB796683A81B2F726
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118164.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ magnet:?xt=urn:btih:3F7FC23DDB5AF481EF0DB83328CEB1F0ED5FCC84
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118165.jpg" />
 </div>
 
 
@@ -477,7 +553,7 @@ magnet:?xt=urn:btih:76D2546AE68AA0BA14ACA2CB83983A38A7325889
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118166.jpg" />
 </div>
 
 
@@ -503,7 +579,7 @@ magnet:?xt=urn:btih:E925EDF88AF424558419D45B775C0696490121EA
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118167.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ magnet:?xt=urn:btih:ADD32DB9E8EB563937A2A4CB2BFA04242C1DFBC6
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118168.jpg" />
 </div>
 
 
@@ -552,7 +628,7 @@ magnet:?xt=urn:btih:3DC78FB1CDBC8E60CDF7F9691EE0A6B81C9B1DFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118169.jpg" />
 </div>
 
 
@@ -563,78 +639,6 @@ magnet:?xt=urn:btih:3DC78FB1CDBC8E60CDF7F9691EE0A6B81C9B1DFD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F957EB713630E555FA4951C783570AE35C91A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698891   (118170) от 11.02.2024
-
-Всем ветрам назло (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алисе Лапиковой семнадцать лет. У нее вполне обеспеченная жизнь: богатый отец, хороший дом, куча денег на карманные расходы. На этом все хорошее в жизни Алисы и заканчивается. У нее отвратительные отношения с мачехой Еленой и ее дочерью от первого брака Лидой. И все винят в этом Алису. Даже родной отец. Елена сначала обвиняет Алису в воровстве — якобы та украла дорогое (   Читать дальше...   )Производство: Россия / ВГТРК, С.Д.Л.Жанр: мелодрамаРежиссер: Евгений БарановАктеры: Настасья Самбурская, Алена Долголенко, Владислав Резник, Алла Юганова, Маруся Фурина, Данила Дедовец, Роман Семейко, Леонид Громов, Софья Ковалева, Дарья БелоусоваСубтитры: РусскиеПродолжительность: 02:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAB38F5531500F264088AC7E9092143A81A3384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694969   (118171) от 11.02.2024
-
-Председатель (1964) DVDRip [H.264/1080p] (серии 1-2 из 2) [50fps] [Колоризованная версия] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжелый послевоенный 1947 год. Фронтовик Егор Трубников возвращается в родную деревню восстанавливать разоренное хозяйство. Ему приходится нелегко. Став председателем, он берет на себя ответственность не только за колхозные дела, но и за судьбы людей...Производство: СССР / «Мосфильм»Жанр: драмаРежиссер: Алексей СалтыковАктеры: Михаил Ульянов, Иван Лапиков, Нонна Мордюкова, Вячеслав Невинный, Валентина Владимирова, Николай Парфенов, Кира Головко, Антонина Богданова, Владимир Этуш, Сергей КуриловЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F0FE7E404435A00784E68C257109629D5DDF22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698950   (118172) от 11.02.2024
-
-Менеджер Паролей SafeInCloud 2 v24.3.5 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 06.02.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72EAEC6493880E21A89915EA5B6A79DBACF09A1
 ```
 
 

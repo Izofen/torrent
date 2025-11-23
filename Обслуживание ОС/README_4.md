@@ -6,7 +6,7 @@ WinContig 5.0.3.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Uninstaller Pro 5.3.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34721.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Abelssoft PC Fresh 2025 v11.01.58277 Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35652.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ashampoo UnInstaller 15.00.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36111.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DriverStore Explorer 0.11.92 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38145.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.5.1  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40510.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ IObit Driver Booster Pro 12.0.0.356 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40823.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Glary Utilities Pro 6.32.0.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41023.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Driver Easy Pro 7.1.0.2641 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41024.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Macrorit Partition Expert Pro 8.2.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41482.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42050.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42113.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wipe Pro 2408 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44252.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics Driver Updater 2.0.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44819.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:5AA96A9D516166025B25D5D88A1A6096E1996CB6
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45148.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Ashampoo UnInstaller 15.00.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45172.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Ashampoo UnInstaller 15.00.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45442.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Optimizer 16.7 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46419.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Glary Utilities Pro 6.13.0.17 [Multi/Ru] (Акция Comss)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46617.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ InControl 1.0.2 (DC-28.02.2024) Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47165.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Glarysoft File Recovery Pro 1.26.0.28 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48420.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Glary Utilities Pro 6.13.0.17 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48470.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AutoSettingsPS 0.5.9fix 12.07.2024 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48930.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Wise Care 365 Pro 6.7.5.650 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48973.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PowerRun 1.7 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49201.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Windows Manager 2.0.3 + Portable (x64) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49235.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1721003   (110188) от 05.05.2024
+
+Кукурузные хлопья / Corn Chips (1951) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дональд заставляет озорников расчистить от снега дорожку у него в саду. Но все превращается в сумасшедшую уборку попкорна!Производство: США / Walt Disney ProductionsЖанр: мультфильм, короткометражка, комедия, детскийРежиссер: Джек ХаннаПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389498C05E64529B8002483D5DC6DAE5EB0EF8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721014   (110189) от 05.05.2024
+
+Люди из разведки / The Intelligence Men (1965) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110189.jpg" />
+</div>
+
+
+###  Подробнее
+
+По воле случая, скромный менеджер буфета оказывается втянут в опасные игры спецслужб. По просьбе друга из MI5, он соглашается заменить умершего майора Кавендиша, который сумел проникнуть в некую тайную организацию планирующую убийство русской балерины.Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: комедия, детективРежиссер: Роберт ЭшерАктеры: Эрик Моркэм, Эрни Уайз, Уильям Франклин, Эйприл Олрич, Глория Пол, Ричард Вернон, Дэвид Лодж, Жаклин Джонс, Теренс Александр, Френсис МэтьюзПеревод: Одноголосый любительский (Вадим Белов)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29127DC59EB1C029D8C6ABA3FCBC7BA4836F05CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721069   (110190) от 05.05.2024
+
+Новая Битва экстрасенсов (04.05.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 07)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110190.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6397309990F54C160620053394C15D15342C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720952   (110191) от 05.05.2024
 
 Обыкновенные люди / Ordinary People (1980) BDRip [H.264/720p]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110191.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Brave Browser 1.65.126 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110192.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Futurephonic - Rhythmizer Ultra 1.1.0 CLAP, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110193.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:87A0D49A1A1AAE346E4ABA205799CC0E291475E8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110194.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Shotcut 24.04.28 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110195.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:3318DAC4573502E6B962B65ACEFE3A8A9F51797A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110196.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:F8EF919E1AB9D0BD4D36298E6131D3085499EF3D
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110197.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ FastCopy Pro 5.7.10 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110198.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:EE940E217D5A8F92CF5AD9E771B08256285B8274
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110199.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:162424D233C3BF31C8D6ACDA67C3428B839BF158
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110200.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:7A016A193A741D223A34932ACCC9BB6BF5EEFC22
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110201.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Perseus - Into The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110202.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Rapid Transit - Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110203.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:7BE7022BF3496429E37D0C3A4CD385D268F18316
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110204.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Eternal Breath - Road to Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110205.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:529A70D22816C34BE772561658760722421031AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110206.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ Fergus McCreadie - Stream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110207.jpg" />
 </div>
 
 
@@ -430,7 +502,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110208.jpg" />
 </div>
 
 
@@ -457,7 +529,7 @@ Win Pongsakorn - Time Has Changed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110209.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ Tim Garland - Moment Of Departure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110210.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Blaze of Perdition - Upharsin (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110211.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110212.jpg" />
 </div>
 
 
@@ -565,7 +637,7 @@ Wheel - Charismatic Leaders (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110213.jpg" />
 </div>
 
 
@@ -579,84 +651,6 @@ Wheel - Charismatic Leaders (2024) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D895AECC9FB083B626C4A0CEB729C1BCF2249C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720747   (110214) от 04.05.2024
-
-Missio - I Am Cinco (2024) [FLAC|Lossless|WEB-DL|tracks] <electropop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall into a Blackhole [00:02:59]
-02. The Higher You Climb [00:03:06]
-03. Pulled Down Low [00:04:06]
-04. Time [00:03:14]Жанр: electropopПродолжительность: 5 CD, 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6070EA6ED65E21BF77D3B4256CC39A90432E71DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720616   (110215) от 04.05.2024
-
-PhotoDirector v19.1.8 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110215.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98DDB02B4A24777BDA4998966485AB8F175AD78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720723   (110216) от 04.05.2024
-
-Имбирный DED - Час пик (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Две белых полосы [00:03:55]
-02. Час пик [00:04:06]
-03. Капитан [00:03:41]
-04. Когда [00:04:27](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731B64829B7633958B19FFB1C73F3AB1D65C50A1
 ```
 
 

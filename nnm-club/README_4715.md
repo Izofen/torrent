@@ -1,3 +1,178 @@
+###  Публикация: 589067   (146160) от 16.12.2012
+
+Technical Itch - The Failed Evolution EP (2012) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technical Itch - Failed Evolutionary Experiment
+02. Technical Itch - Elektrane
+03. Technical Itch - Creature of War
+04. Technical Itch - Nemago
+05. Technical Itch - AuraЖанр: Drum and BassПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF32D08DC4074CFEEB2044E817987FBBEB15B294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087401   (146161) от 27.12.2016
+
+Расплата / The Accountant (2016) HDRip [H.264] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США / Warner Bros. Pictures, RatPac-Dune Entertainment, Zero Gravity ManagementЖанр: боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3D6B13F8EF5B6F5E9D985A2B5AAF3347BABD6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348027   (146162) от 26.12.2019
+
+ТерраМатер: Дикое Рождество / Terra Mater: O du wilde Weihnachtszeit (2018) HDTVRip [H.264/720p-LQ] (сезон 1, эпизод 288)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезон Рождества - время для отдыха, время для созерцания. Кругом царят холод и тьма. Или нет? Ведь далеко на юге во время Рождества лето, дождливый сезон, время обзавестись потомством. Неважно какая погода - жаркая, дождливая, морозная. Для животных в дикой природе рождественский сезон может быть непростым.Производство: Sudwestrundfunk (SWR), Terra Mater Factual StudiosЖанр: Документальный, природа, флора, фаунаРежиссер: Susanne LummerАктеры: Peter FaerberПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A61570FEA5BB0831DF84FEA4F6E7B115D41E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087189   (146163) от 27.12.2016
+
+Холодное блюдо (2015) HDTVRip [H.264/1080p-LQ] (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда жених Жени Олег погибает в автокатастрофе по вине пьяного водителя, то она жаждет только одного: чтобы Костю Стрельцова, совершившего наезд, посадили надолго. Но этого не случается, так как шалопай Костя — сын местного олигарха, и отец неоднократно спасал его от ответственности. Тогда Женя решает, что свершит правосудие сама и добьется того, чтобы Костя оказался (   Читать дальше...   )Производство: Россия / кинокомпания "ПАЛАМЕДА ПРОДАКШН"Жанр: мелодрамаРежиссер: Глеб ЯкубовскийАктеры: Евгения Нохрина, Алексей Демидов, Павел Яскевич, Александр Суцковер, Вячеслав Павлють, Олег Ткачёв, Ольга Сизова, Дмитрий Есеневич, Зоя Белохвостик, Валентина Гарцуева, Андрей Олиференко, Сергей Чуб и др.Продолжительность: 2 х ~00:01:30 (в одном файле две серии)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AC4778409AB48F1CD0208399E5C8F55C19A972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271566   (146164) от 25.12.2018
+
+Миссия невыполнима: Последствия / Mission: Impossible - Fallout (2018) BDRip [H.265/1080p-LQ] [10-bit] [IMAX Edition]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итан Хант и его команда, а также недавно примкнувшие к ним союзники, вынуждены действовать наперегонки со временем, когда новая миссия идет не по плану.Производство: США, Китай, Франция, Норвегия / Paramount Pictures,Skydance Media,TC ProductionsЖанр: Боевик, Триллер, ПриключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Ребекка Фергюсон, Генри Кавилл, Мишель Монахэн, Ванесса Кирби, Уэс Бентли, Саймон Пегг, Анджела БассеттПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78C3F9F4B67908348ED6FE7CC8DD3F3C5227FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435209   (146165) от 27.12.2020
+
+Очевидец / Oyevitne (2014) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое 15-летних парней тайно встречаются в лесу и неожиданно становятся очевидцами кровавой бойни. Преступник их замечает, но им удаётся сбежать. Они хранят увиденное в секрете в страхе не только перед преступником, но и боясь, что их тайна будет раскрыта.Производство: Норвегия / NRK DramaЖанр: драма, криминалРежиссер: Jarl Emsell LarsenАктеры: Пер Кьерштад Андерсен, Axel Bøyum, Один Вааге, Аннеке фон Дер Липпе, Yngvild Støen Grotmol, Ким Серенсен, Ингве Бервен, Ингьерд Эгеберг, Рейдар Серенсен, Бьорн СкагестадПеревод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A422BF70E96138F47B8BC373EAF0BA2F3574F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678231   (146166) от 21.11.2023
+
+тринадцать карат - еще одна ночь (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. еще одна ночь [00:02:25]
+02. запутанный мир [00:02:22]
+03. останови меня [00:02:10]
+04. 00:13 [00:00:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488FEE7484B78FDB6ECB41A2538CA2EA6FE0051F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 802292   (146167) от 27.12.2015
 
 Николай Леонов, Алексей Макеев | Собрание сочинений [221 книга. Обновляемая] (1965-2015) [FB2]
@@ -6,7 +181,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146167.jpg" />
 </div>
 
 
@@ -31,7 +206,7 @@ Icecream PDF Editor PRO 2.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146169.jpg" />
 </div>
 
 
@@ -55,7 +230,7 @@ XMind 7 Pro 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146170.jpg" />
 </div>
 
 
@@ -79,7 +254,7 @@ magnet:?xt=urn:btih:0B9428627D15380FEE04921D70DD2A1705DEB58B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146171.jpg" />
 </div>
 
 
@@ -103,7 +278,7 @@ Mizmor - 8 Albums (2012-2023) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146172.jpg" />
 </div>
 
 
@@ -130,7 +305,7 @@ Alfred 3 Powerpack 3.7.1(948)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146173.jpg" />
 </div>
 
 
@@ -157,7 +332,7 @@ magnet:?xt=urn:btih:C9416EB4E6E3821276582081AF7378252586315F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146175.jpg" />
 </div>
 
 
@@ -183,7 +358,7 @@ VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146176.jpg" />
 </div>
 
 
@@ -216,7 +391,7 @@ magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146177.jpg" />
 </div>
 
 
@@ -240,7 +415,7 @@ Adguard Премиум 5.10.2051.6368 DC 28.10.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146178.jpg" />
 </div>
 
 
@@ -264,7 +439,7 @@ magnet:?xt=urn:btih:01C6FCBA5AFBEC16CA2809868CEEA38AB32B0BEC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146179.jpg" />
 </div>
 
 
@@ -288,7 +463,7 @@ Soars - Repeater (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146180.jpg" />
 </div>
 
 
@@ -315,7 +490,7 @@ magnet:?xt=urn:btih:B5736D7A6F31CA2A9BBF966C852BB979C3364EF1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146181.jpg" />
 </div>
 
 
@@ -339,7 +514,7 @@ magnet:?xt=urn:btih:9E4BF459B9C48D90597565EEE467B081BA67D0B9
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146182.jpg" />
 </div>
 
 
@@ -365,7 +540,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -392,7 +567,7 @@ magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146184.jpg" />
 </div>
 
 
@@ -416,7 +591,7 @@ Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146185.jpg" />
 </div>
 
 
@@ -443,7 +618,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146187.jpg" />
 </div>
 
 
@@ -467,7 +642,7 @@ magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146188.jpg" />
 </div>
 
 
@@ -478,184 +653,6 @@ magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F01692AFCBC722B433463CD49F6A7FB8B83F056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519624   (146189) от 25.12.2021
-
-Михаил Ритчер | Онлайн курс "Инвестирование в криптовалюту" (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инвестирование в криптовалюты.
-Уже за 40 дней Вы начнете анализировать монеты с помощью сервисов, фильтров и уровням, прогнозировать риски, торговать на биржах, а также создадите крипто-портфель.Михаил Ритчер
-Инвестор, управляющий активами
-Со-основатель группы финансовых компаний MRP, фонда инвестирования в IPO MegoW.(   Читать дальше...   )Жанр: ИнвестицииПродолжительность: 08:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39898EB948D6E294FA07C00A0E945AAE7D472BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678340   (146190) от 21.11.2023
-
-Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Century Media Records Ltd. [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reign of the Tyrants (re-recorded) [00:03:36]
-02. Eyes of the Night (re-recorded) [00:05:51]
-03. The Church (re-recorded) [00:03:12]
-04. Metal Melts the Ice (re-recorded) [00:04:00](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 2 CD, 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12B94477424ED24BBEF305DC1440EC046A4C2BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271932   (146191) от 25.12.2018
-
-Местные / The Domestics (2018) BDRemux  [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146191.jpg" />
-</div>
-
-
-###  Подробнее
-
-После постигшего Америку апокалиптического события Средний Запад разделён на территории банд. Находившаяся до катаклизма в процессе развода семейная пара пытается добраться через опасную местность до родителей жены, в Милуоки.Производство: США / Hollywood Gang ProductionsЖанр: Ужасы, триллерРежиссер: Майк П. НельсонАктеры: Тайлер Хэклин, Кейт Босворт, Соноя Мидзуно, Давид Дастмалчян, Лэнс Реддик, Дэна Гурье, Лора Кайюэтт, Майк П. Нельсон, Дэйв Дэвис, Брэд ЛелэндПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D99C65ABCB861AE594AF2A45485C8EBF537AC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969474   (146192) от 27.12.2015
-
-Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
-записанной на ноутбуке Asus x555ln-xo184h (90nb0642-m05630)
-с помощью программы Windows Recovery Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435066   (146194) от 27.12.2020
-
-Журнал | Psychologies №12-1 (56) (декабрь 2020 - январь 2021) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484681977B365DA2E5E8BED7B78F3F5D1A2F9F5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519833   (146195) от 25.12.2021
-
-Уэйн Л. Винстон | Бизнес-моделирование и анализ данных. Решение актуальных задач с помощью Microsoft Excel (2021) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэйн Винстон научит вас быстро анализировать данные, принимать решения, подводить итоги, составлять отчеты, обрабатывать данные и строить аналитические модели в Microsoft Excel 2019 и Ofﬁce 365. В новом шестом издании вас ждут более 800 бизнес-задач, основанных на реальных ситуациях, а также обсуждение новых инструментов и функций. Где бы вы ни работали – (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABB379B8A8FB8D75171CEE75CEC300A231E873A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348026   (146196) от 26.12.2019
-
-Т.В. Кагукина (сост.) | Подготовка к олимпиадам по иностранному языку (английский) (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые материалы содержат тестовые задания и тренировочные упражнения, обеспечивающие повторение и систематизацию материала, предусмотренного учебной программой для общеобразовательных учреждений. Особое внимание уделяется грамматическим аспектам языка, пониманию текста, проверке сформированности словарного запаса.
-Методические рекомендации предназначены для (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219077145429FBEF56F610E161D05C6879A7FB5C
 ```
 
 

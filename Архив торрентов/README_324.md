@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80494.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cобытия развиваются после того, как люди во �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80498.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ V-Tunes - Variable (2006) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80541.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ V-Tunes - Variable (2006) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80555.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:3477B09FC8872BD5845E3AB8160F75FE2AF72AC9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80563.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Christopher Lawrence & John '00' Fleming - Global Trance Grooves Vol. 1: Tw
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80572.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Christopher Lawrence & John '00' Fleming - Global Trance Grooves Vol. 1: Tw
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80577.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Passenger 10 - Blue Harbour (Around The World in 60 Minutes)[MP3|320 кб/с]<Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80593.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BDE256860B4F2EFD726107FB62AEA365BAD644C0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80597.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B9E64BC5AD5AE5CBA9A858D5DE6E30DE3932EA71
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80601.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C0CA424B73C3DC7F6E47F84575EA01929B033727
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80631.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:CFEC5CC22CE046EF60EE3EF67830C6EED92F0820
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80636.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:755BF52FF2C283DB3A11C36FCA30C9F91C217FFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80638.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:00B1B17A480FC167F73E05B9E5612E1A95DEE493
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80644.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1DE7C94AB393630C4FC15D30E30BD4D34C3ADE9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80659.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:AF265E2CD10DE241BD1EBA41DFC7E025ADF16DCD
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80663.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:34448687666F0285D0295EE997C671CFCFBCD462
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80665.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:229A35EF3F0EE317FAE27687DB5EA8593BC92D06
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80668.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Badfinger - No Dice (1970) [FLAC|Lossless]<Rock, pop, power pop, pop rock, hard 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80747.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ The Last Remnant Original Soundtrack (2008) [MP3|~245 kbps]<GameSoundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80751.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Various Artists - Twisted Metal (2012) [MP3|192 кб/с]<Soundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80756.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D0C8FC5B1C696EDFA59C3292F653E01232F55B3C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80758.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:20DD456B94B405BF7A159926320356DB761CFBB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80763.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A4BB5DE216C216FC2797156632D47CCB30787479
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80764.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:83C0B85259BD0F0E4719382311E8BEA24EEB1B15
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80774.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:474177289C6B8AE8A7EB7FA319872AE5F05FA5C3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80777.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1701745   (116168) от 22.02.2024
+
+Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me High (3:55)
+02. Stop in the Middle (5:29)
+03. Bad Boy (3:58)
+04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701600   (116169) от 22.02.2024
+
+Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presages (02:07)
+02. The Bell That Constantly Sounds (08:31)
+03. Decline (05:44)
+04. Visions of Absence (05:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701478   (116170) от 22.02.2024
+
+Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for Malcolm [7:42]
+02. That's All There Is to Love [5:45]
+03. Pomponio [10:21]
+04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701688   (116171) от 22.02.2024
 
 Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
@@ -6,7 +87,7 @@ Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116171.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116172.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116173.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Keep It 2.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116174.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116175.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116176.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116177.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116178.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Acorn 7 v.7.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116179.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ magnet:?xt=urn:btih:F0CEAEB7D81D17FA0C50BE39595D9AAF85CD901C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116180.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116181.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116182.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116183.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ FxFactory Pro 8.0.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116184.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ Monkey's Audio 10.51 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116185.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ magnet:?xt=urn:btih:4EBEA2B38D3BDA54668EC241EB0227CA4A3061FB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116186.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:B55570F35C0365AF4BB6AEE9922E5C6017D91BD1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116187.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ Final Draft 13 v.13.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116188.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ magnet:?xt=urn:btih:68A07EB5D3371E0EF61C3D202720BAA31EFD9514
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116189.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116190.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116191.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ Proxyman for Mac 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116192.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116193.jpg" />
 </div>
 
 
@@ -584,81 +665,6 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BAF644960FD08E38A4044F5BFA594E787B1C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701820   (116194) от 22.02.2024
-
-MouseBoost pro for Mac 3.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение MouseBoost, ранее как GM Right Mouse Pro, устанавливается как расширение Finder и объединяет более 30 видов небольших инструментов.  Способ работы очень прост: пока вы нажимаете правую кнопку мыши, вы можете активировать все виды функций, которые вы хотите, так что эффективность вашей работы значительно повышается.Тип издания: macOS SoftwareРелиз состоялся: 22.06.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702C6CE81CD7232E8EDD7CB36199C1EBAAB0DF8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701670   (116195) от 22.02.2024
-
-Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just My Cup Of Tea [03:35]
-02. Mid Life Crisis [03:08]
-03. Coz We Luv You [03:57]
-04. I Won't Be Playing Wonderwall Tonight [04:07](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701602   (116196) от 22.02.2024
-
-Агентство разбитых сердец / Die Liebeskummerer (2024) [H.264/1080p] [UKR, GER / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Циничный журналист безрассудно решается на терапию для разбитых сердец ради написания статьи, но в итоге влюбляется в очаровательного терапевта.Производство: Германия / UFA FictionЖанр: мелодрама, комедияРежиссер: Ширел ПелегАктеры: Розалия Томас, Лоуренс Рупп, Джейкоб Шрейер, Джерри Хоффманн, Денис М’Байе, Шарлин Дец, Мария Хофштаттер, Тимур Исик, Озгюр Карадениз, Эриель Нил ЛевиПеревод: Дублированный (укр. Так Треба Продакшин / Netflix)Язык озвучки: украинский, немецкийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17145ED540174C39E10D72DEF164BF87833D7307
 ```
 
 

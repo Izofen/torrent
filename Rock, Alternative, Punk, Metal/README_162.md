@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Magoria - Hollingsworth Mansion (2017) 2024, Butler Records [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114010.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Opera Magna - Heroica (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114024.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blue Dawn - Reflections From An Unseen World (2023) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114026.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114031.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Zakk Sabbath - Doomed Forever Forever Doomed (2024) 2 x CD [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114041.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Farsot - Life Promised Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114107.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Believer - Dimensions (1993) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114111.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cycleam - Dream Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114115.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tragedian - Seven Dimensions (2021) [FLAC|Lossless|image + .cue] <Melodic Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114121.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Blind Illusion - Wrath Of The Gods (2022) [FLAC|Lossless|image + .cue] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114126.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ric Ocasek - Fireball Zone (1991) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114129.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Twisted Tower Dire - Wars In The Unknown (2019) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114134.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D5155CC89ACE04044A001E25211C22FB53F97524
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114172.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114287.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114291.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:11A8E5201BB9A556F6209BE2DF3D93B4CFB82C96
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114318.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114326.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114327.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114328.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Асса (1996) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114363.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114475.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114476.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114479.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Believer - Sanity Obscure (1990) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114482.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114490.jpg" />
 </div>
 
 

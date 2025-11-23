@@ -6,7 +6,7 @@ Fast Video Cutter Joiner 6.8.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5876.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.16 (2408) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5885.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2025.001.20643 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5886.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.8.57529 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5887.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Aiseesoft Video Converter Ultimate 10.9.16 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5888.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:78970156DD1E75DA13AA9DD209C05952A24047B6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5922.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MassTube Ultra 21.0.0.155 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5988.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ HiPER Calc Pro v11.2.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6002.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ AirBrush: ИИ Фоторедактор v7.15.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6003.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Flyoobe 1.4.200 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6036.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MyLanViewer 6.5.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6045.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Firefox Browser 142.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6114.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Firefox Browser ESR 115.27.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6158.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Glary Utilities Pro 6.29.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6161.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ iTubeGo YouTube Downloader 10.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6172.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Folder Player Pro v5.35 b352 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6214.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Strava: бег, велоезда, хайкинг v425.11 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6281.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ HandBrake 1.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6292.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Genius Art: Image AI Generator v1.4.4 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6295.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ YT Downloader 9.16.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6298.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Native Instruments - Kontakt 8.6.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6310.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:549CA04E54054B44178D11B0ADA1467974267E6C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6317.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Plus Messenger (Telegram+)  v11.14.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6320.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ IObit Uninstaller Pro 15.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6322.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wise Disk Cleaner 11.2.6.846 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6324.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Purvpn 8.7 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6326.jpg" />
 </div>
 
 

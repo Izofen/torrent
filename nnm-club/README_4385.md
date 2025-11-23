@@ -1,3 +1,79 @@
+###  Публикация: 1679628   (135182) от 26.11.2023
+
+Формула 1. Сезон 2023. Этап 23. Гран-при Абу-Даби. Квалификация (25.11.2023) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135182.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2023, суббота 17:00 МСК. Этап 23, Абу-Даби, ОАЭ. Гран-при Абу-Даби. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6C8292807BA0601351A89EA2FB2941EBEB81D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679659   (135183) от 26.11.2023
+
+Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New Age Music for Making Love (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Game (4:07)
+02. Wild Energy (4:08)
+03. Tantric Background Masters (3:48)
+04. First Experience (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B014620C3D02477D356E96F72988179C758DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679761   (135184) от 26.11.2023
+
+AllDup 4.5.56 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135184.jpg" />
+</div>
+
+
+###  Подробнее
+
+AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
+Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AA3F602A7189839665826CDECAF01B285A5F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679825   (135185) от 26.11.2023
 
 Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +82,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135185.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ VA - Музыка для машины Vol.44 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135186.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Termius for Mac 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135188.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135189.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:4AB50C20AB554DC32B23F80B621673481C1D8F12
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135190.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135191.jpg" />
 </div>
 
 
@@ -165,7 +241,7 @@ magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135192.jpg" />
 </div>
 
 
@@ -192,7 +268,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135193.jpg" />
 </div>
 
 
@@ -216,7 +292,7 @@ VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135194.jpg" />
 </div>
 
 
@@ -243,7 +319,7 @@ PhotoRescue Pro 6.9 Build 947 [MULTi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135195.jpg" />
 </div>
 
 
@@ -269,7 +345,7 @@ CRAX Commander 1.13.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135196.jpg" />
 </div>
 
 
@@ -293,7 +369,7 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135197.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135197.jpg" />
 </div>
 
 
@@ -317,7 +393,7 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135198.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135200.jpg" />
 </div>
 
 
@@ -368,7 +444,7 @@ Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossove
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135201.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jaz
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135202.jpg" />
 </div>
 
 
@@ -426,7 +502,7 @@ magnet:?xt=urn:btih:48EB4B71696497440E878EF56107ED9934E04DB0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135203.jpg" />
 </div>
 
 
@@ -450,7 +526,7 @@ magnet:?xt=urn:btih:26F5FB82EB81CF6A112663DB52DC0148518B626C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135204.jpg" />
 </div>
 
 
@@ -474,7 +550,7 @@ magnet:?xt=urn:btih:1E349C1A9B09283A412316207999BCA55A32B8D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135205.jpg" />
 </div>
 
 
@@ -499,7 +575,7 @@ magnet:?xt=urn:btih:784ACCF0106C45E4B487F60285BCD9A0CD7ADB8F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135206.jpg" />
 </div>
 
 
@@ -523,7 +599,7 @@ magnet:?xt=urn:btih:BD2453786CBFF969D45F4C850BC5473759698781
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135207.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ magnet:?xt=urn:btih:8C0E272D7AAAF51D1B39D51BE13981520830942D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135208.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ magnet:?xt=urn:btih:1EC7246B0F466FDE86825FF3E58B5EB95A7DE03E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135210.jpg" />
 </div>
 
 
@@ -583,81 +659,6 @@ magnet:?xt=urn:btih:1EC7246B0F466FDE86825FF3E58B5EB95A7DE03E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48196B3AF0B50D0FA5671DD87A23FD09CFEA2B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593137   (135211) от 23.12.2012
-
-Буссенар Луи, Лагун Павел | Капитан Сорви-голова (4 книги) [1900-2004] [FB2]
-
->>Художественная литература
->>Приключенческая проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Жана Грандье насыщена приключениями. Открыв золотые россыпи в Клондайке, он вернулся на родину во Францию сказочно богатым. Не обошла его стороной и военная Крымская компания. Но, одержимый жаждой путешествий, Жан не может жить спокойно. Создав отряд добровольцев, состоящий из таких же мальчишек, каки он, Жан отправляется в Южную Африку сражаться против английских (   Читать дальше...   )Издательство: РазныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082C4EA137261A37B6FC1BA7CE99E00F76F3A171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679531   (135212) от 26.11.2023
-
-Glenn Hughes & Robin George - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying [00:04:24]
-02. Overcome [00:04:04]
-03. I Want [00:03:51]
-04. Haunted [00:03:56](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B136B8A42779544968D1CAE14C4BFD2F558E78D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593224   (135213) от 23.12.2012
-
-Espresso 2.0.5 [Eng]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Espresso - программа для веб-разработчиков и веб-дизайнеров, которая в будущем может составить серьезную конкуренцию известной программе Coda от компании Panic. Espresso соединяет в себе текстовый редактор с подсветкой синтаксиса большого количества языков разметки и программирования (html, xml, php, javascript и т.п.), FTP-клиент и продвинутый редактор файлов CSS.Название программы: EspressoРелиз состоялся: декабрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128976.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128980.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128981.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128983.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129262.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:E9A1F947D9D4F570EB01A0E7F72848A8B23BE950
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129616.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Udemy, Bradley Jadir | DaVinci Resolve for Wedding Film Makers (2023) WEB-DL [EN
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129634.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ School of Motion, EJ Hassenfratz | Cinema 4D Basecamp (2018) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129821.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129827.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129922.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:118CA3445C203E100185F9C3B038B9880A8E6C2A
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5D62303D6899536334C74533BD68EF1EAC74883F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:3066CE3EB2F9C80F26175813B3E495C151FBDB3F
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130148.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:F66449346F848E35E9DDC1CA85C5E1A9C1665F72
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130157.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130191.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130206.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3F14B5C9098940AE898D79EE75BBF703BC49175F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130257.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130504.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipel
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130532.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130662.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Greech, Анастасия Гречушникова, Вадим Киселев |
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130680.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Udemy, Unreal magic | Unreal Engine 5:Enhance animation skill with Ladder Climbi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130682.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Animated Short AI Course (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130686.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:DD689F3EE3C9F8AF6E9062F6897CD8A84070B630
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130687.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Stepik, Арсений Смирнов | Веб-дизайн: ключ к усп�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130719.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Linkedin, George Maestri | Unreal Engine 5 Essential Training (2023) WEB-DL [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130734.jpg" />
 </div>
 
 

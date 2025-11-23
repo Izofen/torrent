@@ -1,3 +1,150 @@
+###  Публикация: 1435587   (144001) от 28.12.2020
+
+Redream Premium 1.5.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Redream - это эмулятор Dreamcast, позволяющий играть в ваши любимые игры Dreamcast в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 01.02.2020Разработчик: redreamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B65C941E8F8E4CB3B5A3791BCAD18067B589E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272459   (144002) от 27.12.2018
+
+Смолфут / Smallfoot (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [handmade 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендая Колеман, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full)Продолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F309C2D81861D4C2E35E7C2D272BB5BAD1F059E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969837   (144003) от 28.12.2015
+
+Александр Медведев | Онлайн мастер-класс Александра Медведева по фотографии. Часть 2. Пакет VIP (2015) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый вебинар Александра Медведева состоящий из 4 уроков, включающих в себя полное описание фото-продакшена:Жанр: фотографияПродолжительность: 22:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5475DD5E4F10A723CBCF092A226EBDFD16EA427B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678737   (144004) от 22.11.2023
+
+PasteNow Pro 2.15.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144004.jpg" />
+</div>
+
+
+###  Подробнее
+
+PasteNow - это приложение для управления буфером обмена, которое упрощает и ускоряет вашу повседневную работу. Вы можете использовать его для хранения всех видов временных данных: текста, ссылки, изображения и даже кода.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 Ding ZhouПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D3948DE6607F6DF1CBA47D8FD0208908E0E451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348331   (144005) от 27.12.2019
+
+Джокер / Joker (2019) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: Канада, США / Warner Bros., Village Roadshow Pictures, ...Жанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (iTunes)Субтитры: Русские (Форс., полные)Продолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9401FA8D076A5F2C11E443D69437A570C05C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520310   (144006) от 27.12.2021
+
+Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers of Death (01:21)
+02. Suicidal Gathering (03:51)
+03. Battles to Win (03:58)
+04. Melissa (03:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B71D575EC7DFFAFAAFFE1C8DF7844156521E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678732   (144008) от 22.11.2023
 
 Mammoth WVH - Mammoth II (2023) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -6,7 +153,7 @@ Mammoth WVH - Mammoth II (2023) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144008.jpg" />
 </div>
 
 
@@ -33,7 +180,7 @@ Adobe Premiere Pro CC 2015 (v9.1.0) RUS/ENG Update 3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144009.jpg" />
 </div>
 
 
@@ -59,7 +206,7 @@ SyncTime 3.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144010.jpg" />
 </div>
 
 
@@ -83,7 +230,7 @@ magnet:?xt=urn:btih:0469ED26C22C781BCB105D97903D8E0FDE0581D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144012.jpg" />
 </div>
 
 
@@ -107,7 +254,7 @@ Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144013.jpg" />
 </div>
 
 
@@ -131,7 +278,7 @@ magnet:?xt=urn:btih:397BE8830923ED9F4364C1FD769133FEF003EBE2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144014.jpg" />
 </div>
 
 
@@ -155,7 +302,7 @@ Chromium 65.0.3306.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144015.jpg" />
 </div>
 
 
@@ -179,7 +326,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144016.jpg" />
 </div>
 
 
@@ -203,7 +350,7 @@ PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144017.jpg" />
 </div>
 
 
@@ -227,7 +374,7 @@ magnet:?xt=urn:btih:0A2AA79C1DDE0F2C7FC2A1ED63F99B8FA9181750
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144018.jpg" />
 </div>
 
 
@@ -251,7 +398,7 @@ magnet:?xt=urn:btih:6590E6C21062EC26605A76A6529887268A363FB1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144019.jpg" />
 </div>
 
 
@@ -275,7 +422,7 @@ magnet:?xt=urn:btih:82C08E50404E6193C824D88675C9954DC9F77BAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144020.jpg" />
 </div>
 
 
@@ -299,7 +446,7 @@ Invisible 2.5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144021.jpg" />
 </div>
 
 
@@ -324,7 +471,7 @@ magnet:?xt=urn:btih:8738AB854CE3F626B922313344CADE5B363E3D6B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144023.jpg" />
 </div>
 
 
@@ -348,7 +495,7 @@ magnet:?xt=urn:btih:6C30C8D8B145A7DDABF76D743D1ED2D4A7B39E23
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144024.jpg" />
 </div>
 
 
@@ -373,7 +520,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144025.jpg" />
 </div>
 
 
@@ -397,7 +544,7 @@ magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144026.jpg" />
 </div>
 
 
@@ -421,7 +568,7 @@ VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144027.jpg" />
 </div>
 
 
@@ -448,7 +595,7 @@ magnet:?xt=urn:btih:055A8F0CFAC68EEF9DE7F65E1A29D33DD985D293
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144029.jpg" />
 </div>
 
 
@@ -473,7 +620,7 @@ magnet:?xt=urn:btih:295B9A4167A8EB67F0FE974113CB54B6C7FE94C7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144030.jpg" />
 </div>
 
 
@@ -484,156 +631,6 @@ magnet:?xt=urn:btih:295B9A4167A8EB67F0FE974113CB54B6C7FE94C7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED5BD4915F027A427EB9A7D9A205AFED1804D30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520242   (144031) от 27.12.2021
-
-Bullet-Proof - Cell Xix (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endovena (intro)
-02. Brainocide
-03. When Truth And Trust Collapsed
-04. Paralyzed(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD3E977E3626838301BA62F9411DCC32A2BEDCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969385   (144032) от 28.12.2015
-
-Специалист | Межсетевое взаимодействие в сетях на базе TCP/IP (2014) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель курса научиться определять сетевую архитектуру, разрабатывать и обслуживать сети в масштабах предприятия на базе TCP/IP.
-
-Курс предназначен для инженеров по сетевым технологиям, архитекторов сетей, администраторов сетей LAN/WAN, системных администраторов и менеджеров, администраторов интранет-сетей.Жанр: Сетевые технологииПродолжительность: 16:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B93A7FF93CFAA009094785CEC586800F25BB67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347929   (144033) от 27.12.2019
-
-Российских разработчиков планируют привлечь к ответственности за некачественное предустановленное ПО
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно, президент РФ Владимир Путин подписал закон о предустановке российского программного обеспечения на технику, которая продается в России. Но вендоры не хотят быть ответственными за нестабильно работающий софт, который будет работать на продаваемых потребителям устройствах.Ассоциация торговых компаний и товаропроизводителей электробытовой и компьютерной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520255   (144034) от 27.12.2021
-
-Xliff Editor 2.9.7.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BA72955B66BAE634D072EC740566961701F498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678687   (144035) от 22.11.2023
-
-FoneDog Toolkit for iOS on Mac 2.1.88 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верните свой iPhone и iPad в нормальное состояние без потери данных, если вы встретите код ошибки iTunes, зависание iPhone в режиме восстановления, логотип Apple и т. д.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2016 - 2023 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8EABCBF5FF0C31463A2BBAD1E5162B0318653A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087689   (144037) от 28.12.2016
-
-Проекты - VideoHive - Rudolphs Christmas Greetings - 6353438 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rudolphs Christmas Greetings - Создайте свою собственную Новогоднюю Рождественскую анимацию и поделитесь приветствием со своими друзьями или клиентами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8334D2CC26AC3B996991BA3EAE2A748D9DDA2A3B
 ```
 
 

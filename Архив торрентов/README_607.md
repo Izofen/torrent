@@ -6,7 +6,7 @@ Sexy Girls Wallpapers (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131129.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ REC. - Мордой В sWeg (2012) [MP3|320 кб/с]<Rap|Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131133.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Scorngrain - 3 альбома (2004 - 2010) Дискография [MP3|CBR:320,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131137.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Arminstel - Trance Evolution (31.12.2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131139.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:2B210238B04C79948BA4D060F17F8CE8E6C1D784
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131156.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Speedtest от Ookla 5.2.4 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131173.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ F1 2012 [Ru+multi] [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131187.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131213.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SpeedFan 4.48 beta 6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131236.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131242.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Stereoscopic Player 1.9.6 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131243.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ onOne Perfect Effects 4.0.1 Premium Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131248.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ John Woo Presents Stranglehold [Ru/En] (Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131256.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blumentals HTMLPad | Rapid CSS | Rapid PHP | WeBuilder 2011 11.4.0.133 [MULTi / 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131266.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Adobe Illustrator 2024 28.1.0.141 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131268.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIDA64 Engineer Edition 7.00.6700 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131280.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Toorox 01.2013 [x32, x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131286.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ RizomUV Virtual Spaces / Real Space 2023.0.71 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131291.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Karateka [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131292.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:3EC44B7E86B74F7342D129A1817459F7A46DE76E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131294.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Aiseesoft FoneLab for Android 5.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131311.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131312.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Windows 10 Manager 3.8.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131313.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ John Woo Presents Stranglehold [Ru/En] (Lossless Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131314.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Tor Browser Bundle 13.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131316.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ GParted LiveCD 0.14.1-6 [i486, i686pae, amd64] (3 x miniCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131322.jpg" />
 </div>
 
 

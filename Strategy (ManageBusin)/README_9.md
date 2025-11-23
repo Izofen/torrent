@@ -6,7 +6,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53566.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.2.15) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53691.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Highrise City (2022) [Multi] (20240603/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53813.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Zet Zillions (2024) [Ru/Multi] (0.9.6-A107) Repack FitGirl [Full-Trash Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54174.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Thriving City: Song (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54452.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54796.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Reus 2 (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54966.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55056.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Galacticare (2024) [Ru/Multi] (1.0.3b/dlc) License GOG [Placebo Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55175.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Echoes of the Plum Grove (2024) [Multi] (1.0.1.0s) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56280.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Undead Inc. (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56521.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Divinity Chronicles: Journey to the West (2023) [Multi] (1.14.20b/dlc) Scene Ten
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57118.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57988.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (8410_27382) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58002.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58064.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58370.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Diluvian Winds (2023) [Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58391.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58501.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58598.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58747.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58826.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58908.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58930.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59035.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59223.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59340.jpg" />
 </div>
 
 

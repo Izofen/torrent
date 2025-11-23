@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175019.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175019.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175034.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175034.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175045.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175064.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lamb Of God - Omens (2022) [FLAC|Lossless|image + .cue] <Thrash, Metalcore, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175086.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175105.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175105.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175107.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Les Big Byrd - Eternal Light Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175111.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175111.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175122.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Motorhead - Blitzkrieg On Birmingham '77 (1989) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175127.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175127.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175136.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175136.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175140.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175140.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175142.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175142.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175148.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175155.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175155.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175158.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175158.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175161.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175166.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175166.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175177.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175177.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175179.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175179.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175180.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175180.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175182.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175183.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175183.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175189.jpg" />
 </div>
 
 
@@ -646,6 +646,33 @@ magnet:?xt=urn:btih:9D05FCF0689CBE9AB338AF73D73887943FCF3861
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564589   (175238) от 05.12.2022
+
+Fleetwood Mac - 16 Studio albums + 6 Solo-albums + 1 Compilations + 1 Box Set (1968 - 2012)[WavPack|Lossless]< Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_175238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe My Time Ain't Long [02:52]
+02. Need Your Love So Bad [03:54]
+03. Rattlesnake Shake [03:30]
+04. Oh Well Part 1 [03:30](   Читать дальше...   )Жанр: Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, BluesПродолжительность: 04:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0190B22D73C81D867542A4B29BA160AE70AECD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430028   (175261) от 08.12.2020
 
 Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Progressive Metal>
@@ -654,7 +681,7 @@ Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Exper
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175261.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175261.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Exper
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F091433664415BED83F29C26A5F73A05BB54D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429894   (175285) от 08.12.2020
-
-Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Is Lost (10:54)
-02. Nidellavir (12:57)
-03. Babylon (07:50)
-04. The Poet (09:18)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EA9984CF6D18A9277C8AF69F7714F840D77F46
 ```
 
 

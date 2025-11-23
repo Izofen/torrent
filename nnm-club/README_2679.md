@@ -6,7 +6,7 @@ Strong Product - IV (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70402.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:61074A71C9A7FA2474B477DD3D1569C94831E9F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70403.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1A9074A31D4BDAD1BB9589AF3ADD99BC410AEA85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70404.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Opera One 117.0.5408.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70405.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B48427682635F8A57C5FDEF36EE04830D07520FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70406.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Jigsawscapes® - Пазлы v3.7.8 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70407.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CA592CD7BDC94E1D2A4FA594A780ADC58ECE3892
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70408.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:78B86FA41331AD38A8AC73C065511B05A5ED8881
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70409.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Fort Firewall 3.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70410.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:0702ABEDCB6D58ACFCE766293B7F0579A36D399E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70411.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SaGa Emerald Beyond v1.0.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70412.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2FF6929CDB5A8CC83B76FE06A2CB1D519CC360B2
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70413.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:2D91C8521538E10135119DE3BE1B8A221283D6E0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70414.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:0176C644338A22CF7BDD7D5ED7D450C3E7DAC666
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70415.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:71795E807583BE06644065622144C7E52E3DF2BB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70416.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:6B210F88E2A30C1631BE50F14023B20FE340EAE3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70417.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:06FEFC6FDBDA6365E7E8D1FC770455AD819CF235
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70418.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Savage Lands - Army of the Trees (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70419.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70420.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70421.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70422.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70423.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70424.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70425.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70426.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70427.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12227.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Depravity Brothers - The Enemy Within (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12228.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12229.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:B51BF3D5F502E2BF89D9DC10654ED80C20E051C4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12230.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:FCB879894E000CBEE07033416A1CF463371E5C90
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12231.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D8E29B608F85098E98C2148D054FA08FB70FD6FE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12232.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:1633544785069581D5C3FA23D1355450B8255AA1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12233.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:BC20A6AFC92DE6E65283177B650C6C097E68BAEE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12234.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Intimate Hours - Best Chillout for Late Evenings (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12235.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12236.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12237.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Accentize - dxRevive Pro 1.2.7 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12238.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:9A63EBFC6EE7B0FD947FB18049DFBC7BAE285FBF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12239.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ MultiTimer: МультиТаймер v1.8 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12240.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:DC0FDF08F0F9A22E116963C23FE82F7D0FC988AE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12241.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:5E2D35456DDBFF129F8F2AF9E80359CBDBA3A210
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12242.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:05A2AEDE28A9AE28993276D48A08F60CB7376152
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12243.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Newfangled Audio - Obliterate 1.1.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12244.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:F41C79434A2968102DB9C2ACBA5EB3AEB1DD392D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12245.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:A05C1FA0C94BD8D45E95A1C910F7D0630F651CDA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12246.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:0DDFE265659958759BCA7ECADB86460C213AFE0A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12247.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Pandora's Box - Lunacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12248.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:8E9D31BCA9FFDF62395E54A62E262DB62D996EBF
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12249.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0B6EE66652A669AABABC962D074DE61F44B323CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12250.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D7F499A73D37F731683D311FB8DD1A02B1575F8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12251.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cockos REAPER 7.41 RePack (& Portable) by elchupacabra (07.07.2025) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12252.jpg" />
 </div>
 
 

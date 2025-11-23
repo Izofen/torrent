@@ -6,7 +6,7 @@ Windows 10, 22H2 [19045.5608] 64in2 (x86-x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23816.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CD10E4DFA511E47C47421107083EBC922FCAF2E7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23817.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23818.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23819.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:990EACE3E2C2908785E775FB4282771B4888FEFD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23820.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23821.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23822.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23823.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23824.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:186B0A5F66753701749538D8A1889946FA99D3DB
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23825.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D42E0239ECB4A8D17092EA5A7DB1D14A474F47EA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23826.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23826.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:D34DD280C209ED4DEA8E0C2F5D9C7FF0EC3036E3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23827.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:BFBA11F0B56D368D2C0FDF2FBAE20F7D7C92344B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23828.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B890FB52F5EF1FB6D78B638E7A2FED02F230614D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23829.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:8CE8C14133B53CF8757A95248F47DB05FC18E6CC
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23830.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ GIMP 3.0.0 revision 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23831.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7BC1E2A791A58692B94DCAD64970D79CA792B986
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23832.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:78BB774E5A664DC0C6F94291F30C4E7E9222A6DD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23833.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23833.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:AFA844682BC8F3EB449B8E4F3C2AD3B30814729F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23834.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23834.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A271990D6FEE454CCE0E55FA19FC82D38ED3634F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23835.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Electrical Calculations Pro / Электрические расчеты v10.3.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23836.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Tablacus Explorer 25.3.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23837.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ AirBrush: ИИ Фоторедактор v7.6.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23838.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23838.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Balabolka 2.15.0.890 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23839.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23839.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Musical kaleidoscope part 34 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23840.jpg" />
 </div>
 
 

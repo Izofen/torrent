@@ -1,3 +1,78 @@
+###  Публикация: 1517712   (162377) от 16.12.2021
+
+HighTop 1.2.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162377.jpg" />
+</div>
+
+
+###  Подробнее
+
+HighTop - самый удобный способ работы с любимыми локальными папками, Google Диском или Dropbox. Вам больше не понадобится поиск окон Finder, скрытого рабочего стола или загрузки вкладок браузера.
+Проще говоря, HighTop - это представление ваших файлов в иде «дерева», которое интегрировано в macOS.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220DDBDDDD6E6CAB471238B8E420CD8E0F88D141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673832   (162382) от 04.11.2023
+
+Radiant Photo 1.1.2.327 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC430F1CB3917218B100474F915833B7710831F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433006   (162383) от 19.12.2020
+
+Application Wizard 4.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Application Wizard для Mac OS - Дает возможность быстрого доступа к приложениями, документам, папкам и дискам.
+Application Wizard позволит запускать, завершать и активировать приложения, запускать AppleScript и режим "одного приложения" для уменьшения беспорядка на рабочем столе.
+С Application Wizard так же можно извлекать и монтировать диски, просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC02925B5A73E6B4291FB593879CCCDDC57C8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598597   (162387) от 19.12.2022
 
 Advanced Renamer 3.88.1 Final + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ Advanced Renamer 3.88.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162387.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Secret Folder Pro 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162388.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ Topaz Photo AI 2.1.0 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162390.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ TunesKit AceMovi Video Editor 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162392.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Duplicate Finder and Cleaner for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162394.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Scroll 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162404.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ O&O DiskImage Professional 18.5 Build 341 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162406.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ High-Logic FontCreator Professional 15.0.0.2949 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162409.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ Caato Time Tracker Pro 1.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162413.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ Easy App Locker for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162417.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ MarkupTable 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162420.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ n-Track Studio Suite 10.0.0.8168 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162423.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ Qbserve 1.87 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162428.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ NetShred X 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162434.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ Metadata Converter Pro for Mac 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162438.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ BusyContacts 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162439.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Speedtest от Ookla 5.2.3 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162440.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ ProFind 1.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162445.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ BusyCal 3 v3.12.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162446.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ Elmedia Player Pro 8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162450.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162452.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ NetLimiter 5.1.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162455.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ Microsoft Office 2021 for Mac LTSC v16.56 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162465.jpg" />
 </div>
 
 
@@ -558,79 +633,6 @@ Microsoft Office 2021 for Mac LTSC v16.56 VL [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566BC34FEE7A577095A0E7CB616A4E7987D7133A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598571   (162466) от 19.12.2022
-
-Commander One PRO Pack 3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4F53A295801EECCD63735247121900E58AB146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598518   (162470) от 19.12.2022
-
-WinUtilities Professional Edition 15.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162470.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6DEFF76D1AFB8BAEF475E3B622B453DFD53562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598504   (162471) от 19.12.2022
-
-WonderFox HD Video Converter Factory Pro 25.7 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162471.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2F262B3A293A70B63EB741D20F3728BB8E1523
 ```
 
 

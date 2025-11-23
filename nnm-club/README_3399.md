@@ -1,3 +1,75 @@
+###  Публикация: 1729636   (108056) от 12.06.2024
+
+Журнал | Лечащий Врач (том 27) №6 (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7846CC9D1B6D01F63370DD3623DE2B8B16078793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729615   (108057) от 12.06.2024
+
+Шах и мат / Menudas piezas / Checkmates (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Канделы в одночасье кардинально меняется, и она из успешной преподавательницы элитного колледжа превращается в простую училку в не самой лучшей школе «на районе». Теперь ей придется обучать трудных подростков из неблагополучных семей. Благодаря Канделе у компании школьных аутсайдеров появляется реальный шанс стать чемпионами страны по шахматам. Ведь в шахматах (   Читать дальше...   )Производство: Испания / Aragon TV, Ayuntamiento de Zaragoza, Diputación de ZaragozaЖанр: комедияРежиссер: Начо Г. ВелильяАктеры: Александра Хименес, Луис Кальехо, Росио Велайос, Пабло Луазель, Вероника Сенра, Кико Бена, Tuoxin Qiu, Франсеск Орелья, Мария Аданес, Мигель РельянПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:00Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729607   (108058) от 12.06.2024
+
+Draw.io 24.5.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92895A1284C7534A8A0CB4B19698D4C9EB8F5740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729764   (108059) от 12.06.2024
 
 Виталий Свадьбин | Император-беглец (Книга 1). Наемник (2024) [MP3, дядя Федор]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108059.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Lovebites: Knockin' At Heaven's Gate (2023) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108060.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Ventusky: Прогноз погоды v35.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108061.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:F1D5E8FB8965F5CE82A44B2CCC6B33D4C4EA54A7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108062.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Hour of Penance - Devotion (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108063.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ XYplorer 26.10.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108064.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ NetLimiter 5.3.14.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108065.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108066.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108067.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108068.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ O&O DiskImage Professional 19.1 Build 144 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108069.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Chasys Draw IES 5.31.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108070.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ File & Image Uploader 8.4.3 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108071.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:D7FECCFB7E11CE36FD58949939E953C2A5780E58
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108072.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:51979BA0E49D1D025557D948035C30957E639DA5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108073.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:BE1DB851B5798AE1406393F6D6AAE24DE5CFBFC5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108074.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:B88A998B9E60BFFE6A5C16060FC98B356FA67BFE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108075.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ VA - Travel In The Universe, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108076.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ no sleep for sole (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108077.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:75F95509F182BD980F0B6838F3F8A26D71236FFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108078.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:73B679B76C213E2D7857E314917855814D4C76FA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108079.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:6C98FC25361EC321DFDAFC01B98B5DB7D794DFEC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108080.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ USB Device Tree Viewer 4.2.7.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108081.jpg" />
 </div>
 
 
@@ -558,78 +630,6 @@ UsbTreeView - маленькая портативная утилита, реал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:440CD5BC48806D0662337A06441EFE26AF6516C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729639   (108082) от 12.06.2024
-
-Celemony - Melodyne Studio 5.4.0.036 STANDALONE, VST 3, AAX (x64) Repack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа позволяет работать с записанными монофоническими аудио данными в привычном музыканту виде - редактирование и изменение звучания производится путем регулирования непосредственно музыкальных и мелодических характеристик аудио. А именно, программа читает исходный моно аудио материал, производит его анализ, на основе которого представляет аудио данные в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30924185D20D4FEF26B75417CD3ECE9CB84C7D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729324   (108083) от 12.06.2024
-
-Астрал. Ночь в могиле / Siksa Kubur / Grave Torture (2024) TS [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древнее поверье гласит, что люди, которые много грешили, после смерти подвергаются чудовищным пыткам прямо в могиле. Сита решает проверить легенду и находит самого грешного человека при смерти. Скоро она сможет доказать, что после его смерти ничего не произойдет. Как только он умирает, девушка просит оставить ее вместе с ним на одну ночь в могиле.Производство: Индонезия / Come and See Pictures, Rapi Films, Legacy PicturesЖанр: ужасыРежиссер: Джоко АнварАктеры: Фарадина Муфти, Реза Рахадиан, Видури Путери, Музакки Рамдхан, Кристин Хаким, Сламет Рахарджо, Фачри Албар, Хэппи Салма, Арсвенди Бенин Свара, Ниниек Л. КаримПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:47Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729763   (108084) от 12.06.2024
-
-WinCatalog 2024.7.5.612 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108084.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A69EFD935C6BA211AB09DD2374B55594DF6364
 ```
 
 

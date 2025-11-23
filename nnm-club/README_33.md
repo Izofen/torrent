@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:398B22B9DCA9734CBD9E34BF0A5A3065663CE5D9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0807DAD4759D2C88B925DC592FC44A7E4568ECCD
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_899.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B047F0E8A79FE2A4DF891A815B62DF7BADF7CA7F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_900.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:569DFD806F9A5E2E37875AF4E759BAA54825C86C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_901.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6BBFAC78EC7A02FCBC3FEB6F485A497276D46DDC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_902.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9001CA986D0C22271E5C6673819612AE94522C49
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_903.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:1FC98E5E9D2E88A70C2DA4FF387EA925D08D865C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_904.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1FC98E5E9D2E88A70C2DA4FF387EA925D08D865C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_905.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_906.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_907.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_908.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6) License GOG [Patche
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_909.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:28347D830745D79E3EC0CE793FC2AFBC6BA9F57E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_910.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F164F2A3BC230BB575C5B83ACA57EC3F9C4A1F75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_911.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:DFEA1544533A73BAE97DC2198D8A7C8C889ED184
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_912.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E86FF0489C8EB05D2EC5B039F69C27D84DFBAADC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_913.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9E4912E705D046F0D948A430C5176A0ACFC88FA8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_914.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_915.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_916.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:EF76EEE8402F29532B3580E8423E0F4883C547AA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_917.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1A731CC98823B6ACAD7F24ABD7C10261FC82CB4D
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_918.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:FA14332907A459DCDFA51CCC3796CB5690E829F9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_919.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1913E4A4A02433C8F4E21C77037CEE268766813E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_920.jpg" />
 </div>
 
 

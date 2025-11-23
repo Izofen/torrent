@@ -1,3 +1,79 @@
+###  Публикация: 1718369   (110994) от 24.04.2024
+
+Лятиф / Лицом к лицу (1930) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта картина стала дебютом для азербайджанского режиссера Микаила Микаилова. Действие в ней происходит в годы коллективизации и классовой борьбы между бедными и зажиточными крестьянами. Богатых деревенских жителей, так называемых кулаков, представляли в советском искусстве 1930-х годов жадными, безжалостными и способными на любую подлость.
+Фильм входит в коллекцию (   Читать дальше...   )Производство: СССР, АзгоскиноЖанр: драма, история, немое киноРежиссер: Микаил МикаиловАктеры: Лятиф Сафаров, Haqiqat Rzayeva, А. Базирганов, Рустам Кязимов, Мустафа Марданов, Иззет Оруджзаде, Камиль Губушов, Меджид Шамхалов, Аждар Султанов, Гасым ЗейналовСубтитры: русские (интертитры)Продолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3FF2D2261B3B5CC4A850F1553375BA8F6E9F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718290   (110995) от 24.04.2024
+
+Восход солнца / Sunrise: A Song of Two Humans (1927) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий фильма основывается на вышедшем в 1917 году романе Германа Зудермана «Путешествие в Тильзит». В основе сюжета классический любовный треугольник. В интертитрах персонажи названы просто Мужчина, Жена, Женщина Из Города... Мужчина влюбляется в Женщину Из Города, которая подговаривает его устроить его жене «несчастный случай» и переехать к ней в город. Они договариваются, (   Читать дальше...   )Производство: США / Fox Film CorporationЖанр: драма, мелодрамаРежиссер: Фридрих Вильгельм МурнауАктеры: Джордж О`Брайен, Джанет Гейнор, Маргарет Ливингстон, Дж. Фаррелл МакДональд, Джейн Уинтон, Артур Хаусман, Эдди Болан, Салли ЭйлерсПеревод: профессиональный одноголосыйЯзык озвучки: русскийСубтитры: русские (Fenix Club), английские (интертитры)Продолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCE75200A18BCB4211DA128B70117FC801EBD88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718316   (110996) от 24.04.2024
+
+Gordi - Fenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Želim Da Se Napijem [00:04:09]
+02. Imaš Samo Jedan Život [00:04:43]
+03. Ozbiljno Zezanje [00:04:22]
+04. Nema Nas Više [00:03:39](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA53E7C9BBA761126CE08430857FD5C5D6214C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718258   (110997) от 24.04.2024
 
 Газета | Народный совет №16 (9 апреля 2024) [PDF]
@@ -6,7 +82,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110997.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Loch Vostok - Opus Ferox II - Mark of the Beast (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110998.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:52E9E04A33F7A915F0940131C14A89A0459C172B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110999.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ magnet:?xt=urn:btih:FC29C98052F0922828C57B8FE1A6EDD2DD5B032E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111000.jpg" />
 </div>
 
 
@@ -107,7 +183,7 @@ Caspar McCloud Band - Immortality (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111001.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111002.jpg" />
 </div>
 
 
@@ -161,7 +237,7 @@ Hartlight - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111003.jpg" />
 </div>
 
 
@@ -188,7 +264,7 @@ magnet:?xt=urn:btih:DDC2C3332C4F933429C327C7BD1F72727135C357
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111004.jpg" />
 </div>
 
 
@@ -212,7 +288,7 @@ magnet:?xt=urn:btih:7C467BD8C4C9C41403073A2C9997C10A5216C106
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111005.jpg" />
 </div>
 
 
@@ -238,7 +314,7 @@ Atrae Bilis - Aumicide (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111006.jpg" />
 </div>
 
 
@@ -265,7 +341,7 @@ Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111007.jpg" />
 </div>
 
 
@@ -292,7 +368,7 @@ Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111008.jpg" />
 </div>
 
 
@@ -319,7 +395,7 @@ Atrae Bilis - Divinihility (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111009.jpg" />
 </div>
 
 
@@ -346,7 +422,7 @@ Atrae Bilis - Apexapien (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111010.jpg" />
 </div>
 
 
@@ -373,7 +449,7 @@ magnet:?xt=urn:btih:96C32B592407643656A94416FD898C9DEFB5286C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111011.jpg" />
 </div>
 
 
@@ -400,7 +476,7 @@ Ravage - Spider on the World (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111012.jpg" />
 </div>
 
 
@@ -427,7 +503,7 @@ Firefox Browser 125.0.2 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111013.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ Privacy Eraser Free 6.6.0 Build 4900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111014.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ magnet:?xt=urn:btih:4D59130917300F143465692F26D719B49345F7B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111015.jpg" />
 </div>
 
 
@@ -501,7 +577,7 @@ magnet:?xt=urn:btih:5FD835AB538D6BDEBFE9B0B9FE7B4AE9C4524C49
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111016.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:DAD0B988AA949C7684F72744DBEC95F3D1EA3035
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111017.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ magnet:?xt=urn:btih:6B0330888971562EE09E36E75D38753C50EE46BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111018.jpg" />
 </div>
 
 
@@ -574,7 +650,7 @@ Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111019.jpg" />
 </div>
 
 
@@ -588,82 +664,6 @@ Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CE0DA6A30BE27B8387B93B9ABB4580A443773E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718121   (111020) от 23.04.2024
-
-Журнал | Цветок №8 (482) (апрель 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313724DE4653CB67DE72AD3CBD4AB1C319BD6808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718083   (111021) от 23.04.2024
-
-Газета | Невыдуманные истории №15 (419) (апрель 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111021.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6887D586109EA8CB276463AA3C7C7EA8358B35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718042   (111022) от 23.04.2024
-
-U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderball
-02. The Arbiter
-03. Pull The Trigger
-04. Fistful Of Anger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AA0255165B1FF9C6538BB8A77B2F61A0F0C7DD
 ```
 
 

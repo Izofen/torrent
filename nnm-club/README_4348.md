@@ -1,3 +1,81 @@
+###  Публикация: 594178   (133950) от 25.12.2012
+
+Nitro PDF Professional 8.1.1.3 Final [Multi/Eng]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nitro PDF Professional - мощный набор инструментов, с помощью которых можно выполнять весь спектр действий по созданию и редактированию PDF-файлов. Также с помощью программы можно выполнять обработку файлов в пакетном режиме, конвертировать файлы из более чем трехсот форматов в PDF, объединять несколько файлов в один, сканировать документы сразу в формат PDF. Возможен экспорт файлов из офисных приложений, как, например, Microsoft Word, PowerPoint и Excel. При необходимости можно с высокой степенью защиты (40 или 128 бит) шифровать содержимое создаваемых файлов. Приложение является практически полной мощной и функциональной альтернативой для популярного Adobe Acrobat и имеет все необходимое, чтобы подготовить документы любой сложности в формате PDF.Название программы: Nitro PDF ProfessionalЯзык интерфейса: Multi/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680643   (133951) от 30.11.2023
+
+Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ra-Ta-Ta
+A2 Suona Orchestra (Cinta Orchestra)
+A3 Lui E Cosi (Asa E El)
+A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680558   (133953) от 30.11.2023
+
+Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watcher on the Walls [00:07:24]
+02. Serpentine [00:06:44]
+03. The Collector [00:04:12]
+04. The Beast and the Harrow [00:10:18](   Читать дальше...   )Жанр: Gothic, Doom-MetalПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421EB7F67717047BB79C512F65249D59A1E4B269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680597   (133955) от 30.11.2023
 
 iCompta 6 v.6.1.10 [Multi]
@@ -6,7 +84,7 @@ iCompta 6 v.6.1.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133955.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:D959B9615B1F02C48A4252A6527106CE7CC4D06E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133957.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:34C46E06FE237C30743853EA86538D3E27761BE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133959.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:3598BFA10C6310A4DF417163CE778E66425285A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133962.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ magnet:?xt=urn:btih:F5A3F56DF50BF5E50C7566A2CB0DA349BE887708
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133963.jpg" />
 </div>
 
 
@@ -126,7 +204,7 @@ Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133965.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ magnet:?xt=urn:btih:00DA99D65701F722EAF90465C2C610CB89ED6E36
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133966.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ magnet:?xt=urn:btih:BDE2A6A617E982E3737913C9DBC42B0BC5B21D3C
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133967.jpg" />
 </div>
 
 
@@ -201,7 +279,7 @@ magnet:?xt=urn:btih:1BE9C3DF48F2F5C0765EAC3F19D1E4700F7C9305
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133968.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ Hazel 3.0.16 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133969.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Paquito D'Rivera & Louie Ramirez - A Tribute To Cal Tjader (1986) 2004, Yemaya R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133970.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:B0E74F84BA2D62AE4D7266FE79BF0F5812D4C721
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133971.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133972.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133973.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133974.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Dropshare 5 v.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133976.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ magnet:?xt=urn:btih:FC964D077443214176C1F63C38E023D2FAD096DA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133978.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133979.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Painful Defloration - Esthetic Research Laboratory (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133980.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ MarsEdit 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133981.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133982.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ magnet:?xt=urn:btih:9CE0AA62786172ABFC1066E13C3A48EC33F2379D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133983.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ magnet:?xt=urn:btih:BB1E39378E03FB4AFC098A883E88EC6C2A159C3A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133984.jpg" />
 </div>
 
 
@@ -567,78 +645,6 @@ magnet:?xt=urn:btih:BB1E39378E03FB4AFC098A883E88EC6C2A159C3A
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680575   (133985) от 29.11.2023
-
-Дом-ловушка / Accused (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133985.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как люди в интернете, а затем журналисты в теленовостях распространяют слух о причастности Гарри ко взрыву в метро, его дом превращается в настоящую ловушку, из которой нет выхода. Угрозы и оскорбления быстро сменяются попытками вторжения, а брошенный друзьями и родственниками Гарри оказывается один против всех. Ему нужно пережить эту ночь в самом опасном (   Читать дальше...   )Производство: Великобритания / Sunrise Films, Three Little Birds PicturesЖанр: триллерРежиссер: Фил БарантиниАктеры: Чанил Кулар, Нитин Чандра Ганатра, Фрэнсис Томелти, Лорин Аджуфо, Нила Аалия, Робби О’Нилл, Джей Джонсон, Бен Энрайт, Олли Тиг, Гэвин СанктисПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced), английские (SDH), португальские (SDH), испанские (SDH)Продолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C694BE4E5FB344606F43EF300D13A9A14819BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594219   (133986) от 25.12.2012
-
-Игра изменилась / Game Change (2012) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ пойдет о перипетиях президентской гонки в США в 2008 году, когда за пост главы страны боролись Барак Обама и Джон МакКейн.Жанр: ДрамаРежиссер: Джей РоучАктеры: Джулианна Мур, Вуди Харрельсон, Эд Харрис, Питер МакНикол, Джейми Шеридан, Сара Полсон, Рон Ливингстон, Дэвид Бэрри Грэй, Ларри Салливан, Микал ЭвансПеревод: Двуголосый закадровыйПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680456   (133987) от 29.11.2023
-
-1С Бухгалтерия предприятия 3.0.144.49 на платформе 8.3.23.1912 [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1С Бухгалтерия – это в первую очередь программа для бухгалтерского учета. Бухгалтерский учет – это не только обязательная активность для каждого предприятия или ИП, основной целью которого является подготовка и сдача отчетности для контролирующих органов (налоговая, пенсионный фонд и т.д.) Часто на основании данных бухгалтерского учета формируются необязательные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
 ```
 
 

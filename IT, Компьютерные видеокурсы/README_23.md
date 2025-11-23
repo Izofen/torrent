@@ -6,7 +6,7 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163919.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163981.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:FEBC86C7A9B3BBEB95B862839F002D75006F6A42
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164119.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164861.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164913.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ IAmTimCorey, Tim Corey | .NET Core AppSettings: Углубленный Курс 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164950.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165526.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165553.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165569.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165677.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165753.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166146.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166221.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166289.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ javascript.ru | Курс по современной вёрстке (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166608.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Epic React, Kent C. Dodds | Epic React Pro (2021) WEB-DL [EN, RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166625.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:1C26403D8AA1E2E096DD6A6A5948219BC94AA09C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166642.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E26B090A23916C74E807910CED81609CC1AFC1F9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166687.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166703.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166744.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166782.jpg" />
 </div>
 
 

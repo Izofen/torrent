@@ -1,3 +1,75 @@
+###  Публикация: 1689247   (124956) от 31.12.2023
+
+Довбуш / Dovbush (2023) HDRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_124956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о народном повстанце Олексе Довбуше, его жизненном пути, любви и борьбе за свободу на Карпатах.Производство: Украина / Pronto film, Film.uaЖанр: Приключения, историческийРежиссер: Олесь СанинАктеры: Сергей Стрельников, Алексей Гнатковский, Дарья Плахтий, Матеуш Косьцюкевич, Агата Бузек, Роман Ясиновский, Ростислав ДержипильскийПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689235   (124957) от 31.12.2023
+
+Довбуш / Dovbush (2023) BDRip [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_124957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о народном повстанце Олексе Довбуше, его жизненном пути, любви и борьбе за свободу на Карпатах.Производство: Украина / Pronto film, Film.uaЖанр: Приключения, историческийРежиссер: Олесь СанинАктеры: Сергей Стрельников, Алексей Гнатковский, Дарья Плахтий, Матеуш Косьцюкевич, Агата Бузек, Роман Ясиновский, Ростислав ДержипильскийПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689160   (124958) от 31.12.2023
+
+Уральские пельмени. Запасной мандарин (2023.12.31) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB62C90AA9D1F08CE30A8FAE0DB335E68351C4E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689090   (124959) от 31.12.2023
 
 VA - Лучшие песни Европа Плюс за 2023 год [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +78,7 @@ VA - Лучшие песни Европа Плюс за 2023 год [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124959.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:C172AE086941FBCD78DB9B0C0585977E7A1B3147
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124960.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:CD24104519F9834FD988C0112534E9F34D45CFEF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124961.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:E1E8802DCA92EDED5DFC17D981D0265B5EE41176
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124962.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:8BFCF99CEBDAE2EB1C8117BBA8BD1D8E20F9EBAE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124963.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:508C52B0E75FBD6B17B721869A053F9D4D03DBB7
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124964.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:9BA1FFE40D1B17EB0547BB4120D4DA863D50E8FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124965.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ Spotify 1.2.26.1187 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124966.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:0FD91B355C5E492AAB351E5E7804F5B892426393
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124967.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:9D13E4EC006DD33AE67E060A461295825358F81E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124968.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:76E19EC5F213BBA51FB644E28030EB69D16E984F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124969.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:A9BD2ACFEE24FBDC08D419111C288C47E1B18F22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124970.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:B947913BBA67377F5C6975509525A9292F3BFC10
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124971.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:0B8CF844E13029BB0B8093CF8C744EFA6219B3E4
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124972.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:9FF1FD8B83B2FA5C62727DA364F79618715797B9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124973.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:359F56B12BD33FAE1B96C507A2ECF0E88A528B1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124974.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:5AC3AE414E8BD170B5F9D47FD68AFAE51577B155
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124975.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:777BB944F2E25AE9C147D1A70AB6E1600CC8AC70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124976.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:9AA2A3EB9C52D2A620897FBD1AB53C11B737F304
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124977.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:3C8608BF70162EF85B64044BB7D4B7A66E6BD845
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124978.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:C20C52537F3A85AA5149BA88B39D255A11BC17FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124980.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:AC141DDC8640B022092BAA66BDCD6179B70ABAC2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124981.jpg" />
 </div>
 
 
@@ -554,81 +626,6 @@ magnet:?xt=urn:btih:AC141DDC8640B022092BAA66BDCD6179B70ABAC2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F6E3F5CC7E5FB58C3BD86ED862676A4D5F51BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659219   (124982) от 31.12.2023
-
-Отвязные дворняги / Strays (2023) BDRip [H.264]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пёс Рэджи обожал своего хозяина-алкоголика, хотя тот постоянно пытался избавиться от питомца. Очередная попытка удаётся, пёсик теряется, зато знакомится с компанией бродячих собак, которые объясняют наивному оптимисту, как жестоко поступал с ним хозяин. Теперь у Рэджи появляется новая цель — вернуться домой и откусить гадкому человеку мужское хозяйство.Производство: США / Universal Pictures, Gloria Sanchez Productions, Lord MillerЖанр: комедия, приключенияРежиссер: Джош ГринбаумАктеры: Уилл Феррелл, Джейми Фокс, Айла Фишер, Рэндалл Пак, Уилл Форте, Бретт Гельман, Роб Риггл, Джош Гад, София Вергара, Джэми ДеметриуПеревод: Дублированный (Bravo Records Georgia)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4A7FF25326FDCDAB55B36EF10106BC982D823C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681233   (124983) от 31.12.2023
-
-Медленные лошади / Хромые кони / Slow Horses (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-6 из 6) NewStudio, LostFilm, HDRezka, TVShows, Сербин
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124983.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 3-м сезоне сериала «Медленные лошади» разворачивается сюжет, основанный на книге Real Tigers Мика Херрона. Главными действующими лицами вновь оказываются члены команды Джексона Лэма. На этот раз героев втянули в заговор, угрожающий существованию не только Слау Хауса, но и всей команде МИ5. Напомним, в финале предыдущего сезона Джексон Лэм выясняет причины неожиданной (   Читать дальше...   )Производство: Великобритания, США / Pretty Pictures, See-Saw FilmsЖанр: триллер, детективРежиссер: Джеймс Хоуз, Джереми Лавринг, Сауль МетцштайнАктеры: Джек Лауден, Гари Олдман, Кристин Скотт Томас, Дастин Демри-Бёрнс, Розалинд Элизар, Саския Ривз, Кристофер Чунг, Крис Райлли, Эйми-Ффион Эдвардс, Кадифф КирванПеревод: Многоголосый профессиональный (NewStudio, LostFilm, HDRezka, TVShows), Авторский (Ю. Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (Forced, Full, SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53681C6D511044E271D68A6C0EC2FD7F66EDD5DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599731   (124984) от 31.12.2023
-
-VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
-002. Harry Styles - As It Was (2:47)
-003. Alis Shuka - Not About Us (Ayur Tsyrenov DFM Remix) (2:10)
-004. Shakira feat. Rauw Alejandro - Te Felicito (Amice Remix) (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
 ```
 
 

@@ -6,7 +6,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aes Dana - Pollen (Dec-07-2012) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Progr
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32048.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32049.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Schiller - Sonne (Chill Out Edition) (22 Mar 2013) [MP3|320 кб/с]<Electronic,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32050.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:1E19FCA6BC975D88481CA9B106057AAD3C1C27D2
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32051.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Windows 10 Pro 22H2 19045.5247 x64 by SanLex [Lightweight] [Ru/En] (2025.01.03)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32052.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru] (1.5.97.0.8) Repack/Mod Аронд [Spec
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32053.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:187C5A2ACCB2E962ED4507D563300B76D8E1DE4D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32054.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:187C5A2ACCB2E962ED4507D563300B76D8E1DE4D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32055.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VoPN — Быстрый и стабильный VPN
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32056.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VoPN — Быстрый и стабильный VPN
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32057.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Slurm (Слёрм) | Data-инженер (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32058.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32059.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:82032C08DA5C65266CC5C4007D9EDDF33801E2FC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32060.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32062.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:975BC609546C4C09A92F1A3D81050BEA7CDD2B69
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32063.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:768235AAC39B687D880CC29166819A5A9C339948
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32064.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A99B754438BFAE41A6AF4A9D3D332DB639037DAA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32065.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32066.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32067.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:C4B8CA653202A1EB091C17898CFA3172A256583B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32068.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32069.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:04238B29CC3A3B3CAAD8D8A5F286DDD0C5078641
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32070.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32071.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32072.jpg" />
 </div>
 
 

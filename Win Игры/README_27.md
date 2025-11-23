@@ -6,7 +6,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7828.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7912.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7916.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Uplink OS (2021) [Ru] (21.04) Mod/Русификатор kesha4
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7917.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7931.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7935.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7940.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7943.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7945.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7947.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Scouring (2025) [Ru/Multi] (11.08.2025) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7950.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7960.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7961.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7964.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7967.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8105.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.5) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8115.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8118.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack seleZen [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8125.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8132.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8134.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8137.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8151.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8155.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8156.jpg" />
 </div>
 
 

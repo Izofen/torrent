@@ -6,7 +6,7 @@ Figen Morfen - Stay positive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104217.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Charlotte Wessels - The Obsession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104226.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eclipse - Megalomanium II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104227.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104228.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104229.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104230.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104231.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104232.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104237.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104244.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104251.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104255.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104260.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:48C13651C2FCB701479841C08436681778F1E8F0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104265.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Fatigue Force - Wandering Blues T (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104266.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jamie Carr Band - KY Chrome (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104267.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rich Russman - Second Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104268.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Blues Bizarre - Blues Bizarre (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104269.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mike Stern - Echoes and Other Songs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104271.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ryan Keberle - Bright Moments (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104272.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Nail - The Nail (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Menal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104274.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104326.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Snow Patrol - The Forest Is The Path (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104327.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sam Smith - Gloria (2023) (Special Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104332.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ In Extremo - Wolkenschieber (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104334.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ektomorf - Studio Albums (16 releases) (1996-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104340.jpg" />
 </div>
 
 

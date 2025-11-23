@@ -1,3 +1,75 @@
+###  Публикация: 1433361   (161024) от 20.12.2020
+
+Allavsoft Video Downloader Converter 3.23.1.7653 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0147C951013CBCD056CE9B61CC3D5B368A8F8BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598945   (161027) от 21.12.2022
+
+Windows 11 Pro VL x64 22Н2 (build 22621.963) by ivandubskoj 21.12.2022 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1027490D0B0260F939828DA1B0B777E606141C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518019   (161060) от 18.12.2021
+
+4K Video Downloader 4.19.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2021 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E497ADA633474515A177BCD582EE18E4D8E221B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674335   (161064) от 05.11.2023
 
 4K Video Downloader+ 1.3.0.0038 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161064.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Firefox Browser 95.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161066.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:2A741389C2A7CCE5D6D61866134BF1C16BB00B1D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161073.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:1AF1E3250FBCFB645276DD34EE4D9506B9FFF31A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161078.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:79E7094B6B8AB146D3AED1A0855C2A707DCED375
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161079.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Clearview X 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161082.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Permute 3 v3.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161086.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:CB98DEC9AEA06A3F02297D0E307D569F7130A471
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161087.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ RogueKiller Anti-Malware 15.13.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161114.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ jetAudio HD Music Player Plus v12.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161119.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ FastStone Capture 10.3 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161123.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Icecream Screen Recorder Pro 7.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161132.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Meta 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161136.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161153.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ Note Studio 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161154.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Visual Studio Code 1.74.2 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161161.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ Piezo 1.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161162.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ SnapMotion Unlimited 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161166.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Bandicam 6.0.5.2033 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161170.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ IceCream Ebook Reader Pro 6.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161171.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ Wondershare UniConverter 15.0.4.17 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161173.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ KStars 3.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161178.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ DoubleTake 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161181.jpg" />
 </div>
 
 
@@ -554,80 +626,6 @@ DoubleTake - приложение предназначено тем пользо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E21F31FC25EB00D9A53FAEA5D74F2C0F414D6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674339   (161183) от 05.11.2023
-
-4K YouTube to MP3 4.13.0.5540 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161183.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A95A4AE188D826C48087AB606AEBD94EDF1590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518152   (161185) от 18.12.2021
-
-Diagrams 2.2.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDA72DE313E7F756A50F11C1205F95CB6014E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674337   (161186) от 05.11.2023
-
-Luminar Neo 1.15.1.12389 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar Neo — это инновационный фоторедактор от Skylum на основе искусственного интеллекта.
-Новый редактор Luminar Neo использует улучшенный механизм ИИ, который должен повысить качество обработки и увеличить производительность нового программного обеспечения.
-Luminar Neo – это отдельный редактор, который включает многие функции редактора Luminar AI. Также в нем (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816E767285A7982A1CE19132583050D5CCA02900
 ```
 
 

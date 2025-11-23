@@ -6,7 +6,7 @@ Google Chrome 132.0.6834.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29291.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29292.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29294.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29295.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29296.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:102B3CF412AC5A49C57967284C5643B8655B02FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29297.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29297.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EA2A32BB57C849F82CFDA08A614E6FE49ECA3B5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29298.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:A19923D42935A3DC3414D5C19C5A85AAEAF06D1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29299.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A19923D42935A3DC3414D5C19C5A85AAEAF06D1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29300.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ NVIDIA GeForce Desktop Game Ready 572.16 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29301.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kerio Control v9.4.5 Patch 1 Build 8573 [x86, amd64] [Multi/Ru]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29302.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: Теории заговора: Тайное правительство и �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29303.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VED (2024) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29304.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29305.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29306.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29307.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29308.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7A09C8F54BB8C7517727C011FFE46431FF65C0F2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29309.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E3B27236E178CBC4A202725DE6977221E98E3003
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29310.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:43467C22DDFEE807963FF279FDF9DF5F7839F3A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29311.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:8DEB9AA7E1C23E5F93FC921F70AE34732040505C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29312.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:8DEB9AA7E1C23E5F93FC921F70AE34732040505C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29313.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DisplayFusion Pro  + Portable + MSI 11.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29314.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8A4A4C7B52C942E3899158CF3A5C5B358E51D4ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29315.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29316.jpg" />
 </div>
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1348209   (145058) от 27.12.2019
+
+Дмитрий Семеник | Самоубийство - ошибка или выход (2019) [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145058.jpg" />
+</div>
+
+
+###  Подробнее
+
+О суициде не принято говорить. Но нестерпимая душевная боль, отчаянье, чувства ненужности или пустоты неисчислимыми оттенками мрачной палитры затмевают разум и душу многим и многим тысячам людей. Они живут там, внутри, эти мысли, от которых кажется, что ты сходишь с ума…
+Люди с суицидальными намерениями находятся в состоянии чрезвычайного психического напряжения, (   Читать дальше...   )Жанр: практическая психологияПродолжительность: 08:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185D71124AD6FE462E5005965AEB113A841F85BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435084   (145059) от 27.12.2020
+
+CyberLink PowerDirector Ultimate 19.1.2407.0 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145059.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79079429EE2930F7A4CAA8F0FEF42471530E9D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087563   (145079) от 28.12.2016
+
+Eschaton - Icaros (2016) LP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perihelion (Original Mix) (07:07)
+ 02. Entheogen (Original Mix) (ft Parallel) (07:51)
+ 03. Animism (Original Mix) (07:10)
+ 04. Kensho (Original Mix) (05:46)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F729408B26713E9E121FF5C04DBB41FFFB9A3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678346   (145080) от 21.11.2023
 
 qBittorrent 4.6.1 (x64) [Multi/Ru]
@@ -6,7 +82,7 @@ qBittorrent 4.6.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145080.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ FreeFileSync 10.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145085.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ Wise Registry Cleaner Pro 10.6.1.697 (DC 22.12.2021) RePack (& portable) by elch
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145089.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:95AF7031C09D19DBF33CBEBC2CF81C7BB7E85EEE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145123.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ Navicat Premium 15.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145141.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ TreeSize Professional 8.2.0.1617 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145143.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ magnet:?xt=urn:btih:F51366D306555C6B752668790AD66604D4C8A1A4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145170.jpg" />
 </div>
 
 
@@ -175,7 +251,7 @@ IObit Driver Booster PRO 6.2.0.197 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145183.jpg" />
 </div>
 
 
@@ -200,7 +276,7 @@ VueScan Pro 9.7.71 (DC 24.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145192.jpg" />
 </div>
 
 
@@ -224,7 +300,7 @@ Bratz: The Movie [Wii] [PAL] [Multi 2] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145201.jpg" />
 </div>
 
 
@@ -248,7 +324,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.1_4 [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145207.jpg" />
 </div>
 
 
@@ -273,7 +349,7 @@ magnet:?xt=urn:btih:5018B0897C05C6C61DA15A9A6BA5337B27574F1F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145208.jpg" />
 </div>
 
 
@@ -297,7 +373,7 @@ Videomizer 2.0.12.1112 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145216.jpg" />
 </div>
 
 
@@ -323,7 +399,7 @@ Internet Download Manager 6.38 Build 16 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145232.jpg" />
 </div>
 
 
@@ -347,7 +423,7 @@ iNet Network Scanner 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145241.jpg" />
 </div>
 
 
@@ -373,7 +449,7 @@ Comfy Photo Recovery 4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145242.jpg" />
 </div>
 
 
@@ -397,7 +473,7 @@ Topaz Video AI 4.0.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145267.jpg" />
 </div>
 
 
@@ -421,7 +497,7 @@ Vezér 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145269.jpg" />
 </div>
 
 
@@ -445,7 +521,7 @@ FlashPeak SlimBoat 1.1.15 + Portable by Noby.uCoz.Ru [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145274.jpg" />
 </div>
 
 
@@ -469,7 +545,7 @@ Downie 3 v3.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145283.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ AOMEI Backupper Technician Plus 6.3.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145288.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ FileZilla Server 1.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145293.jpg" />
 </div>
 
 
@@ -543,7 +619,7 @@ Crunkz - Best Of EDM 2019 Rewind Mix 2019-12-20 [MP3|320 Kbps] <Electro House, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145294.jpg" />
 </div>
 
 
@@ -557,83 +633,6 @@ Crunkz - Best Of EDM 2019 Rewind Mix 2019-12-20 [MP3|320 Kbps] <Electro House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F00B078528CE7A4CD76BE9460370671F47F071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348453   (145301) от 27.12.2019
-
-Газета | Запретная история №26 (2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная газета для широкого круга читателей.
-
-Собственный скан.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75350D2D55B1D1E7EA30BFF737B246CCE6314302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678300   (145303) от 21.11.2023
-
-CyberLink PowerDirector Ultimate 22.0.2313.0 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145303.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC694EBCF17001345E8A1912F2EEBFC0699252F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087658   (145323) от 28.12.2016
-
-Хоккей. Молодёжный Чемпионат мира 2017. Группа B. 2-й тур. Латвия - Россия. (27.12.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145323.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2016, среда. 00:00 МСК
-Группа B. 2-й тур
-
-Стадион: Эйр Канада-центр (Торонто, Канада) , 6 789 зрителей (34 % при вместимости 19 800)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский / ИнтершумПродолжительность: 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD8F124B032A470CBEC3AFEBF63AF12B1C21B16
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1727729   (108446) от 03.06.2024
+
+Журнал | Знание-сила №6 (1164) (июнь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D981AC556621CA28C651FE33239C706293569CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727618   (108447) от 03.06.2024
+
+Мёртвые не причиняют боли / The Dead Don't Hurt (2023) TS [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1860-е. Мечты Вивиан и ее мужа Хольгера о светлом будущем разрушены войной. В эти сложные времена супруги пытаются сохранить свою любовь.Производство: США, Дания, Мексика, Великобритания, Канада / Perceval Pictures, Recorded Picture Company (RPC), Talipot StudioЖанр: вестерн, драма, мелодрамаРежиссер: Вигго МортенсенАктеры: Вики Крипс, Вигго Мортенсен, Солли Маклауд, Гаррет Диллахант, У. Эрл Браун, Дэнни Хьюстон, Шэйн Грэхэм, Rafel Plana, Алекс Бро, Джейсон КларкПеревод: Дублированный (СиПиАй Филмз / CPI Films) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced, hardsub)Продолжительность: 02:02:00Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727328   (108448) от 03.06.2024
+
+Одна жизнь / One Life (2023) WEB-DLRip [H.264/1080p] [UKR звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромного и непубличного джентльмена Николаса Уинтона приглашают на телевизионное ток-шоу, где он наконец-то узнает всю правду о событиях Второй мировой войны, когда он пытался спасти сотни детей от гибели в концлагере. Одна жизнь может изменить судьбы сотен людей — как в прошлом, так и в настоящем.Производство: Великобритания / See-Saw Films, MBK Productions, BBC FilmЖанр: драма, биография, историяРежиссер: Джеймс ХоузАктеры: Энтони Хопкинс, Хелена Бонем Картер, Джонни Флинн, Лена Олин, Тим Стид, Матильда Торпе, Дэниэл Браун, Алекс Шарп, Иржи Симек, Ромола ГарайПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:48:59Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09391EFCD2B8F45B881E77EE1D4D26391162D708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727706   (108449) от 03.06.2024
 
 Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
@@ -6,7 +78,7 @@ Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108449.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Ventusky: Прогноз погоды v35.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108450.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:77799D8556FADE375DE4DE36EA7BFE229CC6F040
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108451.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:5E46ECDB15945829338DBEC02FABA1DD11CED953
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108452.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108453.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108454.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ ApowerREC 1.6.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108455.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ PhotoRoom v4.9.8 b1427 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108456.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108457.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:60D6DFC12DA486DBEB31D5CF4766F9315805C477
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108458.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108459.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Deliverance - Deliverance (1989) Remastered, 2008, Retroactive Records [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108460.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108461.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108462.jpg" />
 </div>
 
 
@@ -361,7 +433,7 @@ Emika - Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Garage, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108463.jpg" />
 </div>
 
 
@@ -388,7 +460,7 @@ Deliverance - Weapons of Our Warfare (1990) Remastered, 2021, Retroactive Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108464.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ Deliverance - Weapons of Our Warfare (1990) Rerelease, 2008, Retroactive Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108465.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:D5CD014264F471795E1FFAC354A581FA0A1942AA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108466.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108467.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108468.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108469.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:D46EBB5CABE2330A20F76D4871E8E6797917156A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108470.jpg" />
 </div>
 
 
@@ -574,7 +646,7 @@ magnet:?xt=urn:btih:B81F3FC80D2768BEDE08399282F0BA9832950E98
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108471.jpg" />
 </div>
 
 
@@ -588,84 +660,6 @@ magnet:?xt=urn:btih:B81F3FC80D2768BEDE08399282F0BA9832950E98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C23C2842BCEC0B1D59ECA789FA43E205549976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727485   (108472) от 02.06.2024
-
-Мария Кашинская и др. | Илья Муромец и Соловей-разбойник (2007) [MP3, Олег Табаков, Сергей Маковецкий и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиоверсия героического блокбастера, «Илья Муромец и Соловей-Разбойник» продолжает свое шествие по стране.  Увлекательные и смешные истории по одноименным мультфильмам для юных и не очень юных слушателей.  Детское издательство «Два Жирафа» выпустило в свет аудиоверсию этого хита с участием замечательных актеров – Олега Табакова и Сергея Маковецкого. Мы вновь станем (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Два жирафаПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59068585D219D3CA75C453A9A84CA6C31E219655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727396   (108473) от 02.06.2024
-
-Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summoning Of Flame
-02. Abaddons Revenge
-03. My Greatest Fear
-04. The Blessings Of Vengeance(   Читать дальше...   )Жанр: Symphonic Black, Melodic Death MetalПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C409464128111B4D8D2A4A5AA5C41AB6E0C8D002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727519   (108474) от 02.06.2024
-
-Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Formula [00:02:56]
-02. Keepin' It Kool [00:05:25]
-03. Last Nite [00:03:41]
-04. Angelwings [00:03:42](   Читать дальше...   )Жанр: Hip-Hop, Jazz, FunkПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8413F11BBBB67A1A28C1B2ACA4A2A8FD3B43B7
 ```
 
 

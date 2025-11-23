@@ -1,3 +1,104 @@
+###  Публикация: 1669868   (172510) от 18.10.2023
+
+Cardhop 2.2.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172510.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2017-2022 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF524ECBB42A47F075F8D6598AF1B28EC843B2C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669849   (172511) от 18.10.2023
+
+Rocket Typist Pro 3.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172511.jpg" />
+</div>
+
+
+###  Подробнее
+
+В обычный день большинство из нас набирает один и тот же текст снова и снова, тратя на это огромное количество времени. Почему бы не позволить компьютеру сделать часть этой работы за вас? Вот где появляется Rocket Typist. Вот несколько примеров:
+
+• Часто повторяющиеся фразы, такие как «Как дела?»
+• Подписи с изображениями или без них(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: Daniel DienerПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B8C738D89C2C9F7512961C96F8672A65113C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669828   (172512) от 18.10.2023
+
+Coming soon 3 v.3.19 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самую свежую информацию о предстоящих выпусках фильмов.Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 2021 Ivan KashkarovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C029BFB0EE405725451E28D4BEA227B5AC6F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669907   (172517) от 18.10.2023
+
+Alfred PowerPack 5.1.3  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE3457346F4A6816323E446597A0DE4E66CBA35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669830   (172519) от 18.10.2023
 
 Keep It 2.3.2 [Multi]
@@ -6,7 +107,7 @@ Keep It 2.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172519.jpg" />
 </div>
 
 
@@ -30,7 +131,7 @@ Loopback 2.3.1 fc3 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172520.jpg" />
 </div>
 
 
@@ -55,7 +156,7 @@ Alfred PowerPack 5.1.4 Pre-release  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172523.jpg" />
 </div>
 
 
@@ -80,7 +181,7 @@ Native Instruments Komplete Kontrol 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172525.jpg" />
 </div>
 
 
@@ -104,7 +205,7 @@ Piezo 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172526.jpg" />
 </div>
 
 
@@ -130,7 +231,7 @@ BatchOutput PDF 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172527.jpg" />
 </div>
 
 
@@ -155,7 +256,7 @@ Adobe Acrobat Pro 2023.006.20360 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172537.jpg" />
 </div>
 
 
@@ -179,7 +280,7 @@ Adobe Lightroom Classic for Mac 13.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172547.jpg" />
 </div>
 
 
@@ -203,7 +304,7 @@ Adobe InDesign 2024 v.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172551.jpg" />
 </div>
 
 
@@ -227,7 +328,7 @@ Adobe Acrobat Reader 2023.006.20360.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172553.jpg" />
 </div>
 
 
@@ -251,7 +352,7 @@ VirtualBox 7.0.12 Build 159484 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172554.jpg" />
 </div>
 
 
@@ -275,7 +376,7 @@ Adobe Audition 2024 24.0.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172567.jpg" />
 </div>
 
 
@@ -299,7 +400,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172568.jpg" />
 </div>
 
 
@@ -323,7 +424,7 @@ Adobe Animate 2024 24.0.0.305 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172570.jpg" />
 </div>
 
 
@@ -347,7 +448,7 @@ Adobe After Effects 2024 24.0.0.55 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172571.jpg" />
 </div>
 
 
@@ -371,7 +472,7 @@ Notepad++ 8.5.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172578.jpg" />
 </div>
 
 
@@ -395,7 +496,7 @@ BlueStacks App Player 5.13.200.1026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172579.jpg" />
 </div>
 
 
@@ -419,7 +520,7 @@ Windows 11 Manager 1.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172589.jpg" />
 </div>
 
 
@@ -443,7 +544,7 @@ ZWCAD 2024 SP1 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172590.jpg" />
 </div>
 
 
@@ -467,7 +568,7 @@ KMPlayer 4.2.3.5 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172596.jpg" />
 </div>
 
 
@@ -491,7 +592,7 @@ Adobe Media Encoder 2024 v.24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172598.jpg" />
 </div>
 
 
@@ -515,7 +616,7 @@ Opera One 103.0.4928.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172604.jpg" />
 </div>
 
 
@@ -526,103 +627,6 @@ Opera One 103.0.4928.34 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73856423AAEBCEAE3AF3533FFE0F34CE555984FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669584   (172605) от 17.10.2023
-
-Adobe DNG Converter 16.0.0.1677 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe DNG Converter - удобный в использовании инструмент, с помощью которого можно быстро и легко преобразовывать файлы RAW с цифровых камер более 350 моделей в формат DNG, сохраняя при этом обратную совместимость для новейших камер с целью использования файлов в более ранних версиях Photoshop, Lightroom, Bridge, After Effects и Photoshop Elements через DNG Converter. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F067EAD235BEC17DD3ADD6A56667BF9C7F5A7854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669745   (172606) от 17.10.2023
-
-Internet Download Manager 6.41 Build 21 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1662F48A3DCCDA975E62F34B6D78D0C9603D459D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669616   (172607) от 17.10.2023
-
-IObit Smart Defrag Pro 9.1.0.319 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE3B760A9242C5DB48D85F0053DF8599C108E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669749   (172609) от 17.10.2023
-
-AnyTrans for iOS 8.9.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172609.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CA30E0EF1470E3B1A8A7FFF9DF9E9FD03F8A78
 ```
 
 

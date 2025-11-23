@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DBB287B2577A7E1958CE4D229C5161F94123BF6F
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44790.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DBB287B2577A7E1958CE4D229C5161F94123BF6F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44791.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44792.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:88CEEC11E0215F85A2582643C88EC7D5AA7972CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44793.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Dimensions (2023) [Ru/Multi] (4.0) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44794.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E58F62AF4C38D9C9CA245645F50B16E96384E920
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44795.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:0333397736EA404F1030A1077632332EB72B767E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44796.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5131AE170E8F7E7D0FF2E33F08DA877A4BD4369A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44797.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CA9D6D8BF28667EAF0CC769B9BD1FCEC2293A5CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44798.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:42516EE497E38907960BA0C05661D766CCA63EA9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44799.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44800.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44801.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44802.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44803.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44804.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44805.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Speedtest от Ookla 5.4.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44806.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Picsart AI Photo Editor, Video v25.7.2 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44807.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:81CA697A2DBDD65FD55DB289597E17187AE23598
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44808.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Fast Screen Recorder 2.1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44809.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44810.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WonderFox DVD Video Converter 30.6 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44811.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44812.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mp3tag 3.27a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44813.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Music News For Forum vol.018 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44814.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116172.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116173.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116175.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116191.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116323.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alan Broadbent Trio - Trio In Motion (2020) Savant Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116330.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blue Mitchell - Big 6 (1958) 2007, Universal [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116332.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Jazz Bass - Virtuosity - Electric & Upright (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116347.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116477.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116482.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:291EEA5823DFF2946B281C31B312A89211FDF82D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116484.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116486.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116490.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Keith Thompson Band - Enigmatic Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116493.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E51BE26767C56AF1EFCDC356B8833AA793B0E3A8
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116496.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Chris Plunkett Band - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116502.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Avenue Of Electric Sound - The Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116505.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Albert Cummings - Strong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116516.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Jazz - The Best - Standards and Rarities (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116543.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116650.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116654.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116656.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116823.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) None
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116824.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116827.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116832.jpg" />
 </div>
 
 

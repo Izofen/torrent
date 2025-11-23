@@ -1,3 +1,79 @@
+###  Публикация: 1704171   (114530) от 03.03.2024
+
+Ричард О’Коннор | Перепрограммируйте свой мозг (2024) [MP3, Алексей Воскобойников]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы часто попадаем в ловушку своих плохих привычек, будь то неудачные попытки соблюдать диету, провальные попытки бросить курить или вечное откладывание дел в долгий ящик. Известный психотерапевт Ричард О'Коннор раскрывает, как с этим бороться.
+У нас есть два мозга – один – вдумчивое, сознательное, совещательное «я», а другой – автоматическое «я», которое принимает (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 11:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B57C9A7FB32158507A5CC50590AC819F03800D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694943   (114531) от 03.03.2024
+
+Жизнь и смерть живого мертвеца / Life and Death of a Living Dead (2022) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятная история любви между таинственной молодой женщиной и живым мертвецом. Фантастическая история, полная страсти, насилия и эмоций.Производство: ФранцияЖанр: Короткометражный, фантастика, ужасы, мелодрамаРежиссер: Gautier BabeАктеры: Alizée Linavert, Jacques VanelПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22857C48C126638FFA6D62D6ACC0663A4F25BD47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704317   (114532) от 03.03.2024
+
+Chris Norman - Junction 55 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil In Your Heart (4:27)
+02. Tears Will Fall (3:54)
+03. Tell Her She Can (3:58)
+04. Crazy (3:43)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D947233CDF1234E89E155A233423766DEE45C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704128   (114533) от 03.03.2024
 
 Армия мёртвых в Пусане / Bangbeom: jaechaui / The Cursed: Dead Man's Prey (2021) BDRip [H.264/1080p-LQ]
@@ -6,7 +82,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114533.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:9FEC2413FBBE61777293403EBF2691A458ABBCEA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114534.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:E83512823CE8DDD00C9C90884A413A269452E8D8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114535.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ magnet:?xt=urn:btih:F58B55FCFD2C5AB7E42F8601C3E3D3CCC36EB4F6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114536.jpg" />
 </div>
 
 
@@ -107,7 +183,7 @@ magnet:?xt=urn:btih:34DEFF62453DBA1509B47787F90322909062C0DF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114537.jpg" />
 </div>
 
 
@@ -131,7 +207,7 @@ Paul Davies и др. | Артбук по играм Deus Ex / The Art of Deus Ex
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114538.jpg" />
 </div>
 
 
@@ -157,7 +233,7 @@ magnet:?xt=urn:btih:6949243FCF7E43EBC92D8538E6CEB4FDA555471E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114539.jpg" />
 </div>
 
 
@@ -181,7 +257,7 @@ magnet:?xt=urn:btih:01A89D2ADA78320815CB693B1CD88933CEB9B101
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114540.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114541.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ magnet:?xt=urn:btih:C1B4C261547FAD6579DD907C399412074DF6B73A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114542.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ magnet:?xt=urn:btih:976902AFA0CC001F986E7B5F06D51D64A279B5F5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114543.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ OfficeSuite Pro + PDF v14.3.51248 Extra Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114544.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ Eidos Montreal | Артбук по игре Deus Ex: Mankind Divided / Deus Ex: 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114545.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ Eidos Montreal | Артбук по игре Deus Ex: Human Revolution / Deus Ex:
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114546.jpg" />
 </div>
 
 
@@ -359,7 +435,7 @@ magnet:?xt=urn:btih:F68F745DAAE8ED839DF6B22278DBA41B912CDAB2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114547.jpg" />
 </div>
 
 
@@ -385,7 +461,7 @@ magnet:?xt=urn:btih:1D1175AAC9DBAB60E76CAC8C67EF02799B84AFFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114548.jpg" />
 </div>
 
 
@@ -409,7 +485,7 @@ magnet:?xt=urn:btih:1D1175AAC9DBAB60E76CAC8C67EF02799B84AFFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114549.jpg" />
 </div>
 
 
@@ -433,7 +509,7 @@ magnet:?xt=urn:btih:8B3174521BCB7096FAB49A23770A6405BF83A33D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114550.jpg" />
 </div>
 
 
@@ -457,7 +533,7 @@ magnet:?xt=urn:btih:9F20E08645B083DD61880CD698CFE6E6E45A9815
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114551.jpg" />
 </div>
 
 
@@ -481,7 +557,7 @@ magnet:?xt=urn:btih:9F20E08645B083DD61880CD698CFE6E6E45A9815
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114552.jpg" />
 </div>
 
 
@@ -505,7 +581,7 @@ magnet:?xt=urn:btih:2688176A913E6FE9986FEB4F4A6A8F33AE0B8BC1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114553.jpg" />
 </div>
 
 
@@ -529,7 +605,7 @@ magnet:?xt=urn:btih:E8E51B45B13C1B1FAEA30E2D5D4DA06F89D241B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114554.jpg" />
 </div>
 
 
@@ -554,7 +630,7 @@ magnet:?xt=urn:btih:0C8816538E65AEA22D9D47A81ACE79163A39BE36
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114555.jpg" />
 </div>
 
 
@@ -565,78 +641,6 @@ magnet:?xt=urn:btih:0C8816538E65AEA22D9D47A81ACE79163A39BE36
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB7B1377734F47A601A50C4BA1813F6F8793C845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704186   (114556) от 03.03.2024
-
-Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Калгари Флэймз (02.03.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114556.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 марта 2024, воскресенье. 06:00 МСК. Стадион: Скоушабэнк Саддлдоум (Калгари, Канада), 19 289 зрителей (100% при вместимости 19 289)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE960B7A74DE3CF20C3E1FEC8B70FA7EE9C42A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704303   (114557) от 03.03.2024
-
-Kodi 20.5 (Nexus) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kodi (ранее известный как XBMC) — бесплатное и с открытым исходным кодом (GPL) программное обеспечение, медиацентр для воспроизведения видео, музыки, картинок, игр и другого медиа-контента. Первоначально Kodi создавался как медиацентр приложений для первого поколения Xbox. Но сейчас он поддерживает Linux, OS X (Snow Leopard, Leopard, Tiger, Apple TV), Apple iOS, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8004857728B73FE0304719A3552598765EBAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693706   (114558) от 03.03.2024
-
-Гарри Поттер и Дары Смерти: Часть II / Harry Potter and the Deathly Hallows: Part 2 (2011) HybridRip [H.264/1080p-LQ] [IMAX]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114558.jpg" />
-</div>
-
-
-###  Подробнее
-
-В грандиозной последней главе битва между добрыми и злыми силами мира волшебников перерастает во всеобщую войну. Ставки ещё никогда не были так высоки, а поиск убежища — столь сложен. И быть может именно Гарри Поттеру придется пожертвовать всем в финальном сражении с Волан-де-Мортом. Способен ли наш герой спасти мир? И всё закончится здесь.Производство: США, Великобритания / Warner Bros., Heyday Films, Moving Picture Company, TheЖанр: фэнтези, драма, детектив, приключенияРежиссер: Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Рэйф Файнс, Алан Рикман, Хелена Бонем Картер, Том Фелтон, Гари Олдман, Майкл Гэмбон, Мэгги СмитПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C930A4AA4DC54434C39825F93C9AA1E1F9A2F01
 ```
 
 

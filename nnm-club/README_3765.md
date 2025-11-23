@@ -1,3 +1,81 @@
+###  Публикация: 1699735   (117572) от 14.02.2024
+
+Ася Рыбкина | Игла для Анархиста (2023) [MP3, Наталья Ростова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неугомонная авантюристка – вот как можно в двух словах описать героиню книги Асю. Ещё бы: она же бывшая спортсменка, а, значит, настоящий боец! «Вылетев в трубу» с очередным бизнесом, подаренным щедрым мужем, Ася от скуки принимается расследовать дело о гибели любимого артиста своей лучшей подружки, рокерши. Дело давно закрыто, но споры о причине смерти солиста группы (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 13:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B721BAAA6196EAD60A2F04D78928EBF1558745A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699802   (117573) от 14.02.2024
+
+Swinsian 3.0 Preview 13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
+● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
+● Быстрое и эффективное управление
+● Импорт библиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 SwinsianПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29F0980DD2D814F4E58A2C94E0F4798E6C92AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699632   (117574) от 14.02.2024
+
+Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz [6:30]
+02. January 17 [6:05]
+03. You'll Always Need Friends [5:42]
+04. Feather, But No Wings [5:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DB9EB2B051D327FCF4D7CA3AA9E2865A2D5832
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699647   (117575) от 14.02.2024
 
 Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal, Female Vocal>
@@ -6,7 +84,7 @@ Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117575.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:1627F261DA18BE45325E7A95E95CD021E769B9F5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117576.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:47F1096C6AA470C9A5F0B218A40A5937B943061F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117577.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117578.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:C89D009536D0F7028E0EA1520AC757E7D8C559C4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117579.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:52B1CB25B8F568EC818919C273A38FDAAB884056
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117580.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ Nikos Chatzitsakos - Tiny Big Band 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117581.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:4E3DC63EA320FF7149F0BFA221945A6DD594ABB6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117582.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:8BF62546C58BEB530CFC1B0E36C52347E1F1104A
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117583.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ magnet:?xt=urn:btih:49F9ECB46E9A081E9A6AE69DAE683E4ABD8544D7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117584.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ Witherfall - What Have You Done? (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117585.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117586.jpg" />
 </div>
 
 
@@ -312,7 +390,7 @@ magnet:?xt=urn:btih:7D31BFEB6F9AD1F776E0D94B90FC88E964F2F795
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117587.jpg" />
 </div>
 
 
@@ -336,7 +414,7 @@ magnet:?xt=urn:btih:99F62E2B735F6448E6C54EA906AE75A222E699EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117588.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117589.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117590.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ magnet:?xt=urn:btih:087AD36566DECC4C4775DF0C6929163D07F57DB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117591.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117592.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ magnet:?xt=urn:btih:96B01A57C2A429242EB9D62B8F833E4951D78A2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117593.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:137E9886991602579C968467B9FACEAB984E1E51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117594.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ ON1 Photo RAW MAX 2026 20.0.4.17586 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117595.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ magnet:?xt=urn:btih:6DD69BEEA1DB2DB59F378337E8814BEC217ECAB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117596.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ magnet:?xt=urn:btih:C92439A9AC34A5787C394E9111D31F58BBB4F860
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117597.jpg" />
 </div>
 
 
@@ -569,81 +647,6 @@ magnet:?xt=urn:btih:C92439A9AC34A5787C394E9111D31F58BBB4F860
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A627913122D5C019FBD14B75AC6ED72C1B67E39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699809   (117598) от 14.02.2024
-
-XYplorer 25.50.0200 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117598.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4231E7F65E5D5B3771D3B5B33368C186D17D8C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823138   (117599) от 10.10.2025
-
-Как приручить лису (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 8) (обновляемая)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зоопсихолог, изучающий лис, спасает жизнь странной замкнутой девушки Дины, но в результате сам становится подозреваемым в убийстве. Он вынужден начать самостоятельное расследование, а для этого ему приходится наладить контакт с дикаркой Диной, далекой от социальных норм и ограничений. Постепенно он выясняет, что в округе уже больше 15 лет пропадают юные девушки, (   Читать дальше...   )Производство: Россия, Место силыЖанр: Детектив, триллер, криминалРежиссер: Юлиана ЗакревскаяАктеры: Кирилл Кяро, Максим Стоянов, Таисья Калинина, Ксения Кутепова, Наталья Фенкина, Андрей Кочинов, Федор Федосеев, Сергей Медведев, Юрий Межевич, Егор Борисов и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF987858C044A8247FB062E3933770E1AE345BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699715   (117600) от 14.02.2024
-
-Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Evening Jazz Club - Love's Reflections: Reliving the Fire of Romance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Language of Love (3:46)
-02. Sentimental Memories (5:10)
-03. Still Want to Hold You in My Arms (3:56)
-04. Reflections (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0606F7DD8C44920EE81AA928AED78B0F984CDD
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1701073   (116740) от 19.02.2024
+
+Дракула / Dracula (2020) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-3 из 3) Невафильм, NewStudio, Jaskier, AlexFilm, HDRezka Studio
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансильвания, 1897 год. В женском монастыре нашёл приют обессиленный Джонатан Харкер, которому удалось сбежать из замка графа Дракулы. Большой интерес к произошедшему проявляет сестра Агата — тщательно изучив записи Джонатана, она просит рассказать его историю во всех подробностях. Некоторое время назад молодой британец прибыл в замок эксцентричного пожилого румынского (   Читать дальше...   )Производство: Великобритания / BBC Television Centre, Hartswood Films, NetflixЖанр: ужасы, фэнтези, боевик, триллер, драмаРежиссер: Джонни Кэмпбелл, Пол МакГиган, Дэймон ТомасАктеры: Клас Банг, Долли Уэллс, Морфидд Кларк, Джонатан Арис, Джон Хеффернан, Лидия Уэст, Мэттью Бирд, Саша Дхаван, Марк Гейтисс, Джоэнна СкэнлэнПеревод: Дублированный (Невафильм), Многоголосый профессиональный (NewStudio, Jaskier, AlexFilm, HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD21DEB4DAA68920E85E895DD936B91332336B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700531   (116741) от 19.02.2024
+
+Microsoft отучила браузер Edge перехватывать вкладки и данные Chrome
+
+>>След.
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft исправила ошибку, из-за которой её браузер Edge некорректно функционировал, автоматически импортируя данные и вкладки из Chrome без согласия пользователей. Проблема проявлялась после установки очередного обновления Windows 11 — браузер Microsoft Edge автоматически запускался с набором вкладок, которые до перезагрузки были открыты в Chrome.Пользователи неоднократно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701141   (116742) от 19.02.2024
+
+Windows 10 Debloater 2.6.10 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD42A5547585B86A29346BE389A5CF5DB4D661E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700926   (116743) от 19.02.2024
 
 Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
@@ -6,7 +78,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116743.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Topaz Photo AI 2.4.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116744.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ MAMP PRO 6 v.6.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116745.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ MiniTool Power Data Recovery 11.8 Technician RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116746.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:6D0F8A89FD7311BA7D99CC68B1ADBCFC3C5DDA43
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116747.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Hekasoft Backup & Restore 0.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116748.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:452BBA2AAD5CD4C451A7D92B449092BA3D619921
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116749.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:6528B94F0B8C30557D6CD78AC2262EE1930E1455
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116750.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:3302B51F8C66644D9369BD1D3E5BF8B7BE4561E8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116751.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:9B0141FAED0AE939F654D0E9CD16BFA103356D8D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116752.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Windows 11 Debloater 2.0.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116753.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:B4114A4235CF400A088294AEBC76487E4B1065A1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116754.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:DAF7432B511DE2D33B59D07F5B2951E4772FDF6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116755.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Firefox Browser ESR 115.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116756.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:67C4DF3B641C1DA80198FACEB98AEEAC6CE97386
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116757.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ DjVu Reader Pro 2.7.1 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116758.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:6DA77163AE7D5E5B863C4B3F45BA22C565A58F8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116759.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:2680F38ACB97646219ECFB0090F65E2810FA40AE
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116760.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:F88848F193DE6592818480804835B2ADFCA697DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116761.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:ED46C0509B9AAEC4801CE40501113A047274B267
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116762.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:73CAEF1FD6CE41B822EC76AF8FCCA1CD2D30FA7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116763.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:9F08C946837781D0DC3DA153F74F180D8B070EFC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116764.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116765.jpg" />
 </div>
 
 
@@ -555,79 +627,6 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701096   (116766) от 19.02.2024
-
-Bandicam 7.1.0.2151 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX/OpenGL/Vulkan.
-Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88406937B30B921230B19BB54DEDD4F7552D10D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700254   (116767) от 19.02.2024
-
-В России хотят запретить доступ провожающих в аэропорты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минтранс России разработал документ с новыми правилами безопасности в аэропортах, которые могут вступить в силу с 1 сентября 2024 года. Постановление опубликовано на Федеральном портале проектов нормативных правовых актов.Законопроект направлен на то, чтобы ограничить физическим лицам доступ к объектам транспортной инфраструктуры без надлежащих проездных документов, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492883   (116768) от 19.02.2024
-
-BBC: Семь периодов жизни звезды / Seven Ages of Starlight (2012) IPTVRip [H.264] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как-нибудь вечером, после заката, присядьте и посмотрите вверх. Вы сможете наблюдать за эпической драмой, в которой участвуют миллиарды актёров - звёзд, у каждой из которых своя история. Престарелые красные гиганты так раздулись, что вот-вот взорвутся. Сверхновые - самые зрелищные объекты во Вселенной. Загадочные чёрные дыры - космические надгробные плиты, которые (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, космосРежиссер: Гэби ХорнсбиУчастники: Руперт Грейвз, Алекс Филиппенко, Стив КоулиПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D3B0D42889F17CB1609A3A7649063AA4E42661
 ```
 
 

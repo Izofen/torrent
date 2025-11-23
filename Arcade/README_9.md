@@ -6,7 +6,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36287.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36321.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36368.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36424.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36531.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36532.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36601.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36621.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36634.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36713.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36962.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37031.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37461.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37467.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37525.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37621.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37696.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37832.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Heart of Darkness (1998) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37841.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SOS OPS! (2023) [Ru/Multi] (05.11.2024/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37969.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38157.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38165.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38284.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38308.jpg" />
 </div>
 
 

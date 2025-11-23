@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27596.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Christie’s планирует устроить распродажу работ
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27597.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27598.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:539D9360D67E67781C0DB654F8BE0BBB99E1EA0A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27599.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27599.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6C4A85E985FEF42DB271228C6E5290CF983573FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27600.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7687902DD65EEE2667DE0C723371035C667FF7CB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27601.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D7032299392CB5C75776649E661027777971350E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27602.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27602.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B095B4CB29808A350EECE2422A3E33229BE8F0D2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27603.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27603.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Assorted remixes compilation (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27604.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27604.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A9C98426FE239D59C2E5C91E7DA26E06AA7DBF03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27605.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F1577581E65E6152FA5B8AB01CC97920BF6CC974
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27606.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D71B5CB2C4C740ABF23AE1F9CD71059C6BC7D270
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27607.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27607.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Telegram Desktop 5.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27608.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ XnView MP 1.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27609.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7CF413C5152C44537F22508F8D9D22DD03354807
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27610.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27610.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7CF413C5152C44537F22508F8D9D22DD03354807
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27611.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:9FA8EC62657432D2588696C5EE5976F2E5F0DBEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27612.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27612.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4909789CE27B023FB003F058AE175D83CC26E7B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27613.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:0760C551A206E0683E73324368BF140384771D8C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27614.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:89EF33DBA7C066932528C2CE726E577224482C90
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27615.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27615.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7F067044736ADD9301C7562103C92B19F946206A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27616.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C490D2E059E26F84D1717149669263A81E2154B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27617.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27617.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Calibre 7.26.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27618.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:D04E3E8F7870390A8E64D5B985DBA210A54B0CD3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27619.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Between the Worlds (2025) [MP3|320 Kbps] <Native American, New Age, World>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27620.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ IObit Uninstaller Pro 14.2.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27621.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27621.jpg" />
 </div>
 
 

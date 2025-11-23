@@ -1,3 +1,79 @@
+###  Публикация: 1713287   (111930) от 05.04.2024
+
+Пурген - Автаркия (2024) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Автаркия
+2. Собирай объединяй
+3. Москва третий Рим
+4. Банкирам денег не дадим(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC1DC751A317C89D20D39637A7C090D4ADA1761
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713304   (111931) от 05.04.2024
+
+Emurasoft EmEditor Professional 24.1.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111931.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D90201A9E9DC524D1AB1C38848F37B07198DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713222   (111932) от 05.04.2024
+
+CherryTree 1.1.2.0 (x64) + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111932.jpg" />
+</div>
+
+
+###  Подробнее
+
+CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22744AEA567A855CAB23611DA08DA18C3F5E02F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713407   (111933) от 05.04.2024
 
 Advanced Renamer 3.95 release 2 + Portable (x64) [Multi/Ru]
@@ -6,7 +82,7 @@ Advanced Renamer 3.95 release 2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111933.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111934.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ Blank & Jones - Milchbar - Seaside Season 16 (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111935.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111936.jpg" />
 </div>
 
 
@@ -106,7 +182,7 @@ magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111937.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ magnet:?xt=urn:btih:D78BCBF35D2AA80E8EA65B91C5DB43C3D41B513C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111938.jpg" />
 </div>
 
 
@@ -154,7 +230,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2970 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111939.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ magnet:?xt=urn:btih:120F8C35B5697F6A0A1178F0E8A08EAF908B099C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111940.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ Vivaldi 6.6.3271.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111941.jpg" />
 </div>
 
 
@@ -226,7 +302,7 @@ magnet:?xt=urn:btih:24F241310FA29FC93F765717D551858ADA26D209
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111942.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ magnet:?xt=urn:btih:913B8692429542C14CE0BB1A8B1B0DD2EBC7FC13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111943.jpg" />
 </div>
 
 
@@ -274,7 +350,7 @@ magnet:?xt=urn:btih:9334E7AC488919D4D4C89DB2EA2BDFC4F1E07F8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111944.jpg" />
 </div>
 
 
@@ -298,7 +374,7 @@ magnet:?xt=urn:btih:9334E7AC488919D4D4C89DB2EA2BDFC4F1E07F8F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111945.jpg" />
 </div>
 
 
@@ -322,7 +398,7 @@ magnet:?xt=urn:btih:37F07890E5FB646181717D1CEC114DDE9C9FE847
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111946.jpg" />
 </div>
 
 
@@ -346,7 +422,7 @@ magnet:?xt=urn:btih:C448ACEEA48FF287966AF8E441903AC9C6315BC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111947.jpg" />
 </div>
 
 
@@ -370,7 +446,7 @@ Icecream Video Editor Pro 3.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111948.jpg" />
 </div>
 
 
@@ -394,7 +470,7 @@ magnet:?xt=urn:btih:B3481149DF8A9069230813C558CF5CF53BCCC51B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111949.jpg" />
 </div>
 
 
@@ -418,7 +494,7 @@ Calibre 7.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111950.jpg" />
 </div>
 
 
@@ -442,7 +518,7 @@ VA - Music News vol.360 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111951.jpg" />
 </div>
 
 
@@ -469,7 +545,7 @@ magnet:?xt=urn:btih:6817CDFFB9D3D9956140180F05E540BD9F0089AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111952.jpg" />
 </div>
 
 
@@ -493,7 +569,7 @@ magnet:?xt=urn:btih:E859E5FCD7FC6FB86F0EB4EB70AA8F5F7A4E2724
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111953.jpg" />
 </div>
 
 
@@ -517,7 +593,7 @@ Icecream PDF Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111954.jpg" />
 </div>
 
 
@@ -541,7 +617,7 @@ magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111955.jpg" />
 </div>
 
 
@@ -552,80 +628,6 @@ magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713321   (111956) от 05.04.2024
-
-Icecream Photo Editor Pro 1.49 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2581B51686F18C2A014740FF7390CC405A0262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713416   (111957) от 05.04.2024
-
-Sante DICOM Editor 10.0.8 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
-Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB20DB9DDD01E456D9816A5C7AB817FB7A47BD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713288   (111958) от 05.04.2024
-
-Sumatra PDF 3.6.16004 Prerelease + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A420B6473B45036A53341DEAF41F796A55B4F5C0
 ```
 
 

@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87053.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87529.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87723.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Chilly - We Are The Popkings ... And Other Hits Of (2011) [MP3|320 кб/с]<Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87791.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Cherry Laine - Greatest Hits (2000) [MP3|256 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87999.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88032.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88048.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88809.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89262.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89489.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89814.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90351.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90517.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90663.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91219.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94629.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94629.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94684.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95155.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95155.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96154.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96154.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96359.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97654.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97705.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98091.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99444.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100589.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100598.jpg" />
 </div>
 
 

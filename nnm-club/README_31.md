@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_843.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DaVinci Resolve Studio 20.2.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_844.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Igorrr - Сollection (2006 - 2025) 8 CD [FLAC|Lossless|tracks + .cue] <IDM, Brea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_845.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Flyoobe 1.23.445 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_846.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FA83065398ED6CD95315DD03364481778AEAD445
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_847.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Signal 7.72.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_848.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_849.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:84A5E04F57EC40A326A7BD8C1CF15EBF1E4D96B8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_850.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:041F2BFCBAFA5360F042037183E47A8F417276E6
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_851.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:EA6063AEEC7C6560753ABE7A80444F9D062F6828
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_852.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_853.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_854.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:32FA1A65D83541B4627379473EEFC1A469336D9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_855.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Internet Download Manager 6.42 Build 46 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_856.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F6363127772D8F44EA3E1E5EEF0A97517943372F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_857.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_858.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_859.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:39559D7430A8A5962B8C5F1BDB50FCF02D62DA86
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_860.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:E34EBDC3C700446A9D70E68FB0216951672FCEC1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_861.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:441DA74245C065193E7577BD722AA46CDA2A93C1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_862.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FNDup 1.2 Beta [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_863.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_864.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_865.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Internet Download Manager 6.42 Build 47 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_866.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_867.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MediaHuman YouTube Downloader 3.9.16 (2409) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_868.jpg" />
 </div>
 
 

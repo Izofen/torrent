@@ -1,3 +1,82 @@
+###  Публикация: 1695418   (120250) от 29.01.2024
+
+Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Terrible Misunderstanding (4:24)
+02. Holy Fishtail (8:26)
+03. Once Low Now High (5:31)
+04. Pseudoscience (3:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B9E314BBF12463D126D215526F4AC993B1D24F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695492   (120251) от 29.01.2024
+
+Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destilando Odio (03:40)
+02. Mi Silencio (03:24)
+03. Indignación (04:38)
+04. Oscura Traición (03:57)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0656B3D43E56B7107FA91407370B7E51B552D965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695578   (120252) от 29.01.2024
+
+Amadine 1.5.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
+Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE46CB47B8987A79A0DF5EB6976E84E1EE35F55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695592   (120253) от 29.01.2024
 
 iReal Pro 2024.1 [Multi]
@@ -6,7 +85,7 @@ iReal Pro 2024.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120253.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ JD Allen - Americana, Vol. 2 (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120254.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ PullTube 1.8.5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120255.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120256.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ GraphicConverter 12 for Mac 12.1 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120257.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120258.jpg" />
 </div>
 
 
@@ -156,7 +235,7 @@ Indignatio - Principium (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120259.jpg" />
 </div>
 
 
@@ -183,7 +262,7 @@ Boxy SVG 4.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120260.jpg" />
 </div>
 
 
@@ -207,7 +286,7 @@ EdgeView 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120261.jpg" />
 </div>
 
 
@@ -231,7 +310,7 @@ magnet:?xt=urn:btih:D74A68242F91B33ED82A73513955B00758166AD2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120262.jpg" />
 </div>
 
 
@@ -255,7 +334,7 @@ Hazel 5.3.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120263.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ Noir – Dark Mode for Safari 2024.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120264.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120265.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120266.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ magnet:?xt=urn:btih:BE52484C67F194508BEF81677CE3A37703D9DE9B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120267.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120268.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120269.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120270.jpg" />
 </div>
 
 
@@ -464,7 +543,7 @@ magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120271.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120272.jpg" />
 </div>
 
 
@@ -514,7 +593,7 @@ magnet:?xt=urn:btih:5ED5F102E0C196FF069EB7BDCB18D5D7F9010EC1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120273.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ Network Kit 9.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120274.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120275.jpg" />
 </div>
 
 
@@ -577,84 +656,6 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66BAFADEA570297A746743F13EB8774774F7F58F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695345   (120276) от 29.01.2024
-
-DJ KUBA & NEITAN - Live @ Skandalizer x Level27, Poland (2024-01-19) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust x Fred Again & SHM x Kastra vs. DJ Arman Aveiru - Like Turn On The Lights (DJ KUBA & NEITAN VIP Edit)
-02. Linkin Park vs. Lucas & Steve - Numb vs. Warp (DJ KUBA & NEITAN Edit)
-03. Robert Falcon x DMX - Party Up (DJ Arman Aveiru Rhythm Of The House Edit)
-04. John Summit ft. Hayla - Where You Are w/Axwell x Dirty South x Topic - (   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D37B5231889F2C58F5124C4693425B00D11988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695584   (120277) от 29.01.2024
-
-eBookBinder 1.12.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120277.jpg" />
-</div>
-
-
-###  Подробнее
-
-eBookBinder - это супер простой инструмент для создания собственных электронных книг с использованием существующих документов. При компиляции проекта книги eBookBinder создает файл *epub.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA70AD0A48AFCAD796A2CF3C95F1688B73983EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695433   (120278) от 29.01.2024
-
-Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whenever You Smile (03:14)
-02. You Make Me Rock (02:50)
-03. Peaceful Dream (02:57)
-04. Glorious Planet (02:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
 ```
 
 

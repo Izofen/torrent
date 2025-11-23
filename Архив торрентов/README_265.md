@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Backupper Technician Plus 7.3.5 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59351.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corona Renderer 11.2 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59375.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CCleaner 6.23.11010 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59379.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IsMyHdOK 3.96 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59380.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Zoner Photo Studio X 19.2403.2.533 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59385.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ NetLimiter 5.3.9.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59388.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WinSCP 6.3.3 Build 14916 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59389.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Firefox Browser 125.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59390.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ NetLimiter 5.3.9.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59392.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Firefox Browser ESR 115.10.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59394.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ StaxRip 2.38.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59402.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ HWiNFO 8.01 Build 5420 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59403.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NVIDIA GeForce Desktop Game Ready 552.22 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59405.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Topaz Video AI 5.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59408.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59411.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ SyMenu 8.01.8833 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59412.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ WSCC (Windows System Control Center) 7.0.8.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59413.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:0BFA4055E503A8C8A9B6949FD03C1E8669BA15FD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59415.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59416.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:05CC2F21E334986CF2B30F57F605F9907CE24261
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59423.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Topaz Video AI 5.0.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59430.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adguard 7.17.0 (7.17.4705.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59437.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Blender 4.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59438.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VirtualBox 7.0.16 Build 162802 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59439.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Abelssoft SSD Fresh Plus 2024 13.01.53859 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59450.jpg" />
 </div>
 
 

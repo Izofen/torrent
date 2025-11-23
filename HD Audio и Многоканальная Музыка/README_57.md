@@ -6,7 +6,7 @@ Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65746.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sodom - The Arsonist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65747.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65813.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65814.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65824.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65825.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65840.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65904.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kiss - Asylum (1985) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65912.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kiss - Animalize (1984) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65915.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65923.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cocojoey - STARS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <hyperpop, bitpop, c
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65924.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65932.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65941.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65947.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65950.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Leverage - Gravity (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65951.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65957.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65958.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65959.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65964.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65967.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65968.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65976.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65977.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ John Surman, Karin Krog - Electric Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65979.jpg" />
 </div>
 
 

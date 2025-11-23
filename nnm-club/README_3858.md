@@ -1,3 +1,77 @@
+###  Публикация: 1696054   (119990) от 31.01.2024
+
+Роман Храпачевский | Армия монголов периода завоевания Древней Руси (2022) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119990.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XIII в. княжества Древней Руси и государства Восточной и Центральной Европы испытали ошеломляющий натиск военной машины Монгольской империи, буквально сметающей все на своем пути. Грандиозная по своим масштабам кампания 1236–1242 гг. (общие силы монголов составляли астрономические 250–260 тыс. человек) вошла в историю войн как Великий Западный поход. Население (   Читать дальше...   )Жанр: Военная документалистика и аналитика, ИсторияИздательство: Яуза-прессФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A5C0EDE28825CDFEC8092D0FDDD47CCDDDD249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695892   (119991) от 31.01.2024
+
+Сергей Карелин, Виталий Останин | Мастер Порталов (Книга 3) (2024) [MP3, Вадим Ерофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кого-то сбивает автобус, и после смерти он попадает в фентези с гаремом и эльфийками. Кого-то богиня призывает, чтобы спасти всех от Темного Властелина. А у меня «просто» пробудилось древнее наследие и я научился открывать порталы. Да, в другой мир.
+
+Вроде бы и этого достаточно, чтобы с ума сойти, так еще и планетка после какого-то Армагеддца, мутанты со всех сторон, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтезиИздательство: ЛитРес, АвторПродолжительность: 09:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C676B2F2EA35FCE3ABF63F97527928223ECED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695927   (119992) от 31.01.2024
+
+Журнал | Maximum PC №2 (февраль 2024) [PDF][En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maximum PC - это журнал, который каждый компьютерщик, геймер или создатель контента должен читать каждый месяц. Каждый номер содержит множество обзоров продуктов, подробные инструкции и интересные технические новости и информацию, которой жаждут пользователи ПК. Maximum PC охватывает каждую тему, которая требует молниеносного ПК, от редактирования видео и создания (   Читать дальше...   )Жанр: Компьютерные журналыЯзык: АнглийскийИздательство: Future US, Inc.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61FE589A4C13639205A6D5E805FE30429B1250A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695982   (119993) от 31.01.2024
 
 PIDKey Lite 1.64.4 b38 Portable by Ratiborus [Ru/En]
@@ -6,7 +80,7 @@ PIDKey Lite 1.64.4 b38 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119993.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119994.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:9FD4B562F908F4F2E131A8A27983C14048363E29
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119995.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ JetBrains PhpStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119996.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.11.1.17  [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119997.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:6B01FCD9727D3CE3C643B92A379D4FF060D04441
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119998.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ Google Chrome 121.0.6167.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119999.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ magnet:?xt=urn:btih:C589C639F316E7AA49921FBFE82047A3E962B688
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120000.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Nazareth - Singles, EPs, B-Sides & Bonus Tracks (2018) 3 x CD [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120001.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ magnet:?xt=urn:btih:36374A68BF614E9C2D0357B0F38BB6F4CCE8B797
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120002.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ The Cub (2024) [Ru] (19.01.2024) Unofficial Team RIG [Русификатор]
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120003.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ magnet:?xt=urn:btih:29E75903EBB877A953D6F96DA5EC55C1E32988C3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120004.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ LibreOffice 24.2.0.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120005.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ magnet:?xt=urn:btih:A4F3BA152F36E27AE4F633845276686AAA7DE4A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120006.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120006.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ magnet:?xt=urn:btih:A4F3BA152F36E27AE4F633845276686AAA7DE4A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120007.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120007.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ magnet:?xt=urn:btih:A4F3BA152F36E27AE4F633845276686AAA7DE4A0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120008.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ Defender Remover Portable 12.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120009.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:BE85A95B7EF4F4F3526DADB2FE8C08E78D2072AC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120010.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:DCA0296BA064C357D8D64E6DB763840ABC570C3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120011.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120011.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:DCA0296BA064C357D8D64E6DB763840ABC570C3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120012.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ Foobar2000 2.1.2 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120013.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:A8603CA5DB3CA4869DDDF3593608FA7221FAA43F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120014.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:3D4E75BAC0545368E0E7C67C3E6D48238CDFC2E7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120015.jpg" />
 </div>
 
 
@@ -553,79 +627,6 @@ magnet:?xt=urn:btih:3D4E75BAC0545368E0E7C67C3E6D48238CDFC2E7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474C73291AA67FFE846ECDD1DCF8D3D4359D12C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696033   (120016) от 31.01.2024
-
-Bartender 5 v.5.0.50 beta [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 14.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CAE8590CEE1DB14B1F6FE970E9A1FF0ED5EF2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696041   (120017) от 31.01.2024
-
-W10Privacy 5.1.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120017.jpg" />
-</div>
-
-
-###  Подробнее
-
-W10Privacy - программа для изменения настроек системы Windows 10 и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить/отключить.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5559DC60635AC65F5A295F5040A8DC15D62D03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695925   (120018) от 31.01.2024
-
-Мгновенный папочка / Instant Daddy (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холостяк Вал Рохас внезапно становится отцом маленькой Миры, когда мама девочки исчезает. Парню предстоит разобраться в себе и понять, что такое быть папой.Производство: Филиппины, США / Globalgate Entertainment, Viva FilmsЖанр: Комедия, драмаРежиссер: Крисанто Б. АкиноАктеры: Риза Сенон, Althea Ruedas, Jerald Napoles, Danita Paner, Джао Мапа, Nikko Natividad, MC Калакиан, Nicco ManaloПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:56Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C073034EF08F07DDA87DA95F3D3456440F2B68C
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 588924   (155241) от 14.12.2012
+
+Sexy Girls Wallpapers (13.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E54472025BBDB8D0A51F73891AE4530DC4DC1D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587083   (155244) от 14.12.2012
+
+Sexy Girls Pack Wallpapers (09.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A240BA5790CB20A251CB134D23BD77998139BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433861   (155248) от 22.12.2020
+
+EagleFiler 1.9.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155248.jpg" />
+</div>
+
+
+###  Подробнее
+
+EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
+EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: C-Command Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6199F326757BAA2D6A394797C68215E2C05CDD63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346923   (155255) от 21.12.2019
 
 Icecream Screen Recorder PRO 6.01 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +79,7 @@ Icecream Screen Recorder PRO 6.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155255.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ The Locust - Molecular Genetics From The Gold Standard Labs (2012) [MP3|320 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155259.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ ASUS GPU Tweak III 1.7.0.7 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155261.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Splattered Entrails - Depths Of Obscurity (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155265.jpg" />
 </div>
 
 
@@ -112,7 +185,7 @@ Unity Pro 2019 2.16f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155268.jpg" />
 </div>
 
 
@@ -138,7 +211,7 @@ magnet:?xt=urn:btih:D3907D1D84B81B0E59D7C0DE2E07383724B590CA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155269.jpg" />
 </div>
 
 
@@ -162,7 +235,7 @@ Minecraft Story Mode: A Telltale Games Series - Episodes 1-4 (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155271.jpg" />
 </div>
 
 
@@ -186,7 +259,7 @@ Morger - 2012 (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155272.jpg" />
 </div>
 
 
@@ -219,7 +292,7 @@ Sexy Girls Pack Wallpapers (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155284.jpg" />
 </div>
 
 
@@ -243,7 +316,7 @@ ESET NOD32 Antivirus 10.0.386.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155286.jpg" />
 </div>
 
 
@@ -267,7 +340,7 @@ Sexy Girls Wallpapers (09.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155290.jpg" />
 </div>
 
 
@@ -291,7 +364,7 @@ PDF to Word Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155293.jpg" />
 </div>
 
 
@@ -315,7 +388,7 @@ magnet:?xt=urn:btih:338673C53F469FD842E2D06436D21D1B33A250DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155295.jpg" />
 </div>
 
 
@@ -339,7 +412,7 @@ SIV (System Information Viewer) 5.74 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155297.jpg" />
 </div>
 
 
@@ -363,7 +436,7 @@ Cockos - REAPER 5.965 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155298.jpg" />
 </div>
 
 
@@ -387,7 +460,7 @@ Lye By Mistake - Fea Jur (2009) [MP3|320 кб/с]<Instrumental Progressive Fusio
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155300.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Resource Hacker 5.2.5.409 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155305.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Jordan Rakei - Wallflower (2017) [FLAC|Lossless|tracks + .cue] <R&B, Soul, Neoso
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155309.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ Cockos REAPER 7.05 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155320.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:56FAE0E47798917BD6D76A4E497FAB5DC07FB55B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155324.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:3F9BBE6E6A13ED483D93F5CFD250B0FB99A99082
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155332.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:CE35FE1ED490D13335BA6A4C3E7F42415AC8F86C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155338.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ Auslogics Disk Defrag Free 8.0.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155341.jpg" />
 </div>
 
 
@@ -582,79 +655,6 @@ Auslogics Disk Defrag - программа, призванная помочь и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671C9ABFAAB7D9326C7C1E4C36E3B3498DB112DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600748   (155342) от 28.12.2022
-
-RadioMaximus 2.31 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C211AE1A879E5848A54960BAC3C31154DFC9D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600650   (155346) от 28.12.2022
-
-4K Downloader 4.40.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155346.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD.
-Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4839EEB34D4DCDC1E37C7269013914F76AEF4456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518247   (155349) от 19.12.2021
-
-Wise Disk Cleaner 10.8.2.802 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7701EA10F5D8C4ADE8C7DF4BA5EFE3E843A0C882
 ```
 
 

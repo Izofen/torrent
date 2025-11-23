@@ -1,3 +1,148 @@
+###  Публикация: 1677713   (141463) от 23.11.2023
+
+Алмазная коронка бура / Даймонд Хед / Diamond Head (1962) WEB-DLRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатый гавайский производитель ананасов и кандидат в сенаторы США Ричард Хоуленд пытается контролировать всё и всех вокруг себя, включая свою упрямую сестру Слоун. Вскоре Хоуленд на собственном горьком опыте узнает, что деньги и власть не могут купить любовь и счастье.Производство: США / Jerry Bresler ProductionsЖанр: драма, мелодрамаРежиссер: Гай ГринАктеры: Чарлтон Хестон, Ивет Мимьё, Джордж Чакирис, Франс Нуйен, Джеймс Даррен, Элин МакМэон, Элизабет Аллен, Вон Тейлор, Marc Marno, Филип АнПеревод: Авторский (Алексей Яковлев)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1420117BFB060B2334B23CA440D5E20448090CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969325   (141464) от 30.12.2015
+
+Garmin: City Navigator Taiwan 2015.40 [Ch]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная карта Тайваня для навигаторов ГарминТип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: КитайскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6178640E1BD2B3BA8191CB989748C1AB7CC630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193982   (141465) от 29.12.2017
+
+Мифы и чудовища / Myths & Monsters (2017) DVB [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал "Мифы и чудовища" приглашает зрителей в путешествие по мифической Европе и раскрывает происхождение большинства знаменитых легенд. Мифы - это величайшее культурное наследие человечества, интерес к ним не ослабевает в современном мире. Мифология складывалась веками, передаваясь из уст в уста, из поколения в поколение и оказала серьезное влияние на (   Читать дальше...   )Производство: Великобритания, Канада, 3DD Productions, NetflixЖанр: Документальный, исследования, мифологияРежиссер: Даниэль КонтурПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7DEDAA97C062E411D9E1C9DD73153E9337B822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272863   (141466) от 29.12.2018
+
+А. Дебидур | Дипломатическая история Европы от Венского до Берлинского конгресса (1814-1878) [2 тома] (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем сочинении французский историк Антонен Дебидур (1847-1917) подразделил дипломатическую историю Европы на два периода, примерно равные по своей продолжительности: Том 1: Священный Союз (1814-1847); Том 2: Революция (1848-1878). В первом томе своего труда он попытался рассмотреть довольно широкий круг проблем, связанных с Венским конгрессом 1814-1815 гг. и той (   Читать дальше...   )Жанр: История, политология, дипломатияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B86765D290452D6E959512A9A75257346005CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520424   (141467) от 28.12.2021
+
+Белый плен / Eight Below (2006) WEB-DLRip [H.264/1080p] [Open Matte] [AI Remastered]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается на бескрайних просторах Антарктики. Научная экспедиция, в состав которой входят Джерри Шепард, его лучший друг Купер и геолог, отправляется на поиски метеорита.
+Однако неожиданное происшествие и тяжелые погодные условия вынуждают их оставить свои собачьи упряжки и вернуться назад. И теперь восемь собак должны в течение шести месяцев (   Читать дальше...   )Производство: США, Walt Disney Pictures, Spyglass Entertainment, Mandeville Films, Winking Productions, The Kennedy/Marshall CompanyЖанр: Драма, Приключения, СемейныйРежиссер: Фрэнк МаршаллАктеры: Пол Уокер, Брюс Гринвуд, Мун Бладгуд, Венди Крюсон, Джерард Планкет, Аугуст Шелленберг, Джейсон Биггз, D.J./Timba (Макс), Koda/Jasmin (Мая), Apache/Buck (Старина Джек), Noble/Troika (Шедоу), Flapjack/Dino (Бак), Sitka/Chase (Труман), Floyd/Ryan (Дьюи), Jasper/Lightning (Шорти)Перевод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:00:32Реклама: нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B1FBDF8FF1B46487D0CA043D3EC22F24B344E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077500   (141469) от 29.12.2016
+
+Отель Элеон (2016) SATRip (сезон 1, серии 1-21 из 21)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шеф-повар Виктор Баринов ушел на пенсию, а Элеонора Андреевна встретила мужчину своей мечты — на этом закончился шестой сезон «Кухни». Но жизнь продолжается: Михаил Джекович по-прежнему отвечает за порядок в «Элеоне», шеф-поваром ресторана Victor назначили Сеню, а Настя получает неожиданное повышение, что совсем не радует Костю. Все идет своим чередом, пока отель (   Читать дальше...   )Производство: Россия, Украина / Sisters Production, Yellow, Black and WhiteЖанр: комедияРежиссер: Антон Федотов, Антон МасловАктеры: Григорий Сиятвинда, Милош Бикович, Елена Ксенофонтова, Сергей Лавыгин, Виктор Хориняк, Ольга Кузьмина, Екатерина Вилкова, Диана Пожарская, Тимур Еремеев, Рина Гришина и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D38E8A28C75AB51846D1176FDE73EDDF2EA235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904626   (141470) от 29.12.2016
 
 Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Edition]
@@ -6,7 +151,7 @@ Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141470.jpg" />
 </div>
 
 
@@ -30,7 +175,7 @@ magnet:?xt=urn:btih:839C2F7C527AFDEE7F7A701260F7ACAA4E49BCFF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141471.jpg" />
 </div>
 
 
@@ -54,7 +199,7 @@ Chris Carter - Miscellany (2018) Anthology [FLAC|Lossless|tracks + .cue] <Minima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141472.jpg" />
 </div>
 
 
@@ -81,7 +226,7 @@ magnet:?xt=urn:btih:D9A1DEED9CED849EBC46345C66C76D9C43D9FD61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141475.jpg" />
 </div>
 
 
@@ -105,7 +250,7 @@ magnet:?xt=urn:btih:6D7B066C39055389CE8F47C45FDBA9BBA4337484
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141476.jpg" />
 </div>
 
 
@@ -129,7 +274,7 @@ magnet:?xt=urn:btih:1710449E90162CF29FC6718C22D5B344304D6A48
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141477.jpg" />
 </div>
 
 
@@ -153,7 +298,7 @@ magnet:?xt=urn:btih:A0D9CCFA02518CF3C2A95CBF879BEA3CDBDB1FB6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141478.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ magnet:?xt=urn:btih:9AD42087EEE2D80F276B91C7423778D74B199E4A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141479.jpg" />
 </div>
 
 
@@ -202,7 +347,7 @@ Phill Veras - Alma (2018) [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141480.jpg" />
 </div>
 
 
@@ -229,7 +374,7 @@ magnet:?xt=urn:btih:948AABBE4C4448C750AD6EDC75B1AAAFCA80E4E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141481.jpg" />
 </div>
 
 
@@ -254,7 +399,7 @@ magnet:?xt=urn:btih:F7086C00D2CE1931C9EBC252A36E05F0325F6E71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141482.jpg" />
 </div>
 
 
@@ -278,7 +423,7 @@ magnet:?xt=urn:btih:F7086C00D2CE1931C9EBC252A36E05F0325F6E71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141485.jpg" />
 </div>
 
 
@@ -302,7 +447,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ magnet:?xt=urn:btih:4038EBBF3862E866D03DAE2D284B90D4628B934D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141487.jpg" />
 </div>
 
 
@@ -350,7 +495,7 @@ Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141488.jpg" />
 </div>
 
 
@@ -376,7 +521,7 @@ magnet:?xt=urn:btih:B414C40FD2867F03DA2C99091E19AA9D9895E7B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141489.jpg" />
 </div>
 
 
@@ -400,7 +545,7 @@ Testament - The Formation of Damnation (2008) 2CD, Deluxe Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141490.jpg" />
 </div>
 
 
@@ -428,7 +573,7 @@ Wise Care 365 Pro 3.95.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141492.jpg" />
 </div>
 
 
@@ -452,7 +597,7 @@ magnet:?xt=urn:btih:9D019444E5164620856D2AFE449309998AD0AD04
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141493.jpg" />
 </div>
 
 
@@ -485,7 +630,7 @@ magnet:?xt=urn:btih:667A0431BCB4D56C5C14E0334141489ECFF97898
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141494.jpg" />
 </div>
 
 
@@ -496,158 +641,6 @@ magnet:?xt=urn:btih:667A0431BCB4D56C5C14E0334141489ECFF97898
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C43B8B17C6919D57F2412F78B35105B41441D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678889   (141495) от 23.11.2023
-
-Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина Силанова | Legal Design (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составить лаконичный меморандум для клиента и убедительно представить аргументы в суде – рутинные задачи, однако простые они лишь на первый взгляд. Достигнуть в них совершенства помогут не только юридические знания, но и техники Legal Design.
-Legal Design – это наиболее эффективная модель организации и презентации юридического решения конкретной задачи.
-Лекторы курса (   Читать дальше...   )Производство: Legal AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:35:49Реклама: Вставки и наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE920C2161C3C7574DF8EC9901E84BEB0943E8F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060632   (141497) от 29.12.2016
-
-Counter-Strike 1.6 Green Edition (2015) [Ru] (1.1.2.6/pv48/b4554) Repack Vin4
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Counter-Strike (от англ. - «Контрудар»; сокр. CS или КС, разг. - контра) - культовая серия компьютерных игр в жанре командного шутера от первого лица, основанная на движке GoldSrc, изначально появившаяся как модификация игры Half-Life. Из серии самая популярная - Counter-Strike 1.6. Основная идея игры - противостояние двух команд - террористов (Terrorist, T) и спецназа (   Читать дальше...   )Тип издания: RepackРазработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272803   (141499) от 29.12.2018
-
-Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141499.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monaco [6:44]
-02. 'Round About Midnight [7:46]
-03. Mexico City [6:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3196674ED44C8301B0AF1A3B3F726A6C91559A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970461   (141500) от 30.12.2015
-
-VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Вестов - Слеза упала в кофе
-002. Андрей Язвинский - Магнит
-003. Геннадий Ура - Мужская Дружба
-004. Рома Рязанский - Ветерок(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85FD0022EDC9532ADDEDE2A2C6945CA43B15ABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520453   (141501) от 28.12.2021
-
-Василий Маханенко | Клан медведя (Книга 2). Чародей (2021) [MP3, Игорь Ященко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инициация завершена, но Лег понимает – ему предстоит доказать выданный тотемом аванс. Впереди юношу ждёт трудная дорога в опасные земли. Но те, кто желает править Северной империей, не дремлют. И Легу приходится решать, что для него важнее – личное развитие или целостность огромного государства. Хотя может статься, что одно без другого не имеет права существовать, (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 08:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1566B2AD31FDC06C5E176BBDB7A0614393626E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851945   (141502) от 29.12.2014
-
-Windows 8.1 with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Український
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA06BCECF51F4913680A10FB8E783EF06FD2911
 ```
 
 

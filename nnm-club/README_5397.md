@@ -1,3 +1,178 @@
+###  Публикация: 1345832   (165825) от 16.12.2019
+
+Черстин Лундберг Хан | Печенье счастья (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетний Оскар ‒ самый обычный парень, а вот его родители любят почудить. Папа работает простым гитарным мастером, но всегда мечтал о карьере оперного певца, поэтому во всех помещениях с хорошей акустикой он начинает… петь!
+А мама Оскара – талантливая парикмахер, которая обожает исполнять к месту и не к месту различные танцы, заставляя мальчика краснеть (   Читать дальше...   )Жанр: Проза для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9D9E3AF4CA2EE93027E796869F70BE5338D2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516588   (165826) от 11.12.2021
+
+Textify 1.8.10 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textify — это крошечная утилита, позволяющая скопировать практически любой некопируемый обычными средствами текст диалоговых окон, меню, панелей инструментов и так далее. Пользователю достаточно воспользоваться горячими клавишами и кликнуть в нужную область экрана, а затем скопировать текст из открывшегося окна.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673073   (165827) от 31.10.2023
+
+Мегалодон: Безумие / Megalodon: The Frenzy (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять огромных мегалодонов наводят ужас на весь Мексиканский залив. Оказавшись не в силах противостоять им, военному флоту США приходится прибегнуть к помощи учёных, занимающихся подводной энергетикой.Производство: США / Atomic Blonde EntertainmentЖанр: Боевик, приключения, ужасыРежиссер: Брендан ПетриццоАктеры: Эрик Робертс, Диана Принс, Джессика Ченселлор, Кэролайн Уильямс, Кристи Лондон, Алекс Трамбл, Шэрон Дезире, Виктория Грант, Джордан Хаббард, Джорди ТалленерсПеревод: Многоголосый любительский (КОЛОБОК)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:06Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46946BD632154F5774373AEBFC5701DB20552EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597553   (165828) от 15.12.2022
+
+Inhalo - Sever (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omniscient Being [00:02:34]
+02. Subterfuge [00:06:36]
+03. Sisyphean [00:05:57]
+04. Pretenders [00:05:28](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED4744F6B4B4883011B703665C797D359EE0DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431951   (165829) от 15.12.2020
+
+Северяне / Vikingane (2020) WEBRip (сезон 3, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в 790 году н. э. в вымышленном норвежском поселке Нурхейм, куда из очередного набега возвращается к женам и детям дружина викингов. Среди родных фьордов их ждут не только пиры и здравицы, но и бытовые заботы, семейные дрязги и назревающие политические проблемы.Производство: Норвегия / Viafilm, Sagveien Resort, Norsk Rikskringkasting (NRK)Жанр: комедияРежиссер: Jon Iver Helgaker, Йонас ТоргерсенАктеры: Каре Конради, Нильс Йорген Каалстад, Йон Ёигарден, Bjørn Myrene, Силье Торп, Тронд Фауса Аурвааг, Ёйстейн Мартинсен, Мариан Саастад Оттесен, Кристин Риис, Миккель Братт Сильсет и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:30:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765DA8DCC88516027E7741B3CE5BB2B079DC115C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345427   (165830) от 16.12.2019
+
+Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото галерея [FLAC|Lossless|image + .cue] <Melodic Black Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cellos For The Insatiable . . . . .04:05
+02. Serpent's Embrace . . . . . . . . .04:17
+ 03. Rebirth . . . . . . . . . . . . . .05:02
+ 04. Light Reborn. . . . . . . . . . . .04:03(   Читать дальше...   )Жанр: Melodic Black Gothic MetalПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510766   (165831) от 11.12.2021
+
+Джеймс Бонд 007: Казино Рояль / James Bond 007: Casino Royale (2006) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя богатый шпионский арсенал, Джеймс Бонд вступает в поединок с финансовым гением преступного мира Ле Шиффром. Но генеральное сражение против него можно выиграть лишь силой ума, и не на поле боя, а на зеленом сукне казино «Рояль».Производство: Великобритания, Чехия, США, Германия, Багамы / Columbia Pictures, Eon Productions, Casino Royale ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мадс Миккельсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Симон Абкарян, Исаак Де Банколе, Еспер КристенсенПеревод: Дублированный, Двухголосый профессиональный (П. Гланц и И. Королёва), Авторский (Ю. Живов, А. Гаврилов, Ю. Сербин, С. Рябов)Язык озвучки: Русский, украинский, английскийСубтитры: Русский (Forced, Full), английский (Full)Продолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC38B7F37F77951E1441365409C8EB4BB133BBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431303   (165832) от 15.12.2020
 
 Яна Левенцева | Искусство эффектной фотографии: как снимать и обрабатывать (2020) [PDF]
@@ -6,7 +181,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165832.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ magnet:?xt=urn:btih:E8FAF7D7DCF227FE6BCA64254EF86A32A12FF9CE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165833.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:95A5CA954500A81B75F79ADB74266965647A4104
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165834.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ magnet:?xt=urn:btih:2FAA48F49A7A80F43DD0C130D5B3143FE9590672
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165835.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ K-Lite Codec Pack Update 17.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165836.jpg" />
 </div>
 
 
@@ -126,7 +301,7 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165837.jpg" />
 </div>
 
 
@@ -150,7 +325,7 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165838.jpg" />
 </div>
 
 
@@ -177,7 +352,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165839.jpg" />
 </div>
 
 
@@ -203,7 +378,7 @@ magnet:?xt=urn:btih:C2BCDA5B964D15AEDAD86E8E9F06345DB17477D9
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165840.jpg" />
 </div>
 
 
@@ -228,7 +403,7 @@ magnet:?xt=urn:btih:F7A806F9DCFE1C68E94EB41890B97FFCB47FBB61
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165841.jpg" />
 </div>
 
 
@@ -254,7 +429,7 @@ magnet:?xt=urn:btih:F71CA65FE103F6C7FD3CE8E0B6479ED2ED8ED187
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165842.jpg" />
 </div>
 
 
@@ -279,7 +454,7 @@ OBS Studio 26.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165843.jpg" />
 </div>
 
 
@@ -305,7 +480,7 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165844.jpg" />
 </div>
 
 
@@ -329,7 +504,7 @@ magnet:?xt=urn:btih:63A682CD4C0FB5A5136B397D25E0FCF5DDDD8330
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165845.jpg" />
 </div>
 
 
@@ -354,7 +529,7 @@ magnet:?xt=urn:btih:71FE51EA8A738784F7B5C513FC83DFEB1EAAD3C8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165846.jpg" />
 </div>
 
 
@@ -378,7 +553,7 @@ magnet:?xt=urn:btih:D755352648EEDA28790C5CF481537C56CED4480D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165847.jpg" />
 </div>
 
 
@@ -403,7 +578,7 @@ magnet:?xt=urn:btih:171CFA6F38DA328666B2E2A3560A9CCB81D834F2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165848.jpg" />
 </div>
 
 
@@ -427,7 +602,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165849.jpg" />
 </div>
 
 
@@ -451,7 +626,7 @@ magnet:?xt=urn:btih:A0AA2EF3E16A182C0786848FC8A4BE5BD0B812D5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165850.jpg" />
 </div>
 
 
@@ -462,186 +637,6 @@ magnet:?xt=urn:btih:A0AA2EF3E16A182C0786848FC8A4BE5BD0B812D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26BF456B3CFF501DC0F494FBB8F9B27EC4355DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597516   (165851) от 15.12.2022
-
-VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils van Zandt & Pakito - Are You Ready (2:46)
-02. Singa - The Night Train (2:55)
-03. Amari - Bring the Fire (3:23)
-04. Alexander Merlin - Butterfly (2:38)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D869147CF17ADD69E142E5FBA0F6325763FC559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345782   (165852) от 16.12.2019
-
-Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hills
-02 - Colby Park
-03 - Eratik
-04 - Five Minute Flame(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6624FED2E228A35E155016AA6E4E14B55CB91AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673305   (165853) от 31.10.2023
-
-RepairClinic | Как ремонтировать бытовую технику (2018) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное устройство, как работает та или иная бытовая техника, как разобрать ту или иную бытовую технику, как правильно ремонтировать бытовую технику, лучшие методики и раскрытие всех секретов в ремонте бытовой техники.
-✅Позволит не платить за ремонт приличные деньги.
-✅Позволит не тащить технику в мастерскую.
-✅Позволит планировать Ваше время и (   Читать дальше...   )Производство: RepairClinicЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAC4CA4A4F3357083C0C7AA37B620A462C0D964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431805   (165854) от 15.12.2020
-
-Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание сложных выделений вручную и их совершенствование почти всегда занимает больше времени, чем ожидалось. Topaz Mask AI позволяет создавать сложные маски в рекордно короткие сроки благодаря нашей интуитивной технологии машинного обучения и технике trimap. Меньше пользовательского ввода для чрезвычайно высококачественной маски всегда было мечтой фотографа, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4C34788F0C0D592D1463A6463A5B35D6EE13E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431520   (165855) от 15.12.2020
-
-Bootstrap Studio 5.5.0 RePack (& Portable) by xetrin [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - мощная программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Bootstrap Studio помогает создавать стильные сайты. Он идет с большим количеством встроенных компонентов, которые вы можете перетаскивать, чтобы собрать удобные по навигации веб-страницы. Он построен на основе чрезвычайно популярной структуры Bootstrap и экспортирует (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD28B03DCBE3F75E8BA55C58D5DF78A07E54B742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516466   (165856) от 11.12.2021
-
-Камеди Клаб / Комеди Клаб / Comedy Club (10.12.2021) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165856.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин и др.Субтитры: ОтсутствуютПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7328CC251F232246743D60C0A850A1C87ABE0349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345715   (165857) от 16.12.2019
-
-Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm & Blues>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Body Language
-2 Another Nail For My Heart
-3 S.O.S.
-4 We've Got Tonight(   Читать дальше...   )Жанр: Soul, Rhythm & BluesПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BFC2E476219F6959C49BF1CAC5760F775AF0A6
 ```
 
 

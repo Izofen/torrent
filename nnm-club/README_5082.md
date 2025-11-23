@@ -1,3 +1,180 @@
+###  Публикация: 1085365   (157322) от 21.12.2016
+
+Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003 (x86/x64 ISO) RePack by KpoJIuK (20.12.2016) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD422EF50F3A5DC4E7427ECF02449231A3BF001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346735   (157323) от 20.12.2019
+
+Денис Майданов - Обречен на Любовь (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157323.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Обречён на любовь (Radio Edit)
+2. Территория сердца (feat. Лолита)
+3. Жена (feat. Сергей Трофимов)
+4. Верность (feat. Наталья Майданова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A08BA7FB6BACC19F112D2F07FFB200274D45E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194224   (157324) от 24.12.2017
+
+Танцы (2017.12.23) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 21)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0439DA6A45E85CDAC4E7A296CB0F1C43BDA433
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433580   (157325) от 21.12.2020
+
+Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush Hour
+02. No Way Out
+03. Jane's Carousel
+04. Across The Street(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600370   (157327) от 27.12.2022
+
+Сергей Волчок | Куда идем мы… (Книга 1) (2022) [MP3, Елена Нестерова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это четверо отмороженных придурков, с боями пробивающиеся на запад, причем самый низкоуровневый едет верхом на пятом члене этой компании, вполне себе разумном.
+
+Еще в этой книге есть драчливые демоны и похотливые демонессы, троллинг и буллинг, юмор и дружеские подколки, серьезные косяки и принцип стоять друг за друга насмерть как руководство к действию.Жанр: Социальная фантастика, РеалРПГПродолжительность: 07:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AECD4DEC7C076E1AC27B2DAC4858748C5D21FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518179   (157329) от 18.12.2021
+
+Serviio Pro 2.2.1 CR2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157329.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLNA медиа-сервер, позволяющий передавать мультимедийные файлы (музыку, видео или изображения), между устройствами в домашней сети.
+Перед вами версия известного медиа-сервера, которая позволит вам при небольших знаниях начать транслировать медиафайлы (это относится к музыке, фотографиям, видео и так далее ) на разные устройства, например на ваш телевизор, Blu-ray (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: Petr NejedlyПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CD89829FA6B222FF6CD673055FF7B4F16B9194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968216   (157330) от 23.12.2015
+
+П. В. Денисов | Религия и атеизм чувашского народа (1972) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157330.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается история антиклерикальных движений в Чувашии с начала ХХ века, антирелигиозных кампаний 1920-30-х гг., атеистического воспитания в чувашской национальной школе.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4191F4077A554E152ED0F283EF25E26A28F2116C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194252   (157331) от 24.12.2017
 
 Растровый клипарт - Car Service Set 109 [JPG]
@@ -6,7 +183,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157331.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157332.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ VA - After Work Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157334.jpg" />
 </div>
 
 
@@ -84,7 +261,7 @@ magnet:?xt=urn:btih:CFAFF94F771ED3D8AFB8C5E0C1C07FB7C7201196
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157335.jpg" />
 </div>
 
 
@@ -108,7 +285,7 @@ magnet:?xt=urn:btih:35AD1F5006FB031BB1169E71F28F8F1128D023D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157336.jpg" />
 </div>
 
 
@@ -132,7 +309,7 @@ magnet:?xt=urn:btih:A421237A1FF0FF8969AA09268C691E264EC7658D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157337.jpg" />
 </div>
 
 
@@ -156,7 +333,7 @@ All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, At
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157338.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157340.jpg" />
 </div>
 
 
@@ -208,7 +385,7 @@ magnet:?xt=urn:btih:9495A8824F79FFF049BFECE07354C23D05D233CB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157341.jpg" />
 </div>
 
 
@@ -233,7 +410,7 @@ magnet:?xt=urn:btih:FADACF33034DD482041EBAD4E4D8239733FC18E4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157343.jpg" />
 </div>
 
 
@@ -257,7 +434,7 @@ magnet:?xt=urn:btih:F2143BFE2D4BC02EF99E7FBFB0EA3B874FDAF37F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157344.jpg" />
 </div>
 
 
@@ -281,7 +458,7 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157345.jpg" />
 </div>
 
 
@@ -308,7 +485,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157346.jpg" />
 </div>
 
 
@@ -335,7 +512,7 @@ magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157347.jpg" />
 </div>
 
 
@@ -359,7 +536,7 @@ magnet:?xt=urn:btih:70E95157F489E02AE553B4CDAB5A52675B67B5D1
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157348.jpg" />
 </div>
 
 
@@ -384,7 +561,7 @@ magnet:?xt=urn:btih:5C85594FC487CB9DD1CDAA46FF74DFE7912CBC9E
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157349.jpg" />
 </div>
 
 
@@ -408,7 +585,7 @@ magnet:?xt=urn:btih:E1040058547FCF26854A1AD56390B68FC571EE7B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157350.jpg" />
 </div>
 
 
@@ -432,7 +609,7 @@ BELOFF [dp] 2021.12.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157351.jpg" />
 </div>
 
 
@@ -458,7 +635,7 @@ magnet:?xt=urn:btih:96ED797F9260385C9DE860A40A03917D91A327D0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157352.jpg" />
 </div>
 
 
@@ -470,199 +647,6 @@ magnet:?xt=urn:btih:96ED797F9260385C9DE860A40A03917D91A327D0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A10A0BC440E27EB2633E86FF1A7D2ABDD40630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968408   (157354) от 23.12.2015
-
-Открытая студия.  «Лидеры нового времени» (23.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир стремительно меняется, а вместе с ним заметно меняются настроения людей. Нынешние руководители крупнейших государств всё меньше устраивают собственных граждан. Рейтинги Барака Обамы внутри страны стремительно падают, Ангела Меркель на фоне усугубившегося миграционного кризиса тоже теряет голоса электората. Недовольны своими руководителями в Финляндии, Великобритании, (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBA0610CE583A55B3064BB6C02F29D0DCD74F2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588275   (157355) от 13.12.2012
-
-Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alternative Rock / Rock / Alternative / Hard Rock / Alternative Metal >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jars (2012 Remastered Version) (03:22)
-02. Same Old Trip (2012 Remastered Version) (03:11)
-03. Vitamin R (Leading Us Along) (2012 Remastered Version) (03:44)
-04. The Red (2012 Remastered Version) (03:59)
-05. I Get It (2012 Remastered Version) (03:57)
-06. Face To The Floor (2012 Remastered Version) (03:39)
-07. Send The Pain Below (2012 Remastered Version) (04:12)
-08. Sleep Apnea (2012 Remastered Version) (03:51)
-09. The Clincher (2012 Remastered Version) (03:44)
-10. Hats Off To The Bull (2012 Remastered Version) (03:56)(   Читать дальше...   )Жанр: Alternative Rock / Rock / Alternative / Hard Rock / Alternative MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE5F1F5F6ABE83FEC3E7FBB026928F18EFF40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346594   (157356) от 20.12.2019
-
-М.Н.Величенко и др. (сост.) | Ленинградский трамвай. 1941-1945 (1995) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный исторический альбом - это рассказ о жизни и деятельности работников городского электротранспорта г. Ленинграда в героические и трагические годы Великой Отечественной войны. Рассказ, иллюстрированный фотографиями и разнообразными документами или отрывками из них.
-В альбоме почти 200 архивных фотографий. Одни из них широко известны, другие уникальны и редко (   Читать дальше...   )Жанр: документально-историческаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C18A39C7090FA6EF6FF5B2605E19B1B77BD5D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270489   (157357) от 19.12.2018
-
-Наталья Оконешникова | Вкусный год. Чудесные пироги, десерты и закуски с вареньями и маринадами (2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – приглашение в уютный дом. Дом, где балуют гостей пирогами с пряной сливой, печеньем с джемом из боярышника и ажурными блинчиками с мёдом из одуванчиков, где сладко пахнет абрикосовым вареньем и золотистыми пирожками с печеным луком. Волшебная сказка от популярного якутского блогера Натальи Оконешниковой, полная вкуса и тепла. Заходите, грейтесь и готовьте (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1631C48A841E2A37EA16502BD2907C0B27FBF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600383   (157359) от 27.12.2022
-
-VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glz, Venessa Jackson - The Night (03:26)
-02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
-03. Vyktor Nova - Funked (06:05)
-04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588597   (157361) от 13.12.2012
-
-Project Silence - 424 (2012) [MP3|320 kbps] <Industrial / Industrial Metal / Dark Electro / Ebm / Aggrotech >
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 424 (01:45)
-02. Pressure__Revolution (02:45)
-03. My Reality (05:26)
-04. Stardancer (Raven's whore) (03:53)
-05. Keeper (04:00)
-06. Sky, Space and Twilight Zone (02:19)
-07. Alone (Crushed by Your Lies) (04:29)
-08. BEAST (03:30)
-09. Cage of Hate (05:35)
-10. Everything (04:48)(   Читать дальше...   )Жанр: Industrial / Industrial Metal / Dark Electro / Ebm / AggrotechПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7B1C6B546566A8612299902723B156F1C75538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433452   (157362) от 21.12.2020
-
-Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockworld Theme (1:17)
-02. Bloodstreets (Alternative Version) (4:43)
-03. Buried Alive - Tell Tale heart (Alternative Version) (7:25)
-04. Runaway (Instrumental Early Idea Demo) (5:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4490000CE44A862981EFE0CD5FE1338E18B63B
 ```
 
 

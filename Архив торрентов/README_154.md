@@ -6,7 +6,7 @@ Speedtest от Ookla 5.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37917.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calibre 7.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37920.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8D126696E2F89EE993C4CDAC8A462C0577C0ECB9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37926.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:95E6C48367E50476F635DD01FD4D14CEFE461F3E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37931.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Karing 1.0.33.446 + Portable [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37932.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E55C98B0F27ED20F67261E4A9C239D4FD14B32DD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37935.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VueScan Pro 9.8.39 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37936.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Auslogics Disk Defrag Pro 12.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37961.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kdenlive 24.08.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37967.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Ocenaudio 3.14.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37980.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0711) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37989.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Soft Organizer Pro 9.56 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37991.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ashampoo UnInstaller 15.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37994.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Wise Care 365 Pro 7.0.8.690 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37995.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Macrorit Disk Scanner 6.9.3 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37996.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wise Disk Cleaner 11.1.7.833 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37999.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MediaInfo 24.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38002.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinToUSB Free / Pro / Enterprise / Technician 9.2.0 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38014.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ CPU-Z 2.12.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38016.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ IObit Uninstaller Pro 14.0.1.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38019.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.1 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38024.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Macrorit Partition Extender 2.4.3 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38025.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34433.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38038.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Balabolka 2.15.0.881 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38073.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Thenx v5.6.1 [En] Mod by youarefinished
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38077.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Photo Lab PRO v3.13.34 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38090.jpg" />
 </div>
 
 

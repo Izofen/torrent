@@ -6,7 +6,7 @@ Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляема�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6901.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6944.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6960.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6962.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6964.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6965.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6974.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6990.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7119.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7138.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7143.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7146.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7162.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7166.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ World War Z VR (2025) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7173.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7297.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7312.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7317.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36928) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7319.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7332.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7336.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7347.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7352.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7362.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sara D'Angelo - Drunken Monkey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106299.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106304.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106315.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106329.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106330.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Mini
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106332.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Gorgon City - Reverie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106365.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ U2 - Beautiful Day (2000) Remastered, 2024, 2024 Island Records Limited / UMC (U
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106367.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106397.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106399.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106401.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Reunion in the Black Forest (The Sounds of MPS Vol. II) (2024) [FLAC 24/88.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106416.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Falcon Trails - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106418.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106419.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106438.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Nothing But Thieves - Dead Club City (2023) Extended Deluxe, 2024, RCA Records L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106482.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106489.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Trousdale - Out Of My Mind (2023) Deluxe Edition, 2024, Independent [FLAC 16,24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106495.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Pete Malinverni - An American In London (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106497.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Babbba - 5D Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106501.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Babbba - Cabaret II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106505.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106510.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ David Moore and Westridge - Get The Led Out! (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106511.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106532.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Remi Wolf - Big Ideas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106533.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Alex Morning.Vibes - Acoustic Blues To Ease Your Soul (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106535.jpg" />
 </div>
 
 

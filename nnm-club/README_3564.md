@@ -1,3 +1,75 @@
+###  Публикация: 1711689   (112346) от 31.03.2024
+
+Джанина Скарлет | Я и моя боль. Как справиться с сильными переживаниями и принять то, чего не можешь изменить (2022) [MP3, Ирина Чумантьева]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда на нас обрушивается боль, которую невозможно предвидеть. Потеря работы, дружбы или любимого человека, жестокое предательство, насилие, неизлечимая болезнь или глобальная катастрофа. Все эти события не проходят бесследно — они навсегда меняют нашу жизнь. И даже если окружающие говорят, что «нужно быть сильным», а «тревога и депрессия — это стыдно», мы должны (   Читать дальше...   )Жанр: зарубежная психология, психотерапияПеревод: Инна ПровороваИздательство: Эксмо, БомбораПродолжительность: 04:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F35909A4E4C15F507C862E320A6457606C38698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711796   (112347) от 31.03.2024
+
+Камал Равикант | Верь. В любовь, прощение и следуй зову своего сердца (2023) [MP3, Всеволод Кузнецов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112347.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Верь» — это не просто книга. Это поиск себя через магическое странствие, которое помогает оставить позади страхи, привычки, идеалы. Всё то, что придумано не вами, но взято на веру исполнения. Написанная в форме художественной истории Камалом Равикантом, она рассказывает о поиске пути к себе и стойкой вере в то, что сломанные крылья можно починить. Эта книга, наполненная (   Читать дальше...   )Жанр: саморазвитие / личностный рост, современная зарубежная литератураПеревод: О. Б. СнитичИздательство: Эксмо, БомбораПродолжительность: 07:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCA7866B922285AC08D288AA0ABA041E65A2189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711777   (112348) от 31.03.2024
+
+Галина Петракова | Травма свидетеля. Почему мне плохо от того, что я вижу и как с этим справиться (2022) [MP3, Юлия Бочанова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почитаю новости и потом целый день не могу сосредоточиться. Вроде бы все в порядке, я в безопасности, но эмоции зашкаливают. Тревога, боль, чувство вины. Почему это происходит? Клинический психолог и ведущая программ по снижению стресса, Галина Петракова, объясняет: рассказы очевидцев, видео катастроф и сообщения о гибели людей воздействует на нас, хотя мы не являемся (   Читать дальше...   )Жанр: клиническая психология, саморазвитие / личностный ростИздательство: Эксмо, БомбораПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD66985EC0A59ABA40F3997F88A176EBFF56F573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711651   (112349) от 31.03.2024
 
 (Не)бывшие / Hors-saison / Out of Season (2023) TS [H.264] [звук с ТS] [AD]
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112349.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Arch Enemy - Blood Dynasty (Expanded Deluxe Edition) (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112350.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:86C3EE7133D6828E1B1647AE63F09C93A21E6CF6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112351.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ VA - Only Pop Bangers (2025) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112352.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ magnet:?xt=urn:btih:91202364202910177F710F9591B22B74A4352BC5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112353.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ Neal Morse - The Restoration - Joseph: Pt. Two (2024) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112354.jpg" />
 </div>
 
 
@@ -160,7 +232,7 @@ Karpov.courses, Нерсес Багиян, Алексей Кожарин, Ник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112355.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112356.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ magnet:?xt=urn:btih:BE8B067E95F55FBE37AD9F458B6C78B5BE3F4B79
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112357.jpg" />
 </div>
 
 
@@ -239,7 +311,7 @@ VA - Milk & Sugar House Nation Ibiza 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112358.jpg" />
 </div>
 
 
@@ -266,7 +338,7 @@ All For The King - Darkest Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112359.jpg" />
 </div>
 
 
@@ -293,7 +365,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112360.jpg" />
 </div>
 
 
@@ -317,7 +389,7 @@ magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112361.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ magnet:?xt=urn:btih:F88BFF9DF8C118F22E4B00CC1A28E6397B5E3E31
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112362.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ VA - Ablazing Spring Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112363.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:9B3438B041FFF8766F136B2BF68D403E3D6915E2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112364.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:135D0E13FDE86E2ECC48CA23AE599C727C2FEA65
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112365.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ Koko Taylor - What It Takes: The Chess Years (1977) Expanded Edition, 2009, Geff
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112366.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ Moby Grape - Moby Grape'69 (1969) Reissue, Remastered, 2007, Sundazed Music [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112367.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:4488208C77047A0AB8ECAABB8A9351081607C070
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112368.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:B32F2C9023C9075BAEEE27074806BDC6790D907B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112369.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:92128F6E961CE6CCDC3E852EA73C12918A0DB327
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112370.jpg" />
 </div>
 
 
@@ -566,7 +638,7 @@ VA - Amsterdam Chillout 2025 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtemp
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112371.jpg" />
 </div>
 
 
@@ -580,81 +652,6 @@ VA - Amsterdam Chillout 2025 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:723D62715849121AABAEA37D8B87459AFC1FFD71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823061   (112372) от 09.10.2025
-
-Здесь все свои (2024) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112372.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дальневосточном поселке Черновка, окруженном тайгой и болотами, происходит чрезвычайное происшествие: сгорает лесопилка, а утром там находят обгоревшее до неузнаваемости тело. Из райцентра приезжает молодой следователь Евгения Ракитина. Местные власти и сами жители поселка всячески пытаются замять дело, списав все на несчастный случай, но профессиональное чутье (   Читать дальше...   )Производство: Россия | «Star Media»Жанр: Детектив, мелодрамаРежиссер: Елена НиколаеваАктеры: Карина Разумовская, Ирина Пегова, Александр Бухаров, Павел Трубинер, Максим Дрозд, Юрий Ицков, Лаура Кеосаян, Серафима Рудакова, Семён Шкаликов, Иван Шарый и др.Субтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C2F15B4EF3CB9ED47A81E71EDCCB0D4EAF6644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823057   (112373) от 09.10.2025
-
-Vivaldi 7.6.3797.63 Portable by IDE`a [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vivaldi — современный браузер на основе Chromium с духом старой Opera
-
-Vivaldi — это многофункциональный интернет-браузер, разработанный компанией Vivaldi Technologies, основанной бывшими создателями классической Opera Software.
-Браузер построен на движке Blink (основа Chromium), что обеспечивает совместимость с большинством современных сайтов и поддержку всех расширений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7376D53A08D6A85FFD08C9923A0B2B48E36D070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711737   (112374) от 31.03.2024
-
-Аромат дамы в чёрном / Il profumo della signora in nero / The Perfume of the Lady in Black (1974) BDRip [H.264] [VO] [Английский трансфер]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина Сильвия Хэчерманн живёт одна в фешенебельной квартире. У неё есть подруга, живущая этажом выше, любовник - приятный молодой человек, а также милый сосед, синьор Россетти, который проявляет по отношению к Сильвии удивительную доброту. На одной из вечеринок гость негр рассказывает о действии чёрной магии, когда человек постепенно начинает сходить с (   Читать дальше...   )Производство: Италия / Euro International Film (EIA)Жанр: ужасы, драма, детектив, триллерРежиссер: Франческо БариллиАктеры: Мимзи Фармер, Маурицио Бонулья, Марио Скачча, Джо Дженкинс, Нике Арриги, Лара Вендель, Алека Пайзи, Рената Дзаменго, Уго Карбони, Роберта КадрингерПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341F1C60CFDD57DC724ABE46743B79A7887C3762
 ```
 
 

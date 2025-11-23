@@ -1,3 +1,76 @@
+###  Публикация: 473425   (84479) от 26.03.2012
+
+[EN] Гитлер - Мертвый или Живой / Hitler - Dead or Alive (1942) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положены реальные события. В начале Второй мировой войны известный американский бизнесмен предложил награду в миллион долларов для привлечения Гитлера к ответственности, живого или мертвого. Бизнесмен нанимает трех гангстеров, которых для этого освобождают из тюрьмы...Жанр: Триллер, ПриключенияРежиссер: Ник ГриндАктеры: Уорд Бонд, Дороти Три, Уоррен Хаймер, Пол Фикс, Расселл ХиксПеревод: ОтсутствуетПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473692   (84481) от 26.03.2012
+
+Месье Верду / Monsieur Verdoux (1947) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84481.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз гениальный лицедей открывает неожиданные стороны своего комического дара. Его герой завоевывает сердца и банковские счета богатых вдовушек и старых дев, а затем убивает своих несчастных жертв.Жанр: драма, комедия, криминалРежиссер: Чарльз ЧаплинАктеры: Чарльз Чаплин, Мэди Коррелл, Эллисон Роддан, Роберт Льюис, Одри Бетц, Марта Рэй, Ада Мэй, Изобел Элсом, Марджори Беннетт, Хэлена ХейПеревод: Многоголосый закадровый, АвторскийПродолжительность: 02:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB8DB7A9AC40B16EAD65FD4EF9B769C5B89E87A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473063   (84482) от 26.03.2012
+
+[RePack] Rayman Origins {1.0.32504} [En] 2012 l R.G. Repacker's
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра повествует о похождениях персонажа Рэймена в своем сказочном мире. Rayman Origins является приквелом, в котором рассказывается о первых бедах вселенной Рэймена и о том, как он ее спасает. Под управление игрока попадут сам Рэймен, его друг Глобокс и два мага Тинси.
+Возрождение культового платформера – прошло 15 лет с момента выхода первой игры про Рэймена и вот он снова на сцене – с классическими персонажами внутри и красивейшей 2D графикой.Тип издания: RePackЖанр: ArcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAD2F3D7347781D5A3AC657F7299A585A1E923E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473795   (84484) от 26.03.2012
 
 Савелий Гуреев | Рассказы о композиторах [2009] [MP3]
@@ -6,7 +79,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84484.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84486.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84489.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84491.jpg" />
 </div>
 
 
@@ -113,7 +186,7 @@ Tammy Wynette - Anniversary: Twenty Years of Hits (1987) [MP3|320 кб/с]<Count
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84494.jpg" />
 </div>
 
 
@@ -146,7 +219,7 @@ magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84501.jpg" />
 </div>
 
 
@@ -170,7 +243,7 @@ magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84503.jpg" />
 </div>
 
 
@@ -194,7 +267,7 @@ magnet:?xt=urn:btih:D21AA60CE5DFA2C7544906330FE01343670DB2DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84504.jpg" />
 </div>
 
 
@@ -218,7 +291,7 @@ magnet:?xt=urn:btih:1A98EF91AD2812AA7D030C832102E57489850FDF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84507.jpg" />
 </div>
 
 
@@ -242,7 +315,7 @@ magnet:?xt=urn:btih:EC74D1B79BFA4EA166AFA8F9CA886991EBC3F48C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84509.jpg" />
 </div>
 
 
@@ -266,7 +339,7 @@ magnet:?xt=urn:btih:A47251AE21E72941DA6A14C22C7BDEA70DBDDD76
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84513.jpg" />
 </div>
 
 
@@ -290,7 +363,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84515.jpg" />
 </div>
 
 
@@ -315,7 +388,7 @@ EMI 26 марта выпускают новый концертный релиз 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84516.jpg" />
 </div>
 
 
@@ -339,7 +412,7 @@ EMI 26 марта выпускают новый концертный релиз 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84517.jpg" />
 </div>
 
 
@@ -366,7 +439,7 @@ Tiamat - Wildhoney (1994) reissue /2011/ [FLAC|Lossless|image +.cue] <Doom Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84518.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ Tiamat - Wildhoney (1994) reissue /2011/ [FLAC|Lossless|image +.cue] <Doom Metal
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84520.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84525.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84527.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ magnet:?xt=urn:btih:43E0A684E9E7B8B1E9853F4889C34047FFB92484
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84531.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ magnet:?xt=urn:btih:70A4F734FF8E25F933D1649C76397B3F0E61BF72
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84532.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ magnet:?xt=urn:btih:CD534F6DAA60945227121129FECE0724B09B77ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84535.jpg" />
 </div>
 
 
@@ -537,7 +610,7 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84536.jpg" />
 </div>
 
 
@@ -570,7 +643,7 @@ Il Volo -Takes Flight - Live From the Detroit Opera House (2012) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84538.jpg" />
 </div>
 
 
@@ -579,81 +652,6 @@ Il Volo -Takes Flight - Live From the Detroit Opera House (2012) Blu-Ray
 Il Volo Takes Flight - Live From the Detroit Opera House
 Концерт был снят в прошлом году, в то время как группа была на  первых  североамериканских  гастролях . Подлинное волнение от их живого выступления, ошеломляющую реакцию толпы и многих оваций, группа получила в каждом городе,в котором они выступали .В концерте представлена итальянская классика, такая как  O Sole Mio and Un Amore Cosi Grande  , классическая версия Charlie Chaplin song Smile.Трио музыкантов образовалось в 2009 году. Тогда 15-летний Пьеро Бароне (Piero Barone) и 14-летние Игнацио Боскетто (Ignazio Boschetto) и Джанлука Джинобле (Gianluca Ginoble) участвовали в итальянском ТВ-шоу Ti Lascio Una Canzone ("Оставляем вам песню"). Каждый из них был самостоятельным конкурсантом, но продюсерам шоу пришла в голову идея соединить их на одном из концертов в песне "O Sole Mio". С этого момента стало ясно, что вместе они смотрятся гораздо лучше. Так в мае 2009 года было рождено трио Il Volo, что означает "Полёт".
 http://en.wikipedia.org/wiki/Il_Volo (   Читать дальше...   )Жанр: Сlassical crossoverРежиссер: RON de MORAESАктеры: Piero Barone , Ignazio Borschetto , and Gianuca GinobleПродолжительность: 01:12:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473353   (84540) от 26.03.2012
-
-Три мушкетера / The Three Musketeers (1973) [H.264/720p-LQ] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливер Рид, Рэкел Уэлч, Ричард Чемберлен, Майкл Йорк, Фрэнк Финлей, Кристофер Ли
-О фильме: Всем известный роман приобретает совершенно неожиданное прочтение. Йорк в роли веселого, задиристого юноши, несколько простоватого, но настроенного столь возвышенно, что в его Д Артаньяна невозможно не влюбиться. Он хочет стать мушкетером, среди которых выделяются лидеры: Атос, (   Читать дальше...   )Жанр: Приключения, КомедияРежиссер: Ричард ЛестерАктеры: Оливер Рид, Рэкел Уэлч, Ричард Чемберлен, Майкл Йорк, Фрэнк Финлей, Кристофер ЛиПеревод: Двуголосый закадровыйЯзык субтитров: ОтсутствуютПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF10A34FF0DC03D8BC165E9BE76CE928C83EEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472645   (84541) от 26.03.2012
-
-Четыре мушкетера / The Four Musketeers (1974) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевские мушкетеры Д`Артаньян, Атос, Портос и Арамис — отнюдь не святые. Вино, женщины и тугой кошелек порой заставляют забыть о долге. Но о чести — никогда! Пока старые друзья вместе, любые происки коварных агентов кардинала будут разбиты, ведь девиз мушкетеров — «Один за всех и все за одного!»Производство: Испания, Панама / Alexander, Michael and Ilya Salkind Productions, Este Films, Film Trust S.A.Жанр: Приключения, ИсторияРежиссер: Ричард ЛестерАктеры: Оливер Рид, Рэкел Уэлч, Ричард Чемберлен, Майкл Йорк, Фрэнк Финлей, Кристофер Ли, Фэй Данауэй, Чарлтон Хестон, Джеральдин Чаплин, Жан-Пьер Кассель, Рой Киннер, Майкл Гозард, Николь Кальфан, Анхель дель ПозоПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0323BE96C2C4CC9761BFBEBEDD2206982C0CD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473495   (84542) от 26.03.2012
-
-Король вечеринок 2 / Van Wilder 2: The Rise of Taj (2006) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тадж Бадаландабад только что закончил колледж и отправляется поступать в Оксфорд. Он мечтает пойти по стопам своего отца и не только получить ученую степень, но и стать членом закрытого лагеря «Братская гильдия лис и собак», следующим представителем Бадаландабадов, названных «Султаном простыней».
-
-Однако когда Тадж приезжает в Оксфорд, Пип Эверетт, Серый Граф, возглавляющий (   Читать дальше...   )Жанр: КомедияРежиссер: Морт НэтанАктеры: Кэл Пенн, Лорен Коэн, Дэниэл Персивал, Глен Бэрри, Энтони Козенс, Стивен Рэтман, Холли Дэвидсон, Том Дэвей, Уильям де Коверли, Бет СтилПеревод: ДублированныйПродолжительность: 01:29:57
 
 ## Скачать торент
 ```bash

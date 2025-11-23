@@ -1,3 +1,78 @@
+###  Публикация: 1687179   (125710) от 25.12.2023
+
+Благовест | Акафист святому Ангелу Хранителю (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ангел-хранитель помогает в любой беде. К иконе обращаются при серьезных затруднениях в делах житейских или когда просто ищут поддержки. Молитва к ангелу-хранителю помогает преодолеть страх, дает уверенность в повседневных делах. Рекомендуется держать икону дома, как обычно, в восточном углу комнаты. Молятся тоже дома. Делайте это всякий раз, когда Вы выходите на (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842899B736586261F25C9F2BA450C6F87B500337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687103   (125711) от 25.12.2023
+
+Газета | Тайны вселенной №10 (192) (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125711.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах газеты множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Познавательное изданиеИздательство: ООО "ИД Анкор"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D6CE001E287E9305FE3E758366FBFB3B46B44E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686922   (125712) от 25.12.2023
+
+Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Llorona (7:03)
+02. Twinky Samba (3:55)
+03. Luna Llena (4:26)
+04. Lady in Black (6:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4F89D63FEC476C4AE96028221BB4C0593D650F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686896   (125713) от 25.12.2023
 
 Mick Clarke - Gnarly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +81,7 @@ Mick Clarke - Gnarly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125713.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Mitch Malloy - Making Noise (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125714.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:18CFAB2281698A540E1939117C287990C5A23F9F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125715.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Keith Scott Blues - One Nation Under the Blues (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125716.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:32DCBD29ECF6B50BB99CE19ABC4C67FF02A26958
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125717.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ magnet:?xt=urn:btih:E032757A94FDB31F408DC7A3F60A92B3FD8862B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125718.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ magnet:?xt=urn:btih:B1042DEE84FBB62CD10DD9A5CD45B7F54D91A682
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125719.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ Payson Lyon - Long Day's Journey into Light (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125720.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ magnet:?xt=urn:btih:27EBB8FB3A242BB19C68D3D4D7FBB4829EA5832C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:2500B582C519B10E404DB69D71766E27DA2B39CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125722.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ magnet:?xt=urn:btih:88A76181C9DDD8C480D792008C5F33B520DDD6FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125723.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:8546003C93D80AFE9FF26F85DA8B7B7DE5912337
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125724.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125725.jpg" />
 </div>
 
 
@@ -338,7 +413,7 @@ magnet:?xt=urn:btih:7079ACF011EDD6AD74A5FBD98C0515FD16E73D8A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125726.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125727.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ Lurrie Bell - Collection, 10 Albums (1989 - 2018) (1989 - 2018) [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125728.jpg" />
 </div>
 
 
@@ -417,7 +492,7 @@ magnet:?xt=urn:btih:ACE7DD0A5843CD3FFA22E0740DA3AD518E10BCD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125729.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125730.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ magnet:?xt=urn:btih:371A1500B197C74795E3A21DE18DEF2616B70F49
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125731.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125732.jpg" />
 </div>
 
 
@@ -520,7 +595,7 @@ magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125733.jpg" />
 </div>
 
 
@@ -546,7 +621,7 @@ magnet:?xt=urn:btih:35F93F64C1D0C4090587950714DE708DA8E14D1C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125734.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ magnet:?xt=urn:btih:F279730CC91905DA79397969BD0C9DC51613F593
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125735.jpg" />
 </div>
 
 
@@ -582,84 +657,6 @@ magnet:?xt=urn:btih:F279730CC91905DA79397969BD0C9DC51613F593
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADBBA5D712F2A46368DC45DE6ECD6F8F867988EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687052   (125736) от 25.12.2023
-
-Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничем непримечательный лысеющий профессор среднего возраста Пол Мэтьюс ведёт обычную профессорскую жизнь, преподаёт в университете и много лет вынашивает идею книги о коллективном разуме муравьёв. Внезапно мужчина становится дико популярным — люди всего мира начинают видеть его во сне. Теперь о Поле трезвонят все СМИ, его хочет рекрутировать агентство талантов, а (   Читать дальше...   )Производство: США / A24, Square PegЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайл и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:00Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687077   (125737) от 25.12.2023
-
-VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Together Again
-02. Natalie Imbruglia - Torn
-03. Espen Lind - When Susannah Cries
-04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687182   (125738) от 25.12.2023
-
-Hekz - Terra Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Terra Nova
-02 - Sabotage
-03 - Horizons
-04 - Mayday(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3473E96457EC7A7021F8047F3E3B83016DBC1F
 ```
 
 

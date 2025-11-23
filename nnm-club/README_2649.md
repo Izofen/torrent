@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69622.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Surmachina - Хождение за три моря (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69623.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:337F89ACAFE1B1532B1A4B4708FAAEFD61A282E1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69624.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E9242A74FFA92411DC9D1635A8FAA2C5CD1D26D7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69625.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0623C658E8A84464CAA1E6043D9723431CEE91EA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69626.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Lizzy Morisson - Succubi Smile (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69627.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69628.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69629.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Dream Theater - Old Bridge, New Jersey (1996) 2 x CD, Reissue, Special Edition, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69630.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ros - Salvator (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Gothic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69631.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ electron7 - The singularity (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69632.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69633.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69634.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:597821DE14CEBFD73A10D774E98686204FC8BC3F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69635.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:CE0622486E9AFA738BF713BC33E47344CADB65FF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69636.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69637.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:207BE89F1E06F07D0CA34A10E54AA879C73D1482
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69638.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Downhome Kin - Muddy River Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69639.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69640.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69641.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Downhome Kin - Backroads & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69642.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:8CD8175D5F319D9E484E42135A8BA806B973341C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69643.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Fantas Braz - Reversal (2025) [MP3|320 Kbps] <Electroclash, Synthwave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69644.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:AC8D15CA467811454016A20E5766C204F38CA458
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69645.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:BA1093A988342AAF4A39075DD41A22BA544CC1D8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69646.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PrivaZer Pro 4.0.102 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69647.jpg" />
 </div>
 
 

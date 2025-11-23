@@ -1,3 +1,51 @@
+###  Публикация: 1642858   (210221) от 29.06.2023
+
+15 минут позора / 15 Minutes of Shame (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об истоках и последствиях травли, спродюсированный Моникой Левински. Проект «15 минут позора» посвящен проблеме буллинга в современном мире. Он состоит из историй людей, которые подвергались публичному унижению — это смелые и честные рассказы, тревожные и подчас шокирующие. Создатели фильма попытались разобраться, что движет инициаторами травли (   Читать дальше...   )Производство: США, Six WestЖанр: документальныйРежиссер: Макс ДжозефУчастники: Макс Джозеф, Моника Левински, Джон РонсонПеревод: двуголосый профессиональный (Amedia)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF0A7C3BCAB2299E2B62C9DCEF5C5A1283AD7C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927184   (210567) от 13.08.2022
+
+Гибель "Курска" - следственный эксперимент (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210567.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 лет прошло с момента гибели атомной подводной лодки "Курск". До сих пор пишутся книги, снимаются фильмы, вспоминаются погибшие моряки. Казалось бы, "Курск" - давно уже история. Но масштаб катастрофы и переживание этого горя всей страной - не отпускают...Почти два года длилось расследование этой катастрофы. Отрабатывались разные версии гибели (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4459E7DCF8631C00C2D69E74A078C5E4553E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641651   (210639) от 25.06.2023
 
 Мавроди. Миф и человек (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
@@ -6,7 +54,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210639.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210639.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:6F04E366AC311877A9D625EC65F371A91914B081
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210665.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210665.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:3FF6A77488FA402B1E6A3B450E1BC965EF2AEE9D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211422.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ magnet:?xt=urn:btih:8F9811C1CACDE60AC311F3BC781F167D77031A9D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211688.jpg" />
 </div>
 
 
@@ -105,7 +153,7 @@ magnet:?xt=urn:btih:A24BD2662B6145D20AAAD4C56E927C69C0761E75
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211837.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211837.jpg" />
 </div>
 
 
@@ -130,7 +178,7 @@ magnet:?xt=urn:btih:060C7A7A520A578EDA74E59D6079389F572F562E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213465.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213465.jpg" />
 </div>
 
 
@@ -154,7 +202,7 @@ magnet:?xt=urn:btih:F143C2C47244D66899330131A44DFD90FFA1A1B9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213798.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213798.jpg" />
 </div>
 
 
@@ -178,7 +226,7 @@ magnet:?xt=urn:btih:4008FCDB051FB84068309947CF01F52F4BFE53AC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213945.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213945.jpg" />
 </div>
 
 
@@ -202,7 +250,7 @@ magnet:?xt=urn:btih:CFDE3CFD27A74BA3AAC1DC37AD92A221D0F12CC1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213986.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213986.jpg" />
 </div>
 
 
@@ -226,7 +274,7 @@ magnet:?xt=urn:btih:42E1CD3109A3A733D0B1912D6FD77F3B0C30183E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214456.jpg" />
 </div>
 
 
@@ -250,7 +298,7 @@ magnet:?xt=urn:btih:EFA85B432BDBAAAB92FC12ED2FC7638FF903C82D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214474.jpg" />
 </div>
 
 
@@ -275,7 +323,7 @@ magnet:?xt=urn:btih:0D4C42662A9695110BEEB526D84873BAE69423A8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214625.jpg" />
 </div>
 
 
@@ -299,7 +347,7 @@ magnet:?xt=urn:btih:BE8A195BE73473D78DA8AFEB0B5DE8E67A980C42
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214879.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214879.jpg" />
 </div>
 
 
@@ -323,7 +371,7 @@ magnet:?xt=urn:btih:B2AD0FB2374A74BF7240793258B58C010535006A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214946.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214946.jpg" />
 </div>
 
 
@@ -347,7 +395,7 @@ magnet:?xt=urn:btih:A062FB8931D0D704A5132599C67FC7BA82F4B8F7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215448.jpg" />
 </div>
 
 
@@ -371,7 +419,7 @@ magnet:?xt=urn:btih:77754BCB572333321ECF77080D1ADC48E57C2E17
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215605.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215605.jpg" />
 </div>
 
 
@@ -395,7 +443,7 @@ magnet:?xt=urn:btih:2C81FD49AA67EA0D773ACCD641A8153506788D8F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215646.jpg" />
 </div>
 
 
@@ -419,7 +467,7 @@ magnet:?xt=urn:btih:79C9E1B07A9CEDCD1A5088408C26425A553D2427
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216966.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216966.jpg" />
 </div>
 
 
@@ -443,7 +491,7 @@ magnet:?xt=urn:btih:5952E7A9FD479BB34734CC6FE8B2CC1C74D7C3AD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217278.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217278.jpg" />
 </div>
 
 
@@ -467,7 +515,7 @@ magnet:?xt=urn:btih:FB58261D18AF63F14E9A44FE1CEBCD859DCB738A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217298.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217298.jpg" />
 </div>
 
 
@@ -491,7 +539,7 @@ magnet:?xt=urn:btih:4D2E0863080B6E6D2F96E77F9051BD6AA0D44069
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218553.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218553.jpg" />
 </div>
 
 
@@ -515,7 +563,7 @@ magnet:?xt=urn:btih:51B6DAE864417BB70AFA84A86D13CC33E12B43E0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218726.jpg" />
 </div>
 
 
@@ -539,7 +587,7 @@ magnet:?xt=urn:btih:72FC695E54BCA04B2FFB237E06CF90CC6361FE52
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218924.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218924.jpg" />
 </div>
 
 
@@ -563,7 +611,7 @@ magnet:?xt=urn:btih:84EFDAC9928FF1B3C2712E5AD2311E417A4E6EA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218943.jpg" />
 </div>
 
 
@@ -574,54 +622,6 @@ magnet:?xt=urn:btih:84EFDAC9928FF1B3C2712E5AD2311E417A4E6EA3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B428950C0850DB2E20E7EFDAAB4B4998004FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425959   (218945) от 22.11.2020
-
-Следствие вели... (22.11.2020) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991 год. В Тамбове объявляется маньяк. Он нападает на девушек, действует нагло и жестоко. Никто не знает: этот преступник уже попадался в руки правосудия одиннадцать лет назад. Тогда его задержал молодой оперативник. И вот годы спустя дочь того самого сыщика оказывается на пути маньяка…Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD573D729F58AD9B57831EE1AFE80904A1D25C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966645   (219021) от 18.12.2015
-
-Семья как испытание (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда у Олега и Полины, 15-летних  детдомовцев, родилась дочь,  юные папа и мама боялись, что малышку отнимут и отправят в дом ребёнка. Но случилось чудо: всех троих взяли в семью, под опеку. Казалось, все трудности позади. Но это только казалось… Юлия Жемчужникова живёт в деревне. В Калужскую область она переехала из Москвы несколько лет назад вместе со своими детьми. (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Наталья КадыроваПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C132DDD4065FBE2F5B6D16F280B36ED4E94DA650
 ```
 
 

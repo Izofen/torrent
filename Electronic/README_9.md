@@ -6,7 +6,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20280.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20374.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20381.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20386.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20386.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20678.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20687.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20694.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20694.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambi
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20712.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20712.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Tomorrowland Winter (2025) [MP3|320 Kbps] <Trance, Tech House, Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20903.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Black Hole Trance Music 04-25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20907.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21004.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Psyclon Nine - And Then Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark-Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21011.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Armin van Buuren - A State Of Trance 1221 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21013.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21203.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21211.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21211.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21237.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Relaxation Hub, Vol.1-4 (2024-2025) [MP3|320 Kbps] <Relaxation>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21409.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Relaxation Hub - 6 Albums (2023-2025) [MP3|320 Kbps] <Relaxation>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21410.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Chillout Music Essential Selections (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21421.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Niel De One - Music 4 Da People (2025) [FLAC|Lossless|tracks] <House, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21426.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Night Drive 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21451.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21727.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Paul van Dyk - This World Is Ours (2025) [MP3|320 Kbps] <Trance, Progressive, El
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21728.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 12.04, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21760.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21760.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - 12.04, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21763.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21763.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ FaraoN - Dance Hits Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21951.jpg" />
 </div>
 
 

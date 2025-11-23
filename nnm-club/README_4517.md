@@ -1,3 +1,155 @@
+###  Публикация: 1195659   (139811) от 30.12.2017
+
+Растровый клипарт - Fotolia - Cheerful Christmas woman in santa hat [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая рождественская девушка в шляпе Санты с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3096x3055-6671x6081
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F616A5383A369011B9E9161F05CAB3A6BF0E62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195710   (139812) от 30.12.2017
+
+Голос (2017.12.29) HDTVRip (сезон 6, выпуск 18 - Финал)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139812.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59297068D838F996048E5C0135331987E5E7FCA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436105   (139813) от 30.12.2020
+
+Cardhop 1.3.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139813.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E8F71D2F99C33EB1143768B26655B038728762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273112   (139814) от 30.12.2018
+
+Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [2:56]
+02. Out of This World [2:55]
+03. Cottage for Sale [2:36]
+04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348966   (139816) от 30.12.2019
+
+VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Air - La femme d'argent
+002. Otis Redding - (Sittin' On) the Dock of the Bay
+003. Morcheeba - The Sea
+004. Art of Noise - Robinson Crusoe(   Читать дальше...   )Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679223   (139817) от 24.11.2023
+
+В.Н. Зенцов и др. | Защита от коррозии трубопроводов, резервуаров и оборудования (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведено описание технологии нанесения и ремонта наиболее распространенных видов антикоррозионных защитных покрытий, применяемых в настоящее время в нефтегазовой, нефтехимической, строительной и других отраслях.
+Для студентов вузов и техникумов, а также инженерно- технических работников промышленных предприятий и сотрудников научно-исследовательских и проектных (   Читать дальше...   )Жанр: МатериаловедениеИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D949F8EA38A7CB94FB8E54B63491A1B4724A4CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088153   (139818) от 30.12.2016
 
 DriverPack Solution 17.7.24 [Multi/Ru]
@@ -6,7 +158,7 @@ DriverPack Solution 17.7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139818.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139819.jpg" />
 </div>
 
 
@@ -57,7 +209,7 @@ magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139821.jpg" />
 </div>
 
 
@@ -81,7 +233,7 @@ magnet:?xt=urn:btih:08ECE26D57A70F5934B9342B40B38E7D824AE3AF
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139822.jpg" />
 </div>
 
 
@@ -105,7 +257,7 @@ magnet:?xt=urn:btih:98D21925E70EA70D06D42A7D283DA143525E046A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139823.jpg" />
 </div>
 
 
@@ -129,7 +281,7 @@ magnet:?xt=urn:btih:98D21925E70EA70D06D42A7D283DA143525E046A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139824.jpg" />
 </div>
 
 
@@ -153,7 +305,7 @@ magnet:?xt=urn:btih:36BD31B7B361DBC466535CB435298CA19DD36D94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139825.jpg" />
 </div>
 
 
@@ -177,7 +329,7 @@ AIMP 4.60.2167 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139827.jpg" />
 </div>
 
 
@@ -201,7 +353,7 @@ magnet:?xt=urn:btih:8E1C7FF032DE6F79E5E0CA78517F8479AD9499A0
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139828.jpg" />
 </div>
 
 
@@ -228,7 +380,7 @@ magnet:?xt=urn:btih:8EC601010F4923DD8511F30AA180DF5A1AF940B8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139829.jpg" />
 </div>
 
 
@@ -253,7 +405,7 @@ magnet:?xt=urn:btih:062E7A5D750604F632D3C2F1B4677F399015495D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139830.jpg" />
 </div>
 
 
@@ -280,7 +432,7 @@ magnet:?xt=urn:btih:1111ECEE2DCD2DAEA12F4CBF75FA6B6046A12660
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139831.jpg" />
 </div>
 
 
@@ -304,7 +456,7 @@ PDF24 Creator 11.15.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139833.jpg" />
 </div>
 
 
@@ -329,7 +481,7 @@ magnet:?xt=urn:btih:99D405575DA378C52DF7C03BE58FBA7CAE45BFC9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139834.jpg" />
 </div>
 
 
@@ -353,7 +505,7 @@ magnet:?xt=urn:btih:214AB0B42021440E8761BC964667D7C5534756ED
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139836.jpg" />
 </div>
 
 
@@ -378,7 +530,7 @@ Adguard 1.5.3 (437) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139837.jpg" />
 </div>
 
 
@@ -403,7 +555,7 @@ Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139838.jpg" />
 </div>
 
 
@@ -430,7 +582,7 @@ OTUS, Алексей Воронец | Scala-разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139839.jpg" />
 </div>
 
 
@@ -454,7 +606,7 @@ magnet:?xt=urn:btih:AF4BBBBB3BE75E0A30CA9D9EBB635848E5F985DF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139840.jpg" />
 </div>
 
 
@@ -481,7 +633,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -495,153 +647,6 @@ Unanswered(   Читать дальше...   )Жанр: Death CoreПродолж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679221   (139842) от 24.11.2023
-
-Обратный билет (2012) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мария возвращается в город, где живет ее семья, ее друзья — те, кого она любит больше жизни, те, с которыми она была разлучена на долгие шесть лет. Мария была осуждена за убийство. Маленький городок, где все знают друг друга, до сих пор в недоумении: как молодая женщина могла убить своего мужа? Только сама Мария знает правду и цену этого трагического события из прошлого. (   Читать дальше...   )Производство: Россия / Беркана, КинословоЖанр: МелодрамаРежиссер: Александр КанановичАктеры: Елена Подкаминская, Андрей Биланов, Константин Константинов, Ольга Гагарина, Нелли Неведина, Катя Подлесная, Дианисий Толоконников, Ольга Мукукенова, Максим Важов, Олег МасленниковСубтитры: РусскиеПродолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989E1CD3028BAA5549412FB22F860D57092C50B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38624   (139845) от 29.12.2021
-
-Макар-следопыт (1984) DVDRip (3 серии)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о приключениях деревенского паренька Макара и его друзей, вступивших в отчаянную схватку с белогвардейцами и победивших их благодаря мужеству, смекалке и дружбе. А неизменным помощником отважного Макара выступает очень преданная и сообразительная овчарка.Производство: СССР, Гостелерадио, ЛенфильмЖанр: СемейныйРежиссер: Николай КовальскийАктеры: Максим Минин, Сергей Саватеев, Ангелина Полянчукова, Александр Леньков, Андрей Ростоцкий, Иван Краско, Владимир Этуш, Олег Борисов, Александр Липов, Алексей Горбунов и др.Продолжительность: 03:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F140973C7B67E28B61850DAEFBAEC2EB055E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587535   (139847) от 18.12.2012
-
-Blood Eye Remove 2.3 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood Eye Remove — Программа для быстрого удаления с фотографий эффекта "красных глаз". Для получения желаемого эффекта нужно пройти три шага. Сначала необходимо выбрать фотографию, затем выделить участок с нежелательными красными цветами - и тут же можно увидеть окончательный результат в окне предварительного просмотра. Если результат устраивает - сохраните полученный вариант.Название программы: Blood Eye RemoveЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436104   (139848) от 30.12.2020
-
-Ильин - Год 2 (2020) [MP3|320 Kbps] <Rock, Metal, Piano>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139848.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кровь
-2. Сад_Пьесы2
-3. Лужи-разводы_Поле
-4. Заплатки_Кровь(   Читать дальше...   )Жанр: Rock, Metal, PianoПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3E0E37F96571D0B22DBFC8A02657CA12227355
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349175   (139850) от 30.12.2019
-
-Пекка Химанен | Хакерская этика и дух информационализма (2019) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пекка Химанен (р. 1973) – финский социолог, теоретик и исследователь информационной эпохи. Его «Хакерская этика» – настоящий программный манифест информационализма – концепции общественного переустройства на основе свободного доступа к любой информации. Книга, написанная еще в конце 1990-х, не утратила значения как памятник романтической эпохи, когда структура стремительно (   Читать дальше...   )Жанр: Философия, Социология,Формат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE3ACE38A9D480D19E3C453DF0B6CF3DB059E26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087236   (139851) от 30.12.2016
-
-Три королевы (2016) SATRip [H.264] (серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелец винного завода Михаил Погодин разрабатывал уникальную марку вина, но не успел запустить ее в производство — мужчину нашли мертвым в собственной квартире. Из Москвы на похороны приезжает его сын Виктор, который не верит в самоубийство отца. Юноша с головой погружается в водоворот интриг городка своего детства, пытается найти общий язык с матерью, сохранить (   Читать дальше...   )Производство: Россия / ООО "Компания "ПИРАМИДА"Жанр: драма, мелодрама, детективРежиссер: Каринэ ФолиянцАктеры: Денис Васильев, Александра Власова, Станислав Бондаренко, Софья Лебедева, Елена Ксенофонтова, Николай Добрынин, Сергей Соцердотский, Вадим Андреев, Максим Битюков, Вячеслав Гришечкин, Евгений Коряковский, Анатолий Бобер, Игорь Трошин, Виталий Таганов, Людмила Кара-Гяур и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC167171C05AF1F967CD68B137613D771303C6E
 ```
 
 

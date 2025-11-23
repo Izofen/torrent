@@ -1,3 +1,75 @@
+###  Публикация: 580173   (164783) от 01.11.2023
+
+Защитник / The Guardian (2002) DVDRip (сезон 1, серия 18) СТС
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын известного адвоката, Ник Фаллин мог бы сделать блестящую карьеру и стать преуспевающим юристом. Но из-за собственных проблем с законом вынужден заняться непрестижной практикой: от общественной детской организации представлять в суде интересы неимущих детей. Очень скоро он начинает понимать, что в перегруженной работой общественной организации не очень-то внимательны (   Читать дальше...   )Производство: США / CBS Productions, David Hollander ProductionsЖанр: драма, криминалРежиссер: Джоан Тьюксбери, Мэл Дэмски, Стив ГомерАктеры: Саймон Бейкер, Алан Розенберг, Рафаэль Сбардж, Дэбни Коулмен, Венди Мониз, Чарльз Малик Уитфилд, Дениз Дауз, Кэтлин Чэлфант, Дороти Харахэн, ЭйДжей МичалкаПеревод: Многоголосый профессиональный (СТС)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50D705E1062CF240C8264CFF4F2B9A20C44AC8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345962   (164784) от 17.12.2019
+
+Reg Organizer 8.40 Final RePack (& Portable) by KpoJluk [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B33ED7451FAFB8F8A0D84FF049ADF95D6838B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597832   (164796) от 16.12.2022
+
+Ableton Live Suite 11 v11.2.7 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F7C62D2033078A50900E8A3E0B4C341A145BFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431817   (164800) от 16.12.2020
 
 Tor Browser Bundle 10.0.7 [Ru/En]
@@ -6,7 +78,7 @@ Tor Browser Bundle 10.0.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164800.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ SiSoftware Sandra Lite 20/21 R19 (версия 31.115) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164812.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Wondershare Filmora 9.3.0.23 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164817.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (1412) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164829.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Firefox Browser 108.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164835.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164842.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ PotPlayer 201209 (1.7.21397) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164844.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ RAM Saver Professional 23.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164848.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ DaVinci Resolve Studio 16 v16.1.2.026 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164863.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Mailbird Pro 3.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164864.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Native Instruments Kontakt 7 v.7.1.3 STANDALONE, VSTi, AU [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164871.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Calibre 6.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164879.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Hetman Partition Recovery 4.5 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164886.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ Transcend SSD Scope 4.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164894.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ TechSmith Camtasia 21.0.15 (Build 34558) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164899.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Light Image Resizer 6.1.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164900.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ Logic Pro X 10.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164902.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ Movavi Video Converter 21 Premium 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164912.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ O&O DiskImage Professional 18.2 Build 199 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164924.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ NVIDIA GeForce Desktop Game Ready 546.01 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164938.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Reg Organizer 8.40 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164954.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ DxO FilmPack 5 ELITE Edition v5.5.26 (build 602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164965.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ Chromium 108.0.5359.125 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164967.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ Chromium – веб-браузер с открытым исходным кодо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3652E1A44ACBB2ADB8C8062CF8B0930FB473279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597777   (164971) от 16.12.2022
-
-Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление удаленных файлов в несколько простых шагов! Magic Uneraser является самым удобным и простым в использовании инструментом для восстановления данных. Программа восстанавливает любые типы файлов. Продукт поддерживает все типы носителей, включая жесткие диски, SSD диски, флэш-накопители и карты памяти.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930A46EEE5487A9CD95713311481761774E9848D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597901   (164972) от 16.12.2022
-
-FanControl V141 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164972.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E54FB560283FACB6756248311F9B5F2890A02F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597915   (164975) от 16.12.2022
-
-DesktopOK 10.55 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164975.jpg" />
-</div>
-
-
-###  Подробнее
-
-DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ADF6B33E8D547EE4A4EAFE56F40CD3DD49E1A6
 ```
 
 

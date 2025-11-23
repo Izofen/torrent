@@ -6,7 +6,7 @@ VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105794.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105795.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105796.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Electronica Confessions, Vol. 13 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105799.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105810.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105819.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105839.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 05 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105840.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - EDM Dance Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105842.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Electronica Confessions, Vol. 10 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105844.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105845.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105850.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Electronica Confessions, Vol. 6 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105852.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Electronica Confessions, Vol. 8 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105853.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Electronica Confessions, Vol. 9 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105854.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Crystal Method - The Trip Out (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105866.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bright Light Bright Light - Life Is Easy (2014) 10th Anniversary Deluxe Edition,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105901.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kazaky - The Hills Chronicles (2014) [WavPack|Lossless|image + .cue] <Synth-pop,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105906.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Uplifting & Progressive Trance 2024 Vol. 1 (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105935.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Nothing But... Trancetopia Vol. 17 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105948.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Live @ Ultra Europe, Croatia (2024) [MP3|320 Kbps] <Progressive House, Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105958.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Paradise Ibiza Summer 2024: Best of Deep & Tropical House (2024) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106000.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sonic Scope - Tales of Shangri-La (2024) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106004.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Mojito Lounge Beats 2024: Best of Tropical & Deep House (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106006.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Hooverphonic - Fake Is The New Dope (2024) [FLAC|Lossless|tracks + .cue] <Trip-h
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106025.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106107.jpg" />
 </div>
 
 

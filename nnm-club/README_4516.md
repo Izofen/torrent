@@ -1,3 +1,155 @@
+###  Публикация: 1195803   (139780) от 30.12.2017
+
+Русский спецназ (2002) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо подготовленная группа диверсантов планирует взорвать под Санкт-Петербургом похищенную ими ядерную боеголовку. Террористы намерены сделать это накануне 300-летия города, в День открытия фонтанов в Петродворце, куда должен приехать президент России.
+О готовящемся покушении независимо друг от друга узнают группы спецназа трех разных ведомств — ГРУ МО, ФСБ и ФСО. (   Читать дальше...   )Производство: Россия Кинокомпания "Сварог"Жанр: БоевикРежиссер: Станислав МареевАктеры: Игорь Лифанов, Алексей Осипов, Виктор Сухоруков, Дмитрий Нагиев, Владимир Турчинский, Ирина Салтыкова, Николай Годовиков, Никита ЛейтландСубтитры: ОтсутствуютПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D67D9EE4114011D05C59CF00443B18AB87CFEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088105   (139782) от 30.12.2016
+
+Автобан / Collide (2016) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский турист Кейси Штайн, путешествуя с подругой по Европе, оказывается втянутым в разборки между двумя враждующими мафиозными группировками. Одну из них возглавляет Хаген, другую — Геран. И с этого момента начинается смертельно опасная гонка на запредельной скорости по автобанам Германии.Производство: Великобритания, Германия, 42, Automatik EntertainmentЖанр: Боевик, ТриллерРежиссер: Эрен КривиАктеры: Фелисити Джонс, Энтони Хопкинс, Николас Холт, Бен Кингсли, Надиа Хилкер, Марван Кензари, Клеменс Шик, Александр Йованович, Кристиан Перерсен, Линдси ЭлизабетПеревод: Многоголосый закадровый, любительский (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:39:08Реклама: Имеется реклама от спонсора.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C0434C0FFB05398469225D4C69B1E8FEDE2507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272942   (139783) от 30.12.2018
+
+Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's Going On (02:59)
+02. Get Down (02:41)
+03. Never On My Mind (03:15)
+04. Supercharger (02:37)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970628   (139785) от 31.12.2015
+
+Хоккей. Молодежный чемпионат мира 2015-2016. группа A. Швейцария - Канада (29.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В столице Финляндии городе Хельсинки стартовал молодежный Чемпионат мира по хоккею с шайбой. В нем примут участие хоккеисты возрастом до 20 лет. В 2016 году хоккейный МЧМ пройдет в 40-й раз.
+Согласно регламенту МЧМ-2016 по хоккею с шайбой, с 26-го по 31 декабря пройдут матчи группового турнира, а с 2 по 5-е января матчи плей-офф молодежного Чемпионата мира по хоккею. (   Читать дальше...   )Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B9F06C91DAF8B3127F6A0CC378CBC39B50ACDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436028   (139786) от 30.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Женщины. Гонка преследования 10 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+19 декабря 2020, суббота. 17:00 МСК
+Этап 4. Хохфильцен (Австрия)
+Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C20340FA6A8B9427D551266C1F12E168C7FDF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518767   (139787) от 29.12.2021
+
+Tor Browser Bundle 11.0.3 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F14B9B284BC8984A00415F370E1BB0F13B47930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195825   (139788) от 30.12.2017
 
 Игорь Прокопенко | Альтернативная история человечества (2018) [FB2]
@@ -6,7 +158,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139788.jpg" />
 </div>
 
 
@@ -32,7 +184,7 @@ magnet:?xt=urn:btih:A4B68523173A234DA5A7F33A48509FB03AFDEB18
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139789.jpg" />
 </div>
 
 
@@ -56,7 +208,7 @@ magnet:?xt=urn:btih:F16F6008FAC1DA352DA8C9D47676EF01E7AE3319
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139790.jpg" />
 </div>
 
 
@@ -80,7 +232,7 @@ magnet:?xt=urn:btih:B75328554C400FE9BE91A8B598CC8BA3D63F32D1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139792.jpg" />
 </div>
 
 
@@ -104,7 +256,7 @@ magnet:?xt=urn:btih:8D96FB4B80FFE61513325EBD864BAA81E455D00D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139793.jpg" />
 </div>
 
 
@@ -128,7 +280,7 @@ magnet:?xt=urn:btih:2A2980C0B2942A4D603CD24A94B31C512AA2DCAA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139794.jpg" />
 </div>
 
 
@@ -152,7 +304,7 @@ Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139795.jpg" />
 </div>
 
 
@@ -179,7 +331,7 @@ magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139796.jpg" />
 </div>
 
 
@@ -212,7 +364,7 @@ magnet:?xt=urn:btih:4BC9D30FB8A09E62EA733BF91EE9BC9CBDD79F32
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139797.jpg" />
 </div>
 
 
@@ -236,7 +388,7 @@ magnet:?xt=urn:btih:9566FC5330FAF2779FC872F4252D667097D4C9FD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139798.jpg" />
 </div>
 
 
@@ -263,7 +415,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139799.jpg" />
 </div>
 
 
@@ -287,7 +439,7 @@ magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139800.jpg" />
 </div>
 
 
@@ -311,7 +463,7 @@ The Noble Manes - Hysteria Of Being (2020) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139802.jpg" />
 </div>
 
 
@@ -338,7 +490,7 @@ magnet:?xt=urn:btih:D63EF88FCF028CC6DD28BBC2D6BB482CE5E4BBC6
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139803.jpg" />
 </div>
 
 
@@ -363,7 +515,7 @@ magnet:?xt=urn:btih:7BE02A95A07B768EC40D9343A24BABE825DB7CF0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139804.jpg" />
 </div>
 
 
@@ -387,7 +539,7 @@ magnet:?xt=urn:btih:6C0C6A7147E34FE72373DD624114D8A30FD10C1D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139805.jpg" />
 </div>
 
 
@@ -414,7 +566,7 @@ magnet:?xt=urn:btih:850EC480167223EDF358BAD7558C7A9D610A6C79
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139806.jpg" />
 </div>
 
 
@@ -438,7 +590,7 @@ VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139807.jpg" />
 </div>
 
 
@@ -465,7 +617,7 @@ magnet:?xt=urn:btih:689DF06FC48661A85C824080720B72D8E0071B86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139808.jpg" />
 </div>
 
 
@@ -489,7 +641,7 @@ Hidden Object Legends: Deadly Love (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139809.jpg" />
 </div>
 
 
@@ -500,158 +652,6 @@ Hidden Object Legends: Deadly Love (2023) [En] (1.0) Unofficial [Collector's Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D14CF46D79D3717CBAC1D5B8E9002A038C35B2FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195659   (139811) от 30.12.2017
-
-Растровый клипарт - Fotolia - Cheerful Christmas woman in santa hat [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая рождественская девушка в шляпе Санты с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3096x3055-6671x6081
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F616A5383A369011B9E9161F05CAB3A6BF0E62A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195710   (139812) от 30.12.2017
-
-Голос (2017.12.29) HDTVRip (сезон 6, выпуск 18 - Финал)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139812.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59297068D838F996048E5C0135331987E5E7FCA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436105   (139813) от 30.12.2020
-
-Cardhop 1.3.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139813.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
-Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E8F71D2F99C33EB1143768B26655B038728762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273112   (139814) от 30.12.2018
-
-Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [2:56]
-02. Out of This World [2:55]
-03. Cottage for Sale [2:36]
-04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348966   (139816) от 30.12.2019
-
-VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Air - La femme d'argent
-002. Otis Redding - (Sittin' On) the Dock of the Bay
-003. Morcheeba - The Sea
-004. Art of Noise - Robinson Crusoe(   Читать дальше...   )Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679223   (139817) от 24.11.2023
-
-В.Н. Зенцов и др. | Защита от коррозии трубопроводов, резервуаров и оборудования (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено описание технологии нанесения и ремонта наиболее распространенных видов антикоррозионных защитных покрытий, применяемых в настоящее время в нефтегазовой, нефтехимической, строительной и других отраслях.
-Для студентов вузов и техникумов, а также инженерно- технических работников промышленных предприятий и сотрудников научно-исследовательских и проектных (   Читать дальше...   )Жанр: МатериаловедениеИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D949F8EA38A7CB94FB8E54B63491A1B4724A4CB
 ```
 
 

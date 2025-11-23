@@ -1,3 +1,84 @@
+###  Публикация: 1703894   (114608) от 02.03.2024
+
+Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 When The Lions Die 5:46
+2 Crypts Of Madness 4:22
+3 Purified By Fire 4:45
+4 Deathstalker 4:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5C79DB10B740FD1CB7B0DBE5EDE72C9EACC15F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703903   (114609) от 02.03.2024
+
+Георгий Береши - Вниз по реке (1997) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вниз по реке 5:10
+02. Танцы с дождём 5:53
+03. Солнечный удар 4:28
+04. Делай всё, что ns умеешь 4:25(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C512893B13384D3CC872F799A7F2A30C224208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703937   (114610) от 02.03.2024
+
+Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
+02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
+03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703988   (114611) от 02.03.2024
 
 Эдгар Аллан По | Овальный портрет (2006) [MP3, Юлия Мен]
@@ -6,7 +87,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114611.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114612.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:6748444E67E5A63A94EAD9E67656BF0D427D6003
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114613.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114614.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ Blood Opera - Songs in the Key of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114615.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Blind Channel - Exit Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114616.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114617.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114618.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ Big Big Train - The Likes of Us (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114619.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114620.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ Elevenwire - Blood Red Sun (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114621.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114622.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ magnet:?xt=urn:btih:7F0C31C4F493C314C79B028398CFA76CD5D71D52
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114623.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114624.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ Toadliquor - Back In The Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114625.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ George Rabbai & Brian Betz Trio - Muted Bebop (2006) Dreambox Media [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114626.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ magnet:?xt=urn:btih:B7D0D118FC904729BC066FDF2258D06B1765FF81
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114627.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ magnet:?xt=urn:btih:C9CA2E6E35FF12ECF23DCB3F70B1CC23ACA8CC4F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114628.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Ministry - HOPIUMFORTHEMASSES (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114629.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ magnet:?xt=urn:btih:6D7C845C404FC89A4CE5C9477826933BE4C9DC7C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114630.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ magnet:?xt=urn:btih:AEC0B916D2A0226B0CADE43E592B270DCC4D3A82
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114631.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ magnet:?xt=urn:btih:740071639E21A9D5E1D600B62F44711C42B3966C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114632.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114633.jpg" />
 </div>
 
 
@@ -598,84 +679,6 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020599B9BEAB4C1AC1A8224895536F1D978DA610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703964   (114634) от 02.03.2024
-
-Жизнь Мухомацу / Muhomatsu no issho / Muhomatsu, the Rikshaw Man (1958) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по роману Сюнсаку Иваситы «Жизнь Мацу Неприрученного»... Конец XIX - начало XX века. Жил в городе Куруме рикша по имени Мацугоро. Был он озорной, весёлый, смелый, никому ничего не уступал, не прощал никаких обид. За грубость и озорство его прозвали «Неприрученным». Все его побаивались, но и уважали за справедливость и доброту. Однажды Мацугоро увидел, как ребятишки (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: драма, комедияРежиссер: Хироси ИнагакиАктеры: Тосиро Мифунэ, Хидэко Такаминэ, Хироши Акутагава, Тисю Рю, Тёуко Иида, Харуо Танака, Дзюн Татара, Кэндзи Касахара, Каору Мацумото, Нобуо Накамура, Ичиро Аришима, Тиэко Накакита, Сэйдзи Миягути, Бокудзэн Хидари, Кокутэн КодоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (borysd и Сергей О.Яковлев), английскиеПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BA2192D50FDF20D5E9E00FDA64663AA02A0B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703899   (114635) от 02.03.2024
-
-Александр Жданов - Скиф I (2000) [FLAC|Lossless|tracks + .cue] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скиф 4:37
-02. Туман и дождь 4:22
-03. Лапушка 3:49
-04. Три пустыни 5:38(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA78AA335802609022F382715852C712FB65495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704009   (114636) от 02.03.2024
-
-Живая еда с Сергеем Малозёмовым (02.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумыс: чем хорош древний напиток из кобыльего молока и есть ли в нем алкоголь? Помогло ли кумысолечение Антону Чехову и стоит ли так лечиться сегодня?
- Как греческое тесто фило готовят на родине и можно ли найти достойное в российских магазинах?
- Соцсети учат плохому: на вредную еду даже смотреть вредно!
- Даже пара банок энергетика в месяц ухудшает сон.(   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C9F0EF8BB600E9D4AED49C8CAA3E209503B88E
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1695858   (120120) от 30.01.2024
+
+Skype 8.112.0.203 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B781F7C0A3F2428D16853C64793EB344CFC10EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695756   (120121) от 30.01.2024
+
+Monkey's Audio 10.47 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
+Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6273DCC6F0F202B9B4DEEB70B5C196267C940CB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695794   (120122) от 30.01.2024
+
+И.М. Пёрышкин, А.И. Иванов | Физика. Учебник для 7 класса (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник соответствует Федеральному государственному образовательному стандарту основного общего образования. Большое количество красочных иллюстраций, разнообразные вопросы и задания, а также дополнительные сведения и любопытные факты способствуют эффективному усвоению учебного материала.Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F39357FF22E012C163020CD0D77B085AFE01FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695674   (120123) от 30.01.2024
 
 Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +79,7 @@ Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120123.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:32A0EC406CED8FAC5F2682132A5E9589C4E22694
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120124.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Alexander Werth | Russia at War, 1941–1945 A History (2017) [PDF, EPUB][EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120125.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:CD84EA12AABD8D20661AC89E45A01714AAC7A46B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120126.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.2.3 VST 3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120127.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ VA - Compilation Electronic part 49 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120128.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ magnet:?xt=urn:btih:8710D450DB089EAA8948039ED25A5DB9E12A3CCE
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120129.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:1ECEDBFFF338E42681434B3669885CA4D0A2F2BB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120130.jpg" />
 </div>
 
 
@@ -209,7 +282,7 @@ magnet:?xt=urn:btih:D92AE2A875A10654358A2EAB8EE082F3CD985281
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120131.jpg" />
 </div>
 
 
@@ -233,7 +306,7 @@ Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120132.jpg" />
 </div>
 
 
@@ -260,7 +333,7 @@ Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120133.jpg" />
 </div>
 
 
@@ -287,7 +360,7 @@ VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120134.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ Music Collection 3.6.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120135.jpg" />
 </div>
 
 
@@ -338,7 +411,7 @@ HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120136.jpg" />
 </div>
 
 
@@ -363,7 +436,7 @@ magnet:?xt=urn:btih:F504F67672A9F97BD8C1C4B95AAADEEF30DEA19E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120137.jpg" />
 </div>
 
 
@@ -387,7 +460,7 @@ magnet:?xt=urn:btih:C690FF4EA5D03F200300B0079BB184C6C6B44B61
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120138.jpg" />
 </div>
 
 
@@ -414,7 +487,7 @@ magnet:?xt=urn:btih:3A8230BBA2B72736D1FB1E91EED37A61862F61C2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120139.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ Sante DICOM Viewer Pro 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120140.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:165D06657A9FA9F8D1357C2FE9B99D1787A16193
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120141.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:1398D9266B02E11AC0111636CC7C792E5460F873
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120142.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:A053C5C326F51287137687EF6D3E835B00186BE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120143.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:A093D8683B3057E1547373EB56BA2B12EB2155D0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120144.jpg" />
 </div>
 
 
@@ -565,7 +638,7 @@ Native Instruments - Kontakt 7.8.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120145.jpg" />
 </div>
 
 
@@ -576,78 +649,6 @@ Kontakt позволяет вам воспроизводить и обрабат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7B3B80C2A221DD724EA05D204157FB0DC84B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695837   (120146) от 30.01.2024
-
-Maxthon Browser 7.1.8.6001 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon Browser — многофункциональный браузер со множеством встроенных полезных возможностей. , качественное отображение HTML5, безопасность серфинга, многоплатформенность. Кроме того, вы можете воспользоваться функцией облачной синхронизации и войти в систему под одной и той же учетной записью на нескольких устройствах, чтобы без проблем обмениваться данными между (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05024F0118B5230A75ADB67083D06A29A229DAD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695763   (120147) от 30.01.2024
-
-Когда его совсем не ждёшь (2014) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120147.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Сони есть всё, кроме главного женского счастья - ребёнка. Уже много лет героиня с мужем Алексеем пытаются изменить это, но все их попытки тщетны. Наконец, пара решается прибегнуть к дорогостоящей процедуре искусственного оплодотворения. Но неожиданно в жизнь Сони приходят страшные перемены. Выясняется, что у её мужа есть внебрачная дочь, о которой он не знал. (   Читать дальше...   )Производство: Россия, кинокомпания "Русское"Жанр: мелодрамаРежиссер: Екатерина Гранитова-ЛавровскаяАктеры: Ирина Горячева, Александр Ефимов, Анна Уколова, Алина Доценко, Анна Арланова, Алексей Фатеев, Петр Баранчеев, Натали Старынкевич, Андрей Заводюк, Михаил Кузнецов и др.Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3D356942B83EA317AFEE42A840544E76FBAF17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695811   (120148) от 30.01.2024
-
-Синяя бездна 2 / 47 Meters Down: Uncaged (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Саша с нетерпением ждала выходных, чтобы оторваться с подругами, но родители наказали ехать вместе со сводной сестрой Мией на водную экскурсию. Решив, что перспектива провести несколько часов на корабле с вредными одноклассницами, которые постоянно задирают Мию, их не прельщает, сёстры с подругами Саши отправляются исследовать подводную пещеру. Но (   Читать дальше...   )Производство: США, Великобритания / Entertainment Studios Motion Pictures, thefyzzЖанр: ужасыРежиссер: Йоханнес РобертсАктеры: Софи Нелисс, Корина Фокс, Бриэнн Тджу, Систин Роуз Сталлоне, Брэк Бэссинджер, Ниа Лонг, Джон Корбетт, Дави Сантос, Кайлин Рамбо, Аксель МансиллаПеревод: Дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CD2832164FD4814A299639CE29FAF82E5B0939
 ```
 
 

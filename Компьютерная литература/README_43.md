@@ -1,3 +1,123 @@
+###  Публикация: 495824   (251567) от 12.05.2012
+
+Кевин Р. Фолл | TCP/IP Illustrated, Volume 1 The Protocols [2012] [PDF, epub] [Eng]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для тех, кто желает понять, как работают TCP/ IP протоколы: программистов, пишущих сетевые приложения, системных администраторов, ответственных за компьютерные системы и сети.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495679   (251571) от 12.05.2012
+
+Ч. Петцольд | Код. Тайный язык информатики [2001] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251571.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Ч. Петцольда "Код" Вы не найдете ни подробных описаний операционных систем, ни указаний по работе со сложными компьютерными приложениями, ни тонкостей настройки оборудования, ни практического руководства по программированию. Эта книга - азбука компьютерных технологий. Шаг за шагом автор знакомит читателя с самой концепцией кодирования информации, рассказывает об истории возникновения компьютеров, на практических примерах помогает освоить основные концепции информационных технологий, подробно излагает принципы работы центрального процессора и некоторых других устройств компьютера. Книга написана живым, понятным, иногда ироничным языком, богато иллюстрирована, состоит из 25 глав, оглавления и предметного указателя. Книга адресована в первую очередь студентам вузов (как гуманитарных, так и технических), а также всем, кто интересуется концепциями создания и функционирования компьютеров.2001Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637094   (251838) от 02.06.2023
+
+В.В. Зиборов | Visual C# 2012 на примерах (2013) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрено более 140 типичных примеров, встречающихся в практике реального программирования для платформы .NET Framework в среде Microsoft Visual C# 2012: обработка событий мыши и клавиатуры, чтение/запись файлов, редактирование графических данных, управление буфером обмена, ввод/вывод данных, использование функций MS Word, MS Excel, AutoCAD и MATLAB, а также создание (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835732   (251922) от 07.11.2025
+
+Тим Питерс | Программирование бэкенда на Python. Практическое руководство (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена современным технологиям для программирования и поддержки серверной части (бэкенда) на Python. Рассказано о программировании на Python в облачной среде, управляемой через Docker и Kubernetes, о фреймворке Flask для веб-разработки на Python, о поглощении и преобразовании данных через FastAPI, об интеграции новых приложений и модулей Python с устоявшимися (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636382   (251938) от 30.05.2023
+
+Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга показывает, как создавать автоматизированные сценарии PowerShell для локальных и облачных систем. В нем вы найдете советы по определению автоматизируемых задач, методы структурирования и управления сценариями, а также множество хорошо объясненных примеров кода. Вы также узнаете, как адаптировать существующие сценарии к новым условиям использования и расширить (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636373   (251940) от 30.05.2023
 
 John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
@@ -6,7 +126,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251940.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251940.jpg" />
 </div>
 
 
@@ -33,7 +153,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251944.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251944.jpg" />
 </div>
 
 
@@ -57,7 +177,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251949.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251949.jpg" />
 </div>
 
 
@@ -81,7 +201,7 @@ Junghyun Seok | Анатомия Стоунхауса / Stonehouse's Anatomy (20
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251980.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251980.jpg" />
 </div>
 
 
@@ -106,7 +226,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252201.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252201.jpg" />
 </div>
 
 
@@ -132,7 +252,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252206.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252206.jpg" />
 </div>
 
 
@@ -156,7 +276,7 @@ magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252256.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252256.jpg" />
 </div>
 
 
@@ -180,7 +300,7 @@ magnet:?xt=urn:btih:762C2AD7B9EE0C8E27299F5E228A411A196465AB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252262.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252262.jpg" />
 </div>
 
 
@@ -205,7 +325,7 @@ magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252263.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252263.jpg" />
 </div>
 
 
@@ -229,7 +349,7 @@ Tilman M. Davies | The Book of R: A First Course in Programming and Statistics (
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252517.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252517.jpg" />
 </div>
 
 
@@ -254,7 +374,7 @@ magnet:?xt=urn:btih:6D8E3E129B07C58F0C9159988C83041679511E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252713.jpg" />
 </div>
 
 
@@ -278,7 +398,7 @@ magnet:?xt=urn:btih:888DFE278C08AFC78918EAD01D6C826ABB189471
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252720.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252720.jpg" />
 </div>
 
 
@@ -302,7 +422,7 @@ magnet:?xt=urn:btih:95695580B0D503AC9DB52C30203637A5A42E06C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253465.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253465.jpg" />
 </div>
 
 
@@ -326,7 +446,7 @@ magnet:?xt=urn:btih:2E4B4B044818939970CE7D7CF63C309C03758317
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254088.jpg" />
 </div>
 
 
@@ -350,7 +470,7 @@ Stack Overflow | CSS для профессионалов. Руководство
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254325.jpg" />
 </div>
 
 
@@ -375,7 +495,7 @@ magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254409.jpg" />
 </div>
 
 
@@ -399,7 +519,7 @@ magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254412.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254412.jpg" />
 </div>
 
 
@@ -423,7 +543,7 @@ magnet:?xt=urn:btih:69E26CC30E6055AB7723F00BEC0986998AC6836F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254423.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254423.jpg" />
 </div>
 
 
@@ -447,7 +567,7 @@ magnet:?xt=urn:btih:44A5D497E80C7C9B1CE71BFA46A4679E932FEBEF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254424.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254424.jpg" />
 </div>
 
 
@@ -471,7 +591,7 @@ magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254436.jpg" />
 </div>
 
 
@@ -495,7 +615,7 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254525.jpg" />
 </div>
 
 
@@ -508,126 +628,6 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631713   (254531) от 07.05.2023
-
-Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254531.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале книги показано, как установить дистрибутив Linux и различные возможности, доступные в зависимости от конечного использования. После установки в книге показано, как управлять системой, администрировать пользователей и права доступа, а также как устанавливать новое программное обеспечение и настраивать службы. Книга содержит обзор наиболее распространенных (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF99447DCBD1A29E795DDCD0918DB262CBDC438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631892   (254532) от 07.05.2023
-
-Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254532.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере усложнения стека услуг становится все труднее предоставлять ИТ-услуги по требованию, которые отвечают ожиданиям клиентов в отношении скорости, последовательности, надежности, безопасности, конфиденциальности и ценности. Наложение новых облачных технологий, архитектурных подходов или методологий может усугубить проблему, увеличивая разрыв между тем, что, по (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414D4F59262A0A6EAA7D4AFC995CE061C02B7DEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630998   (254583) от 04.05.2023
-
-Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254583.jpg" />
-</div>
-
-
-###  Подробнее
-
-После вводного курса о стандартах CLI и языке Go вы перейдете к проектированию инструментов и правильному использованию фреймворков для достижения настоящего мастерства в разработке. Затем книга переходит ко всему, что связано с CLI, помогая вам освоить все - от аргументов и флагов до ошибок и вызовов API. Затем вы погрузитесь в нюансы эмпатической разработки, чтобы (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AF1879ACAE661EFBB14B9B04167EC244A99F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629384   (254735) от 27.04.2023
-
-Eric Sarrion | JavaScript from Frontend to Backend (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга начинается с основ переменных и объектов в JavaScript, а затем быстро переходит к созданию компонентов на стороне клиента с помощью Vue.js и простого приложения для управления списками. После этого внимание переключается на серверную сторону и Node.js, где вы рассмотрите модель MVC и изучите модуль Express. После того как вы освоите серверную и клиентскую части, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3832D5F98CA3545837DE8A4B22E59775A8E996B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629044   (254804) от 25.04.2023
-
-Сильвия Ботрос, Джереми Тинли | MySQL по максимум. Проверенные стратегии. 4-е изданиеу (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите выжать из MySQL максимум возможностей? Вам поможет уникальная книга, написанная экспертами для экспертов. Пора изучать лучшие практики, начиная с постановки целей уровня обслуживания, проектирования схем, индексов, запросов и заканчивая настройкой вашего сервера, операционной системы и оборудования, чтобы реализовать потенциал вашей платформы по максимуму. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48D4652E954044ED7DB53AF250C44108E9F452C
 ```
 
 

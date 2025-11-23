@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42189.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42190.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:46A04E0A43A43BFE63F7531C1AF2E3D1CA592D2A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42191.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [MP3|320 Kbps] <Hard Rock, Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42192.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42193.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42194.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AFF391B98BC906E38EC2598032C7F54EEA942728
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42195.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:0C4FCE6ABAF832C2905A906646F5366C4C9ED7AD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42196.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:EC7FB23D45A5B3653BAE7A254D2DA6B0287013D3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42197.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - This Is Uplifting Trance Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42198.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Cafe Oriental (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42199.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Arab Lounge Grooves (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42200.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Grimgotts - The Time of the Wolfrider (2024) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42201.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Serious Black - Rise of Akhenaton (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42202.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:9B4985AC59925A8C6B81D92C9A11A16C7612A067
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42203.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:74667335EABA75585205F84D05F5BAA326F204C1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42204.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Karaone - Dragon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42205.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Armin van Buuren - A State Of Trance 1192 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42206.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Turbokill - Champion (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42207.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:027CA1C1DC2AAB06F07CCD4F221A6EE200BFC24F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42208.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Calibre 7.19.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42209.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:E45F0C6082DD4FBCC700716D52C3513891FE5CC6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42210.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Music News For Forum vol.027 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42211.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Soft Organizer Pro 9.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42212.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42213.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Sting - Brand New Day (1999) Expanded Edition, 2024, A&M [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42214.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 593110   (135391) от 23.12.2012
+
+Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135391.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593160   (135392) от 23.12.2012
+
+Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590274   (135397) от 23.12.2012
+
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135397.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592684   (135400) от 23.12.2012
 
 Последний людоед: Индийский тигр-убийца / The last maneater:  Killer tigers of India (2003) DVDRip
@@ -6,7 +87,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135400.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135401.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135401.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135403.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135404.jpg" />
 </div>
 
 
@@ -119,7 +200,7 @@ Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135406.jpg" />
 </div>
 
 
@@ -152,7 +233,7 @@ magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135407.jpg" />
 </div>
 
 
@@ -176,7 +257,7 @@ Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrume
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135408.jpg" />
 </div>
 
 
@@ -209,7 +290,7 @@ VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Ba
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135410.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135411.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135415.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135415.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135416.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ Softany WinCHM Pro 4.31 RePack by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135418.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135418.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedeli
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135419.jpg" />
 </div>
 
 
@@ -391,7 +472,7 @@ VSO Downloader Ultimate 2.9.14.7 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135421.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135421.jpg" />
 </div>
 
 
@@ -415,7 +496,7 @@ Scribus 1.4.1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135422.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ SUMo 3.4.14.189 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135424.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135424.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ SUMo - программа, позволяющая отслеживать поя�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135425.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135427.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135427.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135428.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135428.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135433.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135436.jpg" />
 </div>
 
 
@@ -608,7 +689,7 @@ Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135437.jpg" />
 </div>
 
 
@@ -640,7 +721,7 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135438.jpg" />
 </div>
 
 
@@ -656,96 +737,6 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 08. Just When I Thought
 09. So Into You
 10. Strollin' Down Blaine(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593327   (135439) от 23.12.2012
-
-Чрезвычайное происшествие. Обзор за неделю (23/12/2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели до первого выпуска, когда в газеты уже была отдана программа телепередач с новой строкой - "ЧП. Обзор за неделю". Команда собрана из профессионалов жанра, людей, которые знают, что нужно зрителю, могут добыть это и умеют эффектно подать материал. Эта команда и смогла создать качественный продукт, основой которого стали репортажи с реальным, не постановочным видео. Неподдельные эмоции, наэлектризованная атмосфера критических ситуаций, невероятные, но абсолютно достоверные факты, - все это каждое воскресенье ждет вас на канале НТВ!Жанр: ТелепередачаПродолжительность: 00:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B80D66A49128F0FC11184F917BEC4929E0378B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591627   (135440) от 23.12.2012
-
-deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135440.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Eleven11
-2. Leiden Lowlife
-3. Blik
-4. Inside The Outside
-5. Chillwings
-6. E-Type
-7. Daydream
-8. Dan Natural
-9. The Grand Illusion
-10. Coffee & TreesЖанр: trip-hop, acid jazz, insrumental hip-hopПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEDF7B34BA62FEA008A50253C8591C2AD188888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593351   (135441) от 23.12.2012
-
-Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dove Italia Nacque [02:10]
-02. The Vitulean Empire [05:15]
-03. Laugure E Il Lupo [05:52]
-04. Ver Sacrum [09:25]
-05. Suovetaurilia [04:36]
-06. Legio Linteata [06:01]
-07. Ballata Dautunno [01:42]
-08. Inverno [07:32]
-09. Roma Ferro Ignique [06:26]
-10. De Ferro Italico [10:34]Жанр: Folk MetalПродолжительность: 00:59:37
 
 ## Скачать торент
 ```bash

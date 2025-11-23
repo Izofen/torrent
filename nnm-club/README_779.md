@@ -6,7 +6,7 @@ OCCT 14.0.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20580.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:11204D3EC1C1D8EB6603FCCE60C0D2EAB8A596F4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20581.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20581.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4CEAD9A56979BEDBCEACAACA32F75EB371C47A36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20582.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20582.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B013FC70AF356CE4EF5F526821B2919063FF8422
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20583.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20583.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6577C84BE41FB033BB3A04CC8748051465E7B1AF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20584.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20584.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5730F83360FEA6F93948A23EAFFCCDEAC5F4C533
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20585.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20585.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:84329CB044D8CF89F76C19F05DEDF5D291CABE14
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20586.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20586.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2E246BE9809E91484B3146A685629BE099FC87C4
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20587.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20587.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7F525BC28DAD0CA8E4DFEFB8D4BD4EBE979B6ACF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20588.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20588.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BDBC3EB4B55CEE0051F8EB12A2E57E9B4CF48BE4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20589.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20589.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5243392B4A945D1F04454DD4451A69FA8840AB4A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20590.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20590.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Tablacus Explorer 25.4.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20591.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20591.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:510A54EFD1FFDD8753B1C1EEF0506E7D00DC73FF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20592.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20592.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B57B957B2A76D4F226DE3024D56FCA0D10D12FD6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20593.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20593.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A191D44A71253A6FF0C21F8DF7FA4F589ACA7080
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20594.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:242EC1DDD75DD44A47AE208533767AA5ED40323C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20595.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Anthony Gomes - Praise The Loud (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20596.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0A580A36D0FCE9E7F397BF43B3721F3F2DDD6816
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20597.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20597.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E2973F3A3B23338E599D028F1102B41BA3542217
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20598.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20598.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:4D05B6BA3E4F43DEF5232629604DAB312FA9F3E4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20599.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20599.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ AIMP 5.40.2674 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20600.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:25D396DA97A486557CD7E67CBE718DF5F84CB474
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20601.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20601.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:504E2BF39D13683A517E3166BEF07A2BCB42C14A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20602.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20602.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:82DA482A144E851C23575050C0AAEF5CCA69081E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20603.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20603.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Multi Commander Full Edition 15.4 Build 3089 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20604.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20604.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:23A463637CDF4AD579F5401043C335385A90BEEA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20605.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20605.jpg" />
 </div>
 
 

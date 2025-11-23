@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71910.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71911.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71912.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71913.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71914.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71915.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71916.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71917.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71918.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71919.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71920.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71921.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71922.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71923.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71924.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71925.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71926.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71927.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71928.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:03C915A8F384B5C4C61383A2CD50435DBA8EE150
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71929.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71930.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71931.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71932.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71933.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71934.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:6D15ACEE0176B9ADEC33AA1D087598B6B7F5E665
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71935.jpg" />
 </div>
 
 

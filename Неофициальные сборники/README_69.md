@@ -6,7 +6,7 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130673.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Близко к Диско (2012) 2CD / RG Музыка Ltd. / [MP3|320 к�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130753.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130780.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130835.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Новогодний Хит За Хитом (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130853.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кав
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130892.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130898.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130954.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Уже Новый год на носу (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131009.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131046.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Подарок! (2012) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131098.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Rockовое Нашествие-Русская версия (2012) [MP3|128
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131265.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131542.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - New Age Style - Erotic Lounge 3 (2012) [MP3|320 кб/с]<New Age,Chillout, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131576.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131645.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131651.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131751.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131753.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131760.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132027.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132149.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132150.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132153.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132202.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132215.jpg" />
 </div>
 
 
@@ -789,7 +789,7 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132227.jpg" />
 </div>
 
 

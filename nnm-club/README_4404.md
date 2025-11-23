@@ -1,3 +1,77 @@
+###  Публикация: 590669   (136090) от 20.12.2012
+
+Враг мой / Enemy Mine (1985) HDTVRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение.
+В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя.
+Единственное место, где можно выжить после падения — та самая планета. Но упав, он обнаруживает, что сбитый им чужой не погиб. Смертельные враги (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу Майклс, Энди ГирПеревод: Дубляж с многоголосыми вставками + Профессиональный (многоголосый закадровый) - (Украинский - 2+2) + Оригинал (Английский) + Профессиональный (одноголосый закадровый) Юрий Живов (внешняя)Язык субтитров: Русские, Французкие, Английские - полныеПродолжительность: 01:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B31136CA2FA163C3969B351A4E4DFD9A21D18F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591820   (136091) от 20.12.2012
+
+Голая добыча / The Naked prey (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий приключенческий фильм с весьма жестокими сценами. Уайлд в роли проводника сафари в Африке, на глазах которого местное племя зверски убивает трёх вверенных ему охотников. Его самого они раздевают догола и велят бежать, дав небольшую фору. Голый, без оружия и пищи, он становится предметом их охоты. Но парень не падает духом и защищает свою жизнь такими же дикими методами.Жанр: Приключения, ОстросюжетныйРежиссер: Корнел УайлдАктеры: Корнел Уайлд, Герт Ван Ден Берг, Кен Гэмпу, Патрик Майнхард, Белла Рэндлс, Моррисон ГампуПеревод: Одноголосый закадровыйПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21530BE1ED23559EE302E75F8B8C29AEA5B1AB42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591539   (136092) от 20.12.2012
+
+Шаблоны - Graphic Authority Lil Kids & Wedding Templates [PSD]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136092.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDE9EB38CB81123389D1E265052A3F52B2B7DC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591836   (136095) от 20.12.2012
 
 SparkyLinux 2.0.1 “GameOver” (игровой дистрибутив) [i386] (1xDVD)
@@ -6,7 +80,7 @@ SparkyLinux 2.0.1 “GameOver” (игровой дистрибутив) [i386] 
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136095.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136095.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ SparkyLinux 2.0.1 “GameOver” (игровой дистрибутив) [i386] 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136096.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136096.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ SparkyLinux 2.0.1 “GameOver” (игровой дистрибутив) [i386] 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136097.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:3BAB41230332A8AB8142A4E4973C0B7B4476FD3D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136098.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:A42FEB179339481351A7F8B62688BE747B08D15F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136099.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136099.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Tipard Video Converter Platinum 6.2.16 Portable by Kopejkin [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136100.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Whos On My WiFi 2.1.2 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136101.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ Who Is On My Wifi - это инструмент для сканирование 
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136102.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ VNP - Trance Traveling [Обновляемая] (2011-2012) [MP3|320 кб/с]<Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136106.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136106.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ VNP - Trance Traveling [Обновляемая] (2011-2012) [MP3|320 кб/с]<Tr
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136108.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ Berlitz | Хорватский язык. Базовый курс [MP3+DJVU] [200
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136110.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ Coda 2.0.7 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136111.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136111.jpg" />
 </div>
 
 
@@ -312,7 +386,7 @@ Coda 2.0.7 [Eng]
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136113.jpg" />
 </div>
 
 
@@ -338,7 +412,7 @@ magnet:?xt=urn:btih:8C20761BE5B554EFD67FCE6629FE36686C55D243
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136115.jpg" />
 </div>
 
 
@@ -366,7 +440,7 @@ magnet:?xt=urn:btih:07DDE5D9019B0202758D03AF7602642D6DFC7344
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136116.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ magnet:?xt=urn:btih:819D3973A2799AE0A35D4BF43AE7B29DDB5900AE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136118.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ magnet:?xt=urn:btih:667E7816EAAF777212EDB6747781BABBFC7E7479
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136119.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ magnet:?xt=urn:btih:118F9B79C83BAC4A6A28303301B04E3E6A002861
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136121.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ magnet:?xt=urn:btih:42F3B940D44B1D95F43DE3E3F208EB0A85E0AFF9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136122.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136122.jpg" />
 </div>
 
 
@@ -486,7 +560,7 @@ magnet:?xt=urn:btih:42F3B940D44B1D95F43DE3E3F208EB0A85E0AFF9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136124.jpg" />
 </div>
 
 
@@ -510,7 +584,7 @@ magnet:?xt=urn:btih:ED1B8CB464B901C464B371C5D12071B504C7819E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136125.jpg" />
 </div>
 
 
@@ -534,7 +608,7 @@ magnet:?xt=urn:btih:812B236376D4C9678BE725F5F906033324D5E99A
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136126.jpg" />
 </div>
 
 
@@ -558,7 +632,7 @@ magnet:?xt=urn:btih:0ED547DDA8A037519B739957580709B1FD1E7D3C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136127.jpg" />
 </div>
 
 
@@ -569,87 +643,6 @@ magnet:?xt=urn:btih:0ED547DDA8A037519B739957580709B1FD1E7D3C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F7CB3D1BAA504DF3AD663BC8D5AC96972895A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591606   (136130) от 20.12.2012
-
-Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/ [FLAC|Lossless]<Angry Metal, Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mouth For War (03:57)
-02. A New Level (03:58)
-03. Walk (05:15)
-04. Fucking Hostile (02:48)
-05. This Love (06:33)
-06. Rise (04:37)
-07. No Good (Attack The Radical) (04:48)
-08. Live In A Hole (05:02)
-09. Regular People (Conceit) (05:27)
-10. By Demons Be Driven (04:40)(   Читать дальше...   )Жанр: Angry Metal, Thrash Metal, Groove MetalПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591291   (136132) от 20.12.2012
-
-Giacomo Puccini - Tosca  (Victor de Sabata & Orchestra Del Teatro Alla Scala, Milano)  2CD (1991) [FLAC|Lossless]<Classical, Opera, Romantic Period>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Opera, Romantic PeriodПродолжительность: 02:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BEA8A9709D0C0CE2F0F23FB7A31E843195470C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591888   (136138) от 20.12.2012
-
-Журнал | Stereo & Video [Россия] №1 [январь 2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F262825A1B031F1770DEA120DB1EBAD090CF820
 ```
 
 

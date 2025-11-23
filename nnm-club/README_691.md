@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Daily Yoga (Ежедневная йога) v8.68.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18291.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:EF118A6EA8BFD96071A2E1194BB4FBD69013AD40
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18292.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FA858D0B71231749B1D01C3F90FBE918FBA6BD55
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18293.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C15DD63E9766BC7DAEDF9236C948864D8237F289
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18294.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Smart AudioBook Player Pro v11.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18295.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18296.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8458F5E766278AA6E7420C1F43C781C38D3CBD3D
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18297.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:BB107080FE378E49F977814590DBB0E068A0483E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18298.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.47 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18299.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9DF01F66A0B6C1B5B766F38E3E9D1C22F3C46840
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18300.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18301.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:450F1AD404C690C70F8BA654E39B3EF68921229C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18302.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Roman Messer - Serendipity (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18303.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:81D5FE3BE5AADFC3B755CDFD31BA3C99429014FD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18304.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:6B3FADF994BD8733880075EC06FCBCCE8DCED942
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18305.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B145F21255E94AC141B557DE7EF3E3D8D5A6D35C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18306.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Smart AudioBook Player Pro v11.3.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18307.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:4F6E1A878C584E0D449D56B98393C6634B1A31DC
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18308.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:F010C6DFB363086AD00B6F6D417DB46D70F44372
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18309.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18310.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:8A26E9CB5C85BDD5670473653961FD0C013B2BAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18311.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18312.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18313.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D2E0D5F9BAFC59BB954FDF8F4F679300A1B7BB01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18314.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18315.jpg" />
 </div>
 
 

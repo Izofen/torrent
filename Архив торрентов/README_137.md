@@ -6,7 +6,7 @@ TikTok Private Plus (PayBack Edition) v37.7.3 Mod by TikTok Updates + Plugin Upd
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34313.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.1.54706 Extra Mod by Balatan [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34314.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Audacity 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34316.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ One Read / Все Документы Читатель - Офис v1.2.1.39 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34320.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34322.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (1312) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34340.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Marmoset Toolbag 5.01 (5010) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34342.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Adobe Photoshop Lightroom Classic 2024 14.1.0.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34343.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Avidemux 2.8.2 Nightly (r241212) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34352.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (1112) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34353.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34362.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ ACDSee Photo Studio Ultimate 2025 18.0.1.3997 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34366.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Media Encoder 2025 25.1.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34373.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mario Nieto - Chord Generator 1.0.0 Standalone, VSTi 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34404.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FabFilter - Total Bundle 2024.12.11 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34433.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ CPU-Z 2.13.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34449.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Rhinoceros 3D 8.14.24345.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34474.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ CCleaner 6.31.11415 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34476.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ ExamDiff Pro 15.0.1.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34485.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ File & Image Uploader 8.4.8 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34493.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Google Chrome 131.0.6778.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34505.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ WinTools.net Premium 24.12.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34508.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Firefox Browser 133.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34509.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:03F56DE7E6A8164FC83563DA90BF7994BF6B594E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34512.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E614F1D20796B549B143A8C5BDEF0EDFD9F0B7E5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34516.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Firefox Browser 133.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34521.jpg" />
 </div>
 
 

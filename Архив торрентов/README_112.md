@@ -6,7 +6,7 @@ v2rayN 7.7.1 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28730.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TreeSize Professional 9.4.0.2000 (x64) RePack (& Portable) by elchupacabra (04.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TweakPower 2.069 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28760.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28760.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinTools.net Premium 25.2.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28762.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28762.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CoolUtils Total Movie Converter 4.1.0.66 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28766.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28766.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PicPick Free+Pro 7.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28768.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ HDCleaner 2.087 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28773.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GPU-Z 2.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28775.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Skype 8.136.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28776.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ CoolUtils Total Audio Converter 6.1.0.278 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28777.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ R-Drive Image Technician 7.2 Build 7207 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28782.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PDF-XChange Editor Plus 10.5.1.394 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28784.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ThisIsMyFile 4.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28787.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ KStars 3.7.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28793.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Cockos REAPER 7.33 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28796.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Windows Manager 2.1.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28797.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ InnoExtractor Ultra 10.0.0.112 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28801.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Agisoft Metashape Professional 2.2.1 Build 20019 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28804.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34438.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28807.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ PDF-XChange PRO 10.5.1.394 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28811.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft  Visual C++ Runtimes AIO v0.86.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28817.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Internet Download Manager 6.42 Build 27 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28824.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adobe Acrobat Pro 2024.005.20399 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28827.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Office Installer & Office Installer+ 1.23 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28837.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ UltraSearch Professional 4.6.1.1100 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28868.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:4DE33E4173A02D7579C418B1722637155CF0DC99
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28869.jpg" />
 </div>
 
 

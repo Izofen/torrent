@@ -1,3 +1,90 @@
+###  Публикация: 468680   (96826) от 16.03.2012
+
+VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Sava feat. Andreea D & J. Yolo - Money maker
+ 002. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
+ 003. Linkin Park - Wretches And Kings
+ 004. Sandro Monte feat. Mischa Daniels & J-Son - Simple man
+ 005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
+ 006. Housemaxx Project - Let The Music Play (Radio Edit)
+ 007. Lady Tom - All I Ever Needed
+ 008. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
+ 009. Big City Angels - Top Of The Stars (Justin Corza Meets Greg Blast remix)
+ 010. Chuckie feat. Gregor Salto - What happens in vegas(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468504   (96827) от 16.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96827.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 15 
+Название:  Desktop Wallpapers Pack 15 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080D10C9C3707990C3E16F2809283B1390853103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467266   (96831) от 16.03.2012
+
+Журнал | Зарплата в бюджетном учреждении №1,2 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предназначено для бухгалтеров государственных (муниципальных) учреждений.
+О журнале:
+В журнале приведена информация, связанная с расчетом и налогообложением заработной платы, доплат, надбавок и компенсаций, а также с оформлением трудовых отношений. В частности, рассказано, как рассчитать налоги и взносы с зарплаты, применять новый порядок исчисления пособий. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6BE738C17F59F2A5FE4F79C9E3AFE26E58888C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468841   (96832) от 16.03.2012
 
 Х.Г. Кучушев | 1000 советов любителю мастерить [1984] [DJVU]
@@ -6,7 +93,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96832.jpg" />
 </div>
 
 
@@ -30,7 +117,7 @@ magnet:?xt=urn:btih:FCE2F7295AE90302D186E419A2C121654B32E23E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96833.jpg" />
 </div>
 
 
@@ -54,7 +141,7 @@ magnet:?xt=urn:btih:B33274A3F1A65848F68347667326088757DDE828
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96834.jpg" />
 </div>
 
 
@@ -78,7 +165,7 @@ magnet:?xt=urn:btih:C944B5095E3472986449C37A57A7BC5CB6337D22
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96837.jpg" />
 </div>
 
 
@@ -103,7 +190,7 @@ magnet:?xt=urn:btih:45FB79904A2C6ACA10E750B381AED859B3A0614E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96838.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ magnet:?xt=urn:btih:FA664B7278C638DF62ABF3039D97B35EDEF346BD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96840.jpg" />
 </div>
 
 
@@ -155,7 +242,7 @@ Karl Denson - Dance Lesson #2 (2001) [FLAC|Lossless]<Jazz-Funk, Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96842.jpg" />
 </div>
 
 
@@ -187,7 +274,7 @@ Slava Черный & Roma Белый - Фольксваген (1995) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96843.jpg" />
 </div>
 
 
@@ -220,7 +307,7 @@ Slava Черный & Roma Белый - Фольксваген (1995) [FLAC|Lossl
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96844.jpg" />
 </div>
 
 
@@ -248,7 +335,7 @@ magnet:?xt=urn:btih:686F2BF189AB6E1A59139192D3A8777387A49BB9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96845.jpg" />
 </div>
 
 
@@ -276,7 +363,7 @@ magnet:?xt=urn:btih:C541DA671F526570F1821A4C73513BDB17D59905
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96847.jpg" />
 </div>
 
 
@@ -304,7 +391,7 @@ magnet:?xt=urn:btih:6A4C1513EC6ED65777AC33EAA22A7E60B1754E2E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96848.jpg" />
 </div>
 
 
@@ -332,7 +419,7 @@ magnet:?xt=urn:btih:664BC108EBA57CD20D074DDD928E879C354F5A61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96849.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ magnet:?xt=urn:btih:0F4A8308D6C8D9F701FAA4EABC56484832FBF6D7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96852.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ magnet:?xt=urn:btih:8634DF7C87A2E8222F40080DE35E57F78282C191
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96853.jpg" />
 </div>
 
 
@@ -416,7 +503,7 @@ magnet:?xt=urn:btih:F9120D928D95A8119062F6714F5CB2B4571BF44B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96854.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ magnet:?xt=urn:btih:A5878227D9B992BF28458484B40F95AAEC2B4E03
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96855.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96856.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96857.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96859.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96860.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96861.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96863.jpg" />
 </div>
 
 
@@ -626,89 +713,6 @@ magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468994   (96864) от 17.03.2012
-
-[Wallpapers] Nature Pictures №21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96864.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №21
-Название: Nature Pictures №21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469470   (96865) от 17.03.2012
-
-[Wallpapers] Nature Pictures №25
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96865.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469529   (96866) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 85
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96866.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 85
-Название: Desktop Wallpapers Pack 85
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2700х1800
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
 ```
 
 

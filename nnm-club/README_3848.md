@@ -1,3 +1,76 @@
+###  Публикация: 1695997   (119730) от 02.02.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчёл и не распространяется о своей прошлой жизни. Он дружит с пожилой соседкой миссис Паркер, у которой арендует сарай. Однажды миссис Паркер становится жертвой кибермошенников, которые похищают деньги со всех её счетов. Не в силах вынести такой удар, женщина сводит счёты с жизнью. Осознав, что закон в данной (   Читать дальше...   )Производство: США, Великобритания / Miramax, Cedar Park Entertainment, Punch Palace ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма Редгрейв и др.Перевод: Профессиональный двухголосый (ViruseProject | 18+)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH), ФранцузскиеПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21643F0EAC1A502AC988FC5C33C27ADEC61643CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696072   (119731) от 02.02.2024
+
+Тёща (2023) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Николаевна — волевая женщина и начальница ЖКХ, которая вполне довольна своей жизнью. Она хозяйка дома и на работе, полностью контролирует своего мужа Романа Павловича и оберегает дочь Варю. Единственный, кто не вписывается в её счастливую картину мира, — это зять Виктор, от которого на днях должна родить горячо любимая дочка. И вот однажды шквал взаимных претензий (   Читать дальше...   )Производство: Россия / Берг Саунд, Кинокомпания «Темп»Жанр: комедияРежиссер: Аскар УзабаевАктеры: Лариса Гузеева, Гарик Харламов, Настасья Самбурская, Александр Лыков, Марк Богатырев, Никита Тарасов, Анна Уколова, Толепберген Байсакалов, Жаныл Асанбекова, Ёла СанькоПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEB5D61752F4D80CC270F9CB9021DC1C4A6FEAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696084   (119732) от 02.02.2024
+
+Мастер и Маргарита (2023) CamRip [H.264/1080p] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_119732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 1930-х годов. Спектакль по пьесе автора о Понтии Пилате снимают с репертуара московского театра. Произведение запрещают на заседании Союза писателей. Отчаявшийся писатель случайно встречает и влюбляется в замужнюю Маргариту.
+Автор начинает новую книгу: в ней Москву будущего посещает Сатана, замаскированный под иностранного профессора. Дьявол вносит хаос в (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтезиРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Евгений Цыганов, Юлия Снигирь, Юрий Колокольников, Алексей Розин, Кеша, Полина Ауг, Евгений Князев, Данил Стеклов, Марат БашаровСубтитры: отсутствуютПродолжительность: 02:33:52Реклама: плавающий банер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695888   (119733) от 02.02.2024
 
 Пчеловод / The Beekeeper (2024) WEB-DLRip [H.264] [MVO]
@@ -6,7 +79,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119733.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:1E4B3AF12AA5800B1DA11EFD1874D0988C1EE425
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119734.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:F2197D3814100507CC9D90459798CD5209D64A87
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119735.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:26118DF4F960033C19A9F52CAEE8910CC73287C6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119736.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:764833FD74899A4D8052C6F251BE2A90CEC160C2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119737.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:16C157D1D6354E38A01A9ECD324159E20490F6BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119738.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:A9EB9EBEE8CAD60E38B058A11292B25E53CDD113
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119739.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:32353A9FDE09851680812A4BAB7B4465D7FAB620
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119740.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ magnet:?xt=urn:btih:0CA83730251497526FF1574A851966F13B3FB4E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119741.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:4D378D7D748C846F8D097F4BD2ADBBE643EB4446
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119742.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ magnet:?xt=urn:btih:B84EC07ECF1DB928D6F0D6645B1359A4EE91D227
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119743.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ magnet:?xt=urn:btih:192C9AEDA6A71DCE2506A818466336039EB2D95A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119744.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ magnet:?xt=urn:btih:531344BF698A259AC239E7C29FF8CDFC02A01D06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119745.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ magnet:?xt=urn:btih:9CA17C955DFC1E68EF437B18377B2ADA75B317CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119746.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ magnet:?xt=urn:btih:E0F731319976591FF8055552E9D2483C235259B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119747.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:E5C66A889F3BFF26DECBB8579836067155F3C614
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119748.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ PDF-XChange Editor Plus 10.2.1.385 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119749.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ magnet:?xt=urn:btih:989CF6FB811DB634D915BA07A1B8F9DF634E1C06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119750.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_119750.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ magnet:?xt=urn:btih:989CF6FB811DB634D915BA07A1B8F9DF634E1C06
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119751.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119752.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Vitriol - Suffer & Become (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119753.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119754.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:5C172E2172CD96EB96203B217DBDFBDECE5995E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119755.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_119755.jpg" />
 </div>
 
 
@@ -555,84 +628,6 @@ magnet:?xt=urn:btih:5C172E2172CD96EB96203B217DBDFBDECE5995E4
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696113   (119756) от 01.02.2024
-
-Hysteria - Heretic, Sadistic and sexual ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Perdition (A Path Through Nothingness)
-02. Vortex of confusion
-03. Heretic, sadistic, and sexual ecstasy
-04. My carnal desire(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421F8B1E5B70F8C8F753C78BDCA722D5D73FECAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696243   (119757) от 01.02.2024
-
-Преподобный Серафим Саровский | Избранные духовные наставления, утешения и пророчества (2022) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Серафим Саровский – великий подвижник Русской Православной Церкви, один из наиболее почитаемых святых, иеромонах Саровского монастыря, основатель и покровитель Дивеевской женской обители. Наследие Серафима Саровского – жемчужина духовной традиции Православия. Помимо наставлений, утешений и пророчеств в книгу также вошли отзывы о нем известных духовных (   Читать дальше...   )Жанр: ПравославиеИздательство: ЭксмоФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000E2B983D41617710826736A5FC565374626103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696161   (119758) от 01.02.2024
-
-Сергей Любавин - Волчонок (2002) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Макаров
-02 Брат вестовой
-03 Лебедь белая
-04 Ау(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510735B28989F0C31D2B1D88C6C707720EBD5EC7
 ```
 
 

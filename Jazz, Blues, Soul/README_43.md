@@ -6,7 +6,7 @@ Soultide - Midnight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70896.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nino Grandi - I've Been Waiting (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70899.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richard Montag - Blues Bird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70901.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70908.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70910.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70921.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Beans & Fatback - Hold Fast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70941.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70942.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70945.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Vargas Blues Band - Blues The Healer (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70952.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70958.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70985.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70989.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70991.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70992.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70993.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dana Fuchs - 7 Albums (2003 - 2022) [FLAC|Lossless|tracks + .cue|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71030.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71062.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71063.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71064.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71065.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dick Hyman & Mary Mayo - Moon Gas (1963) 2003, Vroom Sound Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71109.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Buddy Rich - The Legendary Buddy Rich (1988) Spectrum Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71111.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Dick Hyman - Cincinnati Fats (1981) 1987, Musical Heritage Society [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71112.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Dick Hyman - Solo At The Sacramento Jazz Festivals (1983 - 1988) 2017, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71113.jpg" />
 </div>
 
 

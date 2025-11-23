@@ -1,3 +1,103 @@
+###  Публикация: 1583188   (205957) от 13.10.2022
+
+Обои - Обои от Snake v 8.0 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_205957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для "рабочего стола" на различную тематику.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BB3D3FFC4142B4D4499A961AFF08AD79A6C1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582151   (206421) от 08.10.2022
+
+Картинки - Календарь на 2023 + сетка [PDF, JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь на 2023 год и календарная сетка (по месяцам)Формат: PDF, JPG, PNGРазрешение файлов: 4961х3508, 700х700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21AF049D8D73A5162DA6A93B3B2F2B01D44B390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581105   (206559) от 04.10.2022
+
+Картинки - Computer Desktop Wallpapers Collection vol. 1501-1800 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски из серии vol. 1501-1800
+Всем приятного просмотраФормат: JPGРазрешение файлов: 1680X1050-7680X4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7EC352020195F257A261082157A792E84C36DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614473   (206673) от 22.02.2023
+
+Картинки - World Nature Photography Awards 2022 [PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбраны лучшие фотографии природы 2022 года
+
+Жюри конкурса World Nature Photography Awards объявило список лауреатов прошлого года. Всего в соревновании было 14 категорий: «Животные в их среде обитания», «Портреты животных», «Поведение» (земноводные и рептилии, птицы, беспозвоночные, млекопитающие), «Растения и грибы», «Городская дикая природа», «Ландшафты и окружающая (   Читать дальше...   )Формат: PNGРазрешение файлов: 1277x1920 - 1920x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC22BD3B4DACD3B612E7F209D796B7850F0217F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613387   (207079) от 18.02.2023
 
 Картинки - Underwater Photographer of the Year 2023 [PNG]
@@ -6,7 +106,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207079.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207079.jpg" />
 </div>
 
 
@@ -33,7 +133,7 @@ magnet:?xt=urn:btih:36869569BD112C008C19711D053965272C94F7FE
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207195.jpg" />
 </div>
 
 
@@ -58,7 +158,7 @@ magnet:?xt=urn:btih:6255647CF35C0B428B2115F3D54611EC05DBD218
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207337.jpg" />
 </div>
 
 
@@ -82,7 +182,7 @@ magnet:?xt=urn:btih:6A4B5348EBA50D4BC0AC283E69901BD1698B6459
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207526.jpg" />
 </div>
 
 
@@ -107,7 +207,7 @@ magnet:?xt=urn:btih:4DBAD51F7AB67F47D7FF33EA19085269C6F608E7
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208559.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208559.jpg" />
 </div>
 
 
@@ -133,7 +233,7 @@ magnet:?xt=urn:btih:FE1FDD40D9CFDB6BAA15C28A5D66F46208686E79
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209407.jpg" />
 </div>
 
 
@@ -159,7 +259,7 @@ magnet:?xt=urn:btih:4363E7866CB9A6B942F78BFAFD145F382F73E348
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209559.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209559.jpg" />
 </div>
 
 
@@ -183,7 +283,7 @@ magnet:?xt=urn:btih:8841ED4C3542090F562AE131F7AF14B415FE82CF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209564.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209564.jpg" />
 </div>
 
 
@@ -207,7 +307,7 @@ magnet:?xt=urn:btih:8F6A6936CFF025674D97DE30BFDC82E2ECA3E18C
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209575.jpg" />
 </div>
 
 
@@ -231,7 +331,7 @@ magnet:?xt=urn:btih:11159BBDE28A0AD149B2F728E6683A01D875A9B1
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209582.jpg" />
 </div>
 
 
@@ -255,7 +355,7 @@ magnet:?xt=urn:btih:566837EF9B6AAF6050EDD08DB9D75327E6562631
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209595.jpg" />
 </div>
 
 
@@ -279,7 +379,7 @@ magnet:?xt=urn:btih:CD6BD6FCCE0A39073CB0BC96A3C7C128CD38B9A0
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209599.jpg" />
 </div>
 
 
@@ -303,7 +403,7 @@ magnet:?xt=urn:btih:763A214FE10DA512074D635056520B8D10069FAF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209606.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209606.jpg" />
 </div>
 
 
@@ -327,7 +427,7 @@ magnet:?xt=urn:btih:2136657C4716998A3F484FDD1A7DC28771A0CCCD
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209612.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209612.jpg" />
 </div>
 
 
@@ -351,7 +451,7 @@ magnet:?xt=urn:btih:E660F5234650CD65568A057103CDAE030ADDB8B2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209616.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209616.jpg" />
 </div>
 
 
@@ -375,7 +475,7 @@ magnet:?xt=urn:btih:FECDC971DC4F4475E27F5796D53AC4D10109D287
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209622.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209622.jpg" />
 </div>
 
 
@@ -399,7 +499,7 @@ magnet:?xt=urn:btih:E4B6B16824BF80504B43B59FCACFE8AF495BC6D6
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209625.jpg" />
 </div>
 
 
@@ -423,7 +523,7 @@ magnet:?xt=urn:btih:5A4405FBC134A263F43B4B897A4207C9E869DF30
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209632.jpg" />
 </div>
 
 
@@ -447,7 +547,7 @@ magnet:?xt=urn:btih:37520B6CEB89826291A3632DD438543828F39D0E
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209646.jpg" />
 </div>
 
 
@@ -472,7 +572,7 @@ magnet:?xt=urn:btih:A20F3F27F7C9C4D4B3CCA271E0C779DA9816CCA8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209647.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209647.jpg" />
 </div>
 
 
@@ -496,7 +596,7 @@ magnet:?xt=urn:btih:BD83BF3B9CCA8BD8C421EB4278B3D02C0BD1D524
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209662.jpg" />
 </div>
 
 
@@ -520,7 +620,7 @@ magnet:?xt=urn:btih:8B0E7B7601AE090782483BDBB5F1F1A69281C320
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209664.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209664.jpg" />
 </div>
 
 
@@ -531,102 +631,6 @@ magnet:?xt=urn:btih:8B0E7B7601AE090782483BDBB5F1F1A69281C320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD4669DDB5507348B36CD6FCC9FBD632673C53E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604847   (209677) от 18.01.2023
-
-Фотография - ArtStation - Grafit Studio - 430+ Naughty Santa Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хо-хо-хо! Тебе было хорошо в этом году? Мы рады представить этот праздничный набор, вдохновленный персонажем Санты. Эта съемка была сделана с одним из наших любимых мужчин-моделей, который идеально подходит на эту роль! Будьте готовы избавиться от осенней хандры — мир вот-вот засияет. Наслаждайтесь множеством динамичных поз, ярких эмоций, различных настроек освещения, (   Читать дальше...   )Формат: JPGРазрешение файлов: 1675x2793 - 5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD81940E350E656C5B279100B87676130523DAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604837   (209728) от 17.01.2023
-
-Фотография - ArtStation - Grafit Studio - 450+ Epic Ancient Warrior Pose Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш новый справочный пакет включает в себя более 450 изображений поз, идеально подходящих для рисования фигур, исследований, фотобэшинга и иллюстрации поз.Формат: JPGРазрешение файлов: 2000x3008 - 3008x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9762E82C6661F9161DCEA98D1557D174226807F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604397   (209738) от 17.01.2023
-
-Фотография - ArtStation - Grafit Studio - 330+ Male Character Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор включает в себя более 330 эталонных изображений высокого разрешения с изображением мужского персонажа — он включает в себя динамические и статические позы, а также позы, снятые с помощью вращающейся платформы с разных ракурсов. Позы включают стояние, прыжки, сидение, бег и многое другое! Это будет полезный инструмент для создания дизайна персонажей, иллюстраций, (   Читать дальше...   )Формат: JPGРазрешение файлов: 1509x2385 - 5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83B7051AA6A5517EC65BA72843E365D9E485852
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604846   (209769) от 17.01.2023
-
-Фотография - ArtStation - Grafit Studio - 320+ Swedish Soldier Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет содержит более 320 эталонных изображений в высоком разрешении со шведским всадником XVII века. Пакет включает в себя динамические боевые позы, крупные планы деталей костюма, различные позы для рисования персонажей и многое другое! Это будет отличный набор для любого художника, работающего над исторической иллюстрацией, концепт-артом, изучением материалов/текстур (   Читать дальше...   )Формат: JPGРазрешение файлов: 2269x3404 - 5466x3631
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB54F6F2EF388E358335268C0F23268BFBE1D65
 ```
 
 

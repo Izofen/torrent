@@ -6,7 +6,7 @@ VA - Rock Motivation (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38896.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Rock songs para mawala ang sama ng loob (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38898.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vola - Friend Of A Phantom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38904.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Europica - Part One (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38907.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - BEST OF ROCK MUSIC IN 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38924.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Iron Wyrm - Necromancer’s Grimoire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38971.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3 x CD [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38980.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Black Moon June - The Witch Hammer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lay Of The Autumn - Of Love And Sorrow (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39184.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Grandma's Smuzi - 28 Singles (2020-2024) [MP3|320 kbps] <Metal Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39229.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Autumn's Grief - Dead Among The Living (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39266.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ HELVEGEN - Горизонт событий (2024) [MP3|320 Kbps] <Folk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39276.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Cats In Space - Time Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39278.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mindless Sinner - Metal Merchants (2024) [FLAC|Lossless|WEB-DL|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39283.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Pounder - Thunderforged (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39284.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Whitesnake - Into the Light: The Solo Albums (2024) Reissue, Remastered, Remix, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39292.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Best Rock Songs for Aerobic Workout (Fitness Version) (2017) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39307.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:AAFD1B24F5510085AAC6D97EA154528D8D85C682
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39317.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Kiko Loureiro - Theory of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39365.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39368.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39456.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Desert - Fortune Favors The Brave (2019) [WavPack|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39458.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Visionatica - Enigma Fire (2019) [WavPack|Lossless|image + .cue] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39459.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Leathermask - Lithic (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39460.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Dawn Of Destiny - The Beast Inside (2019) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39462.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Typhonian - The Gate of the Veiled Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39463.jpg" />
 </div>
 
 

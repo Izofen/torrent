@@ -6,7 +6,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9356CF113E737D20A32AC6C1FE44560BD5EAF71
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3E0009801EED14C1AE8F03EA9D9DB1D9C273BAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29033.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8C68D7B7B7A1889002521EBE65B57ECB9C710B58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29034.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9FE27A65A493ADE8175DA0B9355630259EA2C845
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29035.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:309007AD8F2EB0290882E1764A7875C8A0965559
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29036.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29036.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4A42F72FBD2563747139D2A9D12B39D7B90B9F66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29037.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1393F8C3923EBF87CCC79FC613CB2511DDF85F57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29038.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:90FB650BEBA362D93533DDF28F3FA8C47C15DD0B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29039.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:728C844CFD2163B371FA69EA7135AD8F214E4699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29040.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:99C7BF282AAC818C4F9791EE11D8CBCDDAD2F554
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29041.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:ED5241E605B41630E02E9C4520756000410563F0
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29042.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:41E6E2C8BEC87350ADB5D809AB4975947CD27158
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29043.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29043.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:4015494A448C53ADC464DE2FD18F6DD9B988F9A1
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29044.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:DE8ED0085879FE8681465CDDA35849D0D2780616
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29045.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:35CDF37768EFC93D2B6EB1514DE8977744BE4D15
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29046.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:090947182D03A36939FE673C40531ACC42F7F2BC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29047.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9886DCE46EB7D4CC9E02D4D12F2CEC3809F2880B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29048.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:AC7D681F11A6F0D34EE8668B30567A62CB614126
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29049.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29050.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:219960B356BAE0392334AF57289691A0F13C897A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29051.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:219960B356BAE0392334AF57289691A0F13C897A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29052.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:CD9051E3448F333A18E833191D483DC8DB2BCB28
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29053.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:4D1938538E7B96C830E2436BE67B50889473A032
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29054.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8A9F09C3669EDA0D8D0E7A24A31A042D50EBDCEA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29055.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:8A9F09C3669EDA0D8D0E7A24A31A042D50EBDCEA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29056.jpg" />
 </div>
 
 

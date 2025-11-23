@@ -6,7 +6,7 @@ Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62763.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:64F49E2FC2923BC50B77457FDAD50E808BE7081C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62882.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:83EF468FF5E1860E40E5FDC928DEA184BA0A60F7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63702.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:292D6022D06C1E5415163E1351B3DE3CDB684713
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64922.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64983.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:48806530141A8BAE7F4262E5370601FE0B6C2F68
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64987.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Oleg Stalker - Star Wanderer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65032.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65043.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C8CFAC92ED1DE033EB0D2A6D335DB9847EF59FAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65207.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65303.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rusty Sharks - Long Way to Freedom (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabi
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65434.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bosphorus Night - Heart Of Your World (2025) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65453.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nosłeep - Trauma (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Blackened Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65472.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:904A170A067861FDA44F93A8008A03808AA20734
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65504.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0FE46F6E006503706E84453F7A9696372AE304D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65505.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65545.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65784.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:1429558B2B60F332FD1EDAADF462A7E80C98B0BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66121.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:038925DA8FBFED3B0284773EDD2A2C5DC58761C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66164.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Shadow Host - Chaos Unleashed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66461.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:669DED58A86D9C4509DCE051F014589E44AB5F07
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66719.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:DD9F5226B1752418A7B18D2C591B088D6FBB9740
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67897.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Arida Vortex - Wild Beast Show (2016) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68095.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Arida Vortex - Hail to Rock (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68118.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Otto Dix - Классика (2025) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, New 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68161.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:6DC232F87646F04C4C24B38D12F7D4EA1E366439
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68529.jpg" />
 </div>
 
 

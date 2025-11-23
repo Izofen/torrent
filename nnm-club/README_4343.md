@@ -1,3 +1,79 @@
+###  Публикация: 593923   (133782) от 25.12.2012
+
+Козёл отпущения / The Scapegoat (2012) [H.264] HDTVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133782.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в 1952 году, когда Англия готовится к коронации. «Козёл отпущения» рассказывает историю двух очень разных людей, у которых есть кое-что общее — лицо.
+
+В одном из лондонских пабов совершенно случайно встречаются аристократ, владелец стекольного завода Джонни Спэнс и потерявший работу учитель Джон Стэндинг. Возможно, обоюдного интереса никогда бы не возникло, если бы не одно поразительное обстоятельство - они похожи друг на друга, словно близнецы! Аристократу, уставшему от рутины руководства заводом и презирающего бесконечных своих родственников, захотелось хлебнуть свободы. И он делает всё, что бы следующее похмельное утро поменяло их местами. Никто даже подумать не мог, к каким последствиям приведет эта подмена! Экранизация классического одноименного романа Дафны дю Морье.Жанр: ДрамаРежиссер: Чарльз СтарриджАктеры: Эндрю Скотт, Шеридан Смит, Джоди Мэй, Мэттью Риз, Айлин Эткинс, Фиби Николлс, Энтон Лессер, Пип Торренс, Сильви Тестю, Джулиан УэдэмПеревод: Профессиональный (многоголосый, закадровый) - BaibaKoОзвучка: Алексей Кузнецов, Ольга Мотрич, Лира Грим и Владимир КурдовПродолжительность: 01:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2936AE31E956F953E9E766F1B8DAA689E2672468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680827   (133783) от 30.11.2023
+
+Токийские айдолы / Tokyo Idols (2017) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование такого явления поп-культуры Японии как айдолы. Почему девочки хотят стать айдолами, как к ним относятся обычные люди, и через что приходится пройти претендентке на это звание.Производство: Великобритания, Канада, Япония, Brakeless and EyeSteelFilmЖанр: документальный, история, музыкаРежиссер: Кёко МиякэУчастники: Рио Хиираги, Юзуха Ода, Масаеси СакаиПеревод: многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADEAC1A4E57F823B72B0E2A5C2FFC5DB2D52AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680754   (133785) от 30.11.2023
+
+Сообщество декораторов «Красочный лагерь», Настя Диордица, Саша Мершиев | Грунты (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тему этой смены нам нашептала сама осень — сочетание цветов горчичного и зеленого. Спорим, у вас уже в голове начали рождаться идеи следующей перекраски, и вы уже решаете, какой предмет будет кандидатом на переделку.
+
+Но это еще не все. Самый главный элемент в покраске — это грунт. И чтобы подобрать подходящий, который идеально ляжет на ваши предметы, мы протестируем (   Читать дальше...   )Производство: Сообщество декораторов «Красочный лагерь»Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:34:11Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DFA506808F2492F858EC312E6974611DFCDB7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592743   (133786) от 25.12.2012
 
 Мультфильмы Текса Эйвери. Полная коллекция Metro Goldwyn Mayer / Tex Avery. The Complete MGM Collection (1942-1957) DVDRip
@@ -6,7 +82,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133786.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:57999C5AA4870C08B72BBD8B448F4D4673169C4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133787.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:57999C5AA4870C08B72BBD8B448F4D4673169C4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133788.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:47C2202B7184F828E1C4A15F90667AB3FEA0A841
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133789.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ magnet:?xt=urn:btih:79BB7C7D71A6EFC5C35A3F68161EEE91E983954B
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133790.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ Cobra Spell - 666 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133791.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ Ultra GPS Logger 3.194u Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133793.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133794.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133795.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133796.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ Affinity Designer 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133797.jpg" />
 </div>
 
 
@@ -276,7 +352,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133798.jpg" />
 </div>
 
 
@@ -305,7 +381,7 @@ magnet:?xt=urn:btih:7F20EAB0F8E330A92FE083A567971758398A5D6F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133799.jpg" />
 </div>
 
 
@@ -330,7 +406,7 @@ magnet:?xt=urn:btih:7A32E8E6531B1A6AE0B0909D9E20A65403AE9CD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133800.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ magnet:?xt=urn:btih:C093DCC9FC29C582ED31D2745D340A93B3918FB4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133801.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ ProDAD Mercalli V2 Stand Alone (SAL) 2.1.4700 + Plugin 2.0.105.1 RePack by PooSh
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133802.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ Mercalli - интуитивный и простой инструмент для 
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133803.jpg" />
 </div>
 
 
@@ -426,7 +502,7 @@ magnet:?xt=urn:btih:CC058A3584AAC23E9373B689A734211A828E98CC
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133804.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ magnet:?xt=urn:btih:C58D6B01DAE609B48F2C02A39CC17FAB1D349C2D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133806.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ magnet:?xt=urn:btih:4A82D3E252511B8CD2A1EE8D838E8FEC1945EF55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133807.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ Lark Player - YouTube Music & Audio Player 5.65.10 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133808.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ Directory Opus 10.2.0.0.4645 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133809.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ Glary Disk Cleaner 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133810.jpg" />
 </div>
 
 
@@ -561,80 +637,6 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5057D5BF37306BA638122613BD23F83FB9A1C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594216   (133811) от 25.12.2012
-
-Contre Jour [Игра] (Android)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам игру Contre Jour, где Вам предстоит отправиться в необыкновенный мир, причудливо взаимодействует свет и тьму. Управление очень простое и интуитивное. Вы можете одним пальцем трансформировать пейзаж, которое приводит таинственное существо в безопасность. Хитрая головоломка не оставит Вас равнодушным! Это одна из наикрасивейших игр года.
-
-В игре множество особенностей: 5 глав, которые показывают 100 уникальных уровней, бесконечные часы увлекательной игры, потрясающая визуализация, Вы можете осваивать 12 элементов: рогатки, порталы, воздуходувки, щупальца и многое другое, потрясающий саундтрек идеально подходит для необычного путешествия этого существа по имени Petit, откройте различные, столь увлекательные достижения.Android версии 2.2 и выше
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680867   (133812) от 30.11.2023
-
-Chromium 119.0.6045.200 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD8A71F200CF83BCAB397434FF05328654C7332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594462   (133813) от 25.12.2012
-
-Kaspersky CRYSTAL 13.0.2.558 RC [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky CRYSTAL обеспечивает защиту "все-в-одном" для вашего компьютера и важной информации с помощью необходимых компонентов: комплексный антивирус, веб-защита, персональный фаервол, резервное копирование данных и родительский контроль. Дополнительные инструменты безопасности (диск восстановления, безвозвратное удаление данных, удаление следов активности и др.), Безопасная среда "песочница", шифрование данных и менеджер паролей обеспечивают дополнительный уровень защиты компьютера и информации.Название программы: Kaspersky CRYSTALЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

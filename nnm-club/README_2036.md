@@ -6,7 +6,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53302.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Icecream PDF Editor Pro 3.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53303.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53304.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:72AEF73450300653A3981C58A072823A2CDA6DFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53305.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:49E73448C482CF5262917AEF156FEBFA9B94D1E7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53306.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53307.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F4092C3ECFFA6B8F60171ED1E159360F947DA92A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53308.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ meteoblue weather & maps Cirrus Uncinus 2.7.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53309.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Tablacus Explorer 24.6.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53310.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:19A8623CEE34F7A7CF545AEE9122B15783D0A333
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53311.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9741B5081656E9A9C904078CB872AF97AAE7146D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53312.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:AF94C7BE1768641190A47354C6A017E2C74FD1AE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53313.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Terra Glitch - You Will Be Replaced (2024) [MP3|320 Kbps] <Dark Electro>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53314.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Zig Zag - Zig Zag (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53315.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Chromium 126.0.6478.57 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53316.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Soft Organizer Pro 9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53317.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:4F9C0B02C733FB186268587D61223762736FDB5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53318.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:4F9C0B02C733FB186268587D61223762736FDB5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53319.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D7C315569A08C6BC6A42D2DC6A182902D93D172A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53320.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ kiloHearts Subscription 2.2.4 VST/VSTi, VST3/VSTi3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53321.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C0128957D0A945DD0D0687CFACF07247090CAEAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53322.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:693BF29B54E66A91888A4112B0A64B4ECBA319BC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53323.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Sumatra PDF 3.6.16355 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53324.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:21A03230DBF20722D90AD205E84D7416E25504B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53325.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:7686B5B855648F62A62175A2F1AF98376BC9E717
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53326.jpg" />
 </div>
 
 

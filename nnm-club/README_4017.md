@@ -1,3 +1,76 @@
+###  Публикация: 1655819   (124124) от 06.01.2024
+
+След (2023) SATRip (серии 2972-3084)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальных преступлений не бывает. После каждого остаются следы. Иногда эти следы бросаются в глаза. Иногда их можно найти только с помощью специальных приборов. Федеральная Экспертная служба - это уникальная лаборатория, которая объединяет несколько экспертных служб в одну и отвечает за проведение исследований во всех мыслимых областях прикладной криминалистики, (   Читать дальше...   )Производство: Россия | "Объединение телевизионных компаний"Жанр: Криминал, детективРежиссер: Юрий Харнас, Игорь Ромащенко, Камиль ЗакировАктеры: Ольга Копосова, Павел Шуваев, Руслан Сасин, Станислав Эрклиевский, Александра Соботковская, Георгий Тесля-Герасимов, Евгений Кулаков, Сергей Пиоро, Владимир Ташлыков, Ольга ЗейгерПродолжительность: ~00:37:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A751D102EB9BD2F51A776FC94B307D5115767F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690348   (124125) от 06.01.2024
+
+Вадим Сайфутдинов | Chat GPT и 1С (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124125.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChatGPT (от англ. Generative Pre-trained Transformer «генеративный предварительно обученный трансформер») — чат-бот с генеративным искусственным интеллектом, разработанный компанией OpenAI и способный работать в диалоговом режиме, поддерживающий запросы на естественных языках.
+Пошаговая система обученияЖанр: Обучающий миникурсЯзык озвучки: РусскийПродолжительность: 01:21:42Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864586A3AB5FB7EE7FD9474BE3134DBE3505F35D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690287   (124126) от 06.01.2024
+
+Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будьте готовы поднять свою творческую карьеру на новый уровень с анимацией логотипа! Привет, я Валерий, я профессиональный моушн-дизайнер и инструктор по лучшему программному обеспечению для анимированной графики — Adobe After Effects. После того, как я в течение многих лет делился ценным контентом в социальных сетях и провел три успешных курса, я очень рад представить (   Читать дальше...   )Производство: UdemyЖанр: Моушен дизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 06:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EED55D00C566885B968F2A646450F06CDE17C75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690271   (124127) от 06.01.2024
 
 Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
@@ -6,7 +79,7 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124127.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:23388584C03FF6B2B802CCA05A5ABA9D84E5A93F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124128.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124128.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:23388584C03FF6B2B802CCA05A5ABA9D84E5A93F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124129.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:11B84F94304D5ABD4841ECCCB1853CE271890F34
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124130.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:998F7F3CC3E96D545AF89CE6A438C0792AEE1712
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124131.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124131.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.49.3.2s/dlc) Repack Other s
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124132.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:D9AF640F3D155B993165E2BF4C99CBB2EBF821C1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124133.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ Windows 10 Pro 22H2 19045.3803 x64 by SanLex [Lightweight] [Ru/En] (2024.01.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124134.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:E19708C585EB98AE32946DB879E3628918B24E8D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124135.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ magnet:?xt=urn:btih:7CF3F620E2A87984816AAFB5E7FC4C3312013F7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124136.jpg" />
 </div>
 
 
@@ -246,7 +319,7 @@ magnet:?xt=urn:btih:3DB7FFAA68B0E61145462772FED12A1CF772B650
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124137.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ magnet:?xt=urn:btih:F12AD4926351A2892626917DE85E9E798720919E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124138.jpg" />
 </div>
 
 
@@ -294,7 +367,7 @@ magnet:?xt=urn:btih:A6A6B76F731C1B62AA419B8CBDE2628A25628667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124139.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ magnet:?xt=urn:btih:82D261BB1D2D38B07A11D7A43EEBD0FF906814E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124140.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ magnet:?xt=urn:btih:99B30E53A63FE74E7C89C7B88EEC9F7FD026C3B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124141.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ magnet:?xt=urn:btih:8E47412813BA79AE491408C1CA0886F6A2D809B9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124142.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ magnet:?xt=urn:btih:47BA1E00FECEE606F1A750A1A79C71199655DF42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124143.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124144.jpg" />
 </div>
 
 
@@ -440,7 +513,7 @@ magnet:?xt=urn:btih:D9F4533402EE55340FE52E643A9E43E0183DBC97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124145.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ magnet:?xt=urn:btih:5D460930ADEEB83AB758437237992BD5A8C289BD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124146.jpg" />
 </div>
 
 
@@ -488,7 +561,7 @@ magnet:?xt=urn:btih:E9ED2D103320ADEBA9113D30533B42E29D9F66D2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124147.jpg" />
 </div>
 
 
@@ -512,7 +585,7 @@ magnet:?xt=urn:btih:91F2385333F6E0E4EB11B59211E740B6D7A32261
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124148.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:2E0C9B6133908E8AA364F09684A2505A62EC9E61
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124149.jpg" />
 </div>
 
 
@@ -549,81 +622,6 @@ magnet:?xt=urn:btih:2E0C9B6133908E8AA364F09684A2505A62EC9E61
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDCEC3D71B7B634A779580FE4F333F7E53D18DD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690143   (124150) от 06.01.2024
-
-Побег из курятника 2 / Chicken Run: Dawn of the Nugget (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, Франция / Aardman Animations, Netflix Animation, PatheЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллАктеры: Тандиве Ньютон, Закари Ливай, Белла Рэмзи, Имелда Стонтон, Линн Фергюсон, Дэвид Брэдли, Джейн Хоррокс, Рамеш Ранганатхан, Дэниэл Мейс, Джози Седжвик-ДэвисПеревод: Дублированный (Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEEA2779D895588071237463D6350D58A4EB7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690359   (124151) от 06.01.2024
-
-Ломая бесконечность / Breaking Infinity (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиам — научный исследователь, который застрял во времени. По мере того, как его прыжки во времени становятся все более экстремальными, его направляет в будущее таинственный старик, где он становится свидетелем конца света, который он, возможно, вызвал.Производство: Великобритания / Elli Films, Mind Engagement Productions, Unfolding EntertainmentЖанр: Фантастика, триллерРежиссер: Марианна ДинАктеры: Джонни Филлипс, Нил Бишоп, Мартин Бишоп, Зед Джозеф, Симона Макинтайр, Зои Каннингэм, Марсия Лекки, Reece Culver, Tope Laguda, Alexis CaneПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:30Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4537DD2DFAF6E76524F91C55F179E96550AF6EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689917   (124152) от 05.01.2024
-
-Militia - Fiend of Misery (2010) Compilation [FLAC|Lossless|image + .cue] <Thrash, Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Awakening
-02.Fiend of Misery
-03.Blind Breeding the Blind
-04.Suspended Animation(   Читать дальше...   )Жанр: Thrash, Heavy, Power MetalПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69004F4D11C8DA9C57857D8192947ADC9F1361B8
 ```
 
 

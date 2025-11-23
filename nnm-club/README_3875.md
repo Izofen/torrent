@@ -1,3 +1,84 @@
+###  Публикация: 1695347   (120432) от 28.01.2024
+
+Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Fat Nothing (6:08)
+02. Empire In Ruins (5:22)
+03. Argentinian Shoes (4:03)
+04. Lament From A Reservoir (4:51)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695335   (120433) от 28.01.2024
+
+Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucille (3:23)
+02. Can't Always Get What You Want (4:50)
+03. Hoodoo Party (2:40)
+04. Hound Dog (4:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695124   (120434) от 28.01.2024
+
+Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangled Up (Yarin & Richwood Remix) [00:03:34]
+02. Tangled Up (Yarin & Richwood Remix) (Yarin & Richwood (Extended Version)) [00:04:36]
+03. Tangled Up (Lokee Remix) [00:03:25]
+04. Tangled Up (Kahedi Remix) [00:03:04](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695324   (120435) от 28.01.2024
 
 Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
@@ -6,7 +87,7 @@ Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120435.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:4C6802EC24139D4C8817B5B5C20B82B96B322B90
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120436.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ magnet:?xt=urn:btih:36E14B9B6230B33439961B810B852FDD574FF75C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120437.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:037E1D84890278443BA964C73E000F37D0C45A48
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120438.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:0FD48B7543D71C5BBF0DEB9243748FF39F0227D7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120439.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:40B80B8EA2102D7E38AA0110CD0E3FFBDD5F8160
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120440.jpg" />
 </div>
 
 
@@ -157,7 +238,7 @@ magnet:?xt=urn:btih:9B59A1E22F5B6E0860E481C3722C711DF3D028F3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120441.jpg" />
 </div>
 
 
@@ -182,7 +263,7 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120442.jpg" />
 </div>
 
 
@@ -209,7 +290,7 @@ magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120443.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ magnet:?xt=urn:btih:8E4BE32C2B5D2C741E127782BA90006CB4C9A9E3
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120444.jpg" />
 </div>
 
 
@@ -260,7 +341,7 @@ magnet:?xt=urn:btih:6AE4D54A446605D6E052693987F025B71DE35349
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120445.jpg" />
 </div>
 
 
@@ -284,7 +365,7 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120446.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120447.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ magnet:?xt=urn:btih:D337C9FD8FBD4B4173AD83F9807761045B8F7FEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120448.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120449.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120450.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120451.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Savaged - Night Stealer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120452.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120453.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120454.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Opera GX 106.0.4998.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120455.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ magnet:?xt=urn:btih:BAD71ED6A45B76C9F66E3A15E9052F2B2942672D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120456.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ magnet:?xt=urn:btih:1942EFE01D737497B6DBA3C6663C5C19F4FB08D2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120457.jpg" />
 </div>
 
 
@@ -583,83 +664,6 @@ magnet:?xt=urn:btih:1942EFE01D737497B6DBA3C6663C5C19F4FB08D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901629C5850A1F7727550588F476C46B1EC86BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695259   (120458) от 28.01.2024
-
-Миграция / Migration (2023) WEB-DL [H.265/2160p] [SDR, 10-bit] [UKR, EN / EN Sub] [Line]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Дэксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
-После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиАктеры: Кумэйл Нанджиани, Треси Газаль, Элизабет Бэнкс, Каспар Дженнингс, Изабела Мерсед, Дэнни ДеВито, Кэрол Кейн, Аквафина, Кигэн-Майкл Ки, Дэвид МитчеллПеревод: Дублированный (укр. Line)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB163942816B700825569A60E3539722A9706C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694961   (120459) от 28.01.2024
-
-Cosmonaut & Satellites (Космонавт и спутники) -  Наверх  (2010) [FLAC|Lossless|tracks + .cue] <Progressive Trance, Progressive House, Breaks>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmonaut & Satellites - Way Up Intro (0:59)
-02. Stripe, Poroxx, Cosmonaut - Laya (Cosmonaut Remix) (4:15)
-03. Ricky Stone - Shanghai Taxi (Cosmonaut Resmash) (3:45)
-04.Жанр: Progressive Trance, Progressive House, BreaksПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2601F278C480CFE5D12C3C6A1B0A8BCF2DEC6E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695311   (120460) от 28.01.2024
-
-MusicBrainz Picard 2.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120460.jpg" />
-</div>
-
-
-###  Подробнее
-
-MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
-Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6E4AA479F029C7937A8D364FE939E76D82A268
 ```
 
 

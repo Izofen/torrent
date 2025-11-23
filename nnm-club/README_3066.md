@@ -1,3 +1,88 @@
+###  Публикация: 470155   (97213) от 19.03.2012
+
+[Wallpapers] Best Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97213.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 2
+Название: Best Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470258   (97214) от 19.03.2012
+
+[Wallpapers] Nature Wallpaper (18.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470458   (97215) от 19.03.2012
+
+VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adrew - Super Girl (Extended Version) (4:48)
+2. Alexander Popov - When The Sun (Radio Edit) (3:02)
+3. Alisandra &ampamp; Vernandi - Angel (Radio Edit) (3:42)
+4. Allexinno Starchild - Senorita (Sagi Abitbul Remix) (4:30)
+5. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
+6. Amsterdam Crew - Your Life In My Life (Radio Edit) (3:11)
+7. Andreea Ignat - Phantom Lover (Radio Edit) (3:32)
+8. Boier Bibescu vs Luigi Ionescu - Lalele (Rework 2012) (5:20)
+9. Chris Thrace - Uh Girl (feat. Glorya) (Extended Version) (5:06)
+10. Da Fleiva - Get Out (Of My Mind) feat. Intempo (Extended Mix) (5:15)2012Жанр: Pop,DanceПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470169   (97219) от 19.03.2012
 
 [Wallpapers] Best Wallpapers Pack 5
@@ -6,7 +91,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97219.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97220.jpg" />
 </div>
 
 
@@ -67,7 +152,7 @@ magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97222.jpg" />
 </div>
 
 
@@ -91,7 +176,7 @@ magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97223.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97225.jpg" />
 </div>
 
 
@@ -152,7 +237,7 @@ VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97226.jpg" />
 </div>
 
 
@@ -185,7 +270,7 @@ VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97227.jpg" />
 </div>
 
 
@@ -218,7 +303,7 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97229.jpg" />
 </div>
 
 
@@ -251,7 +336,7 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
@@ -277,7 +362,7 @@ magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
@@ -305,7 +390,7 @@ magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
@@ -333,7 +418,7 @@ VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97238.jpg" />
 </div>
 
 
@@ -366,7 +451,7 @@ Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97240.jpg" />
 </div>
 
 
@@ -399,7 +484,7 @@ VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97241.jpg" />
 </div>
 
 
@@ -432,7 +517,7 @@ VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97243.jpg" />
 </div>
 
 
@@ -462,7 +547,7 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97244.jpg" />
 </div>
 
 
@@ -495,7 +580,7 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
@@ -528,7 +613,7 @@ magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97250.jpg" />
 </div>
 
 
@@ -556,7 +641,7 @@ magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97251.jpg" />
 </div>
 
 
@@ -580,7 +665,7 @@ magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97252.jpg" />
 </div>
 
 
@@ -604,7 +689,7 @@ Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97253.jpg" />
 </div>
 
 
@@ -637,7 +722,7 @@ magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97255.jpg" />
 </div>
 
 
@@ -661,7 +746,7 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97256.jpg" />
 </div>
 
 
@@ -672,86 +757,6 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470985   (97258) от 20.03.2012
-
-[Wallpapers] Nature Pictures №31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №31
-Название: Nature Pictures №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471067   (97259) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97259.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 4
-Название: HD Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470715   (97261) от 20.03.2012
-
-[Wallpapers] Nature Desktop Wallpapers (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```
 
 

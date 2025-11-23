@@ -1,3 +1,80 @@
+###  Публикация: 1693700   (121342) от 23.01.2024
+
+Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Box Set 6 CD [OGG Vorbis|480 Kbps] <Pop, Classical, Folk, World>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Giu' La Testa (From Giu' La Testa)
+02.  Metti una Sera a Cena (From Metti una Sera a Cena)
+03.  La Califfa (From La Califfa)
+04.  Per Qualche Dollaro in Piu' (From Per Qualche Dollaro in Piu')(   Читать дальше...   )Жанр: Pop, Classical, Folk, WorldПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0340B081356DF818BADE175C6ED6C24BAEB0EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694148   (121343) от 23.01.2024
+
+Ренат Валеев | Искусство трейдинга. Практические рекомендации для трейдеров с опытом (2019) [MP3, Виктор Бабков]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена позиционному трейдингу и ориентирована на трейдеров с опытом практической работы не менее года. Акцент сделан на методах управления капиталом и психологии трейдинга, так как именно эти составляющие определяют долгосрочный успех. Автор книги Ренат Валеев имеет более чем 10-летний опыт работы на финансовых рынках, из которых пять лет был трейдером в (   Читать дальше...   )Жанр: трейдингИздательство: Альпина ДиджиталПродолжительность: 08:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F632FA88EA56F19AE93171464B92068613C6E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694167   (121344) от 23.01.2024
+
+Влад Поляков | Конфедерат (Книга 1) (2024) [MP3, Mortem Populo]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Конфедерат».
+
+Виктор, русский человек, промышляющий составлением аналитических докладов для корпораций и частный военных компаний, никогда не собирался оказаться в США. И в США середины XIX века тоже. Но случилось так, что, попав в переделку в бандитском квартале Детройта, защищая спутницу, он получил пару пуль и умер... С оружием в руках и последней (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 12:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BD5E28D3AE2C5AE2B1E8B21B1A4145471A92E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694139   (121345) от 23.01.2024
 
 Проклятые воды / Night Swim (2024) WEBRip [H.264] [UKR звук с ТS] [AD]
@@ -6,7 +83,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121345.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Araxis Merge Pro 2024.5981 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121346.jpg" />
 </div>
 
 
@@ -55,7 +132,7 @@ Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121347.jpg" />
 </div>
 
 
@@ -79,7 +156,7 @@ magnet:?xt=urn:btih:E3AC6E3F960C1E297249DBCF90C578546631E9AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121348.jpg" />
 </div>
 
 
@@ -103,7 +180,7 @@ Around the World 2: Travel to Canada / Вокруг света 2: Путешес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121349.jpg" />
 </div>
 
 
@@ -127,7 +204,7 @@ TreeSize Professional 9.1.0.1868 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121350.jpg" />
 </div>
 
 
@@ -151,7 +228,7 @@ Absolute Uninstaller 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121351.jpg" />
 </div>
 
 
@@ -175,7 +252,7 @@ magnet:?xt=urn:btih:9DEE6050C68347E04654B84D6BDC227E9BB41A73
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121352.jpg" />
 </div>
 
 
@@ -199,7 +276,7 @@ Lunar Pro for Mac 6.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121353.jpg" />
 </div>
 
 
@@ -223,7 +300,7 @@ magnet:?xt=urn:btih:4B188CD3D19D0664204B1A28C6406E653FC6DE72
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121354.jpg" />
 </div>
 
 
@@ -248,7 +325,7 @@ magnet:?xt=urn:btih:906E33640EC75CD74EA805215A4F0C8D8F85E27F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121355.jpg" />
 </div>
 
 
@@ -272,7 +349,7 @@ magnet:?xt=urn:btih:C1AE35E774269A9AB60B959691103A6D38CA1EE4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121356.jpg" />
 </div>
 
 
@@ -296,7 +373,7 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121357.jpg" />
 </div>
 
 
@@ -320,7 +397,7 @@ uTorrent Pack 1.2.3.81 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121358.jpg" />
 </div>
 
 
@@ -345,7 +422,7 @@ magnet:?xt=urn:btih:BE3FCF51C7E338E78CFB646C6DD868B88FF01EC4
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121359.jpg" />
 </div>
 
 
@@ -369,7 +446,7 @@ magnet:?xt=urn:btih:F3C808D582137D1B0F5EA0BC204BA30A6D1A6C64
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121360.jpg" />
 </div>
 
 
@@ -394,7 +471,7 @@ magnet:?xt=urn:btih:D6A6E47E2C1109F8ACBDDF4D2931218898AE2D53
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121361.jpg" />
 </div>
 
 
@@ -418,7 +495,7 @@ magnet:?xt=urn:btih:07FF4AECE7DB05E4C15939CAC84A44EE05A0E8B7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121362.jpg" />
 </div>
 
 
@@ -443,7 +520,7 @@ magnet:?xt=urn:btih:DBFFEB452F804A8C75C5E9C8F761F6B19A3DC2A1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121363.jpg" />
 </div>
 
 
@@ -468,7 +545,7 @@ magnet:?xt=urn:btih:BE8C30224B1ADF894394C6B31D9D6B9E6CF0D080
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121364.jpg" />
 </div>
 
 
@@ -492,7 +569,7 @@ Royal Hunt - 31 Releases (1992-2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121365.jpg" />
 </div>
 
 
@@ -519,7 +596,7 @@ magnet:?xt=urn:btih:B500AECB12875DD12A74BA830B59704843B2901F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121366.jpg" />
 </div>
 
 
@@ -543,7 +620,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -555,78 +632,6 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694059   (121368) от 23.01.2024
-
-PotPlayer 240112 (1.7.22077) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B26818B8AEA9BB40DEBCF4C11FB638AAD5911BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693974   (121369) от 23.01.2024
-
-Подрывник / The Engineer (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Израиле происходит серия террористических актов, ответственность за которые берет на себя некто по прозвищу Инженер. В одном из терактов погибает дочь сенатора США. Бывший агент Моссада Итан возглавляет секретную группу агентов и наемников, которая должна из-под земли достать неуловимого Инженера прежде, чем он совершит еще один террористический акт.Производство: США, 2B Films, Grindstone Entertainment GroupЖанр: БоевикРежиссер: Дэнни А. АбекейзерАктеры: Эмиль Хирш, Дэнни А. Абекейзер, Цахи Алеви, Анхель Бунани, Дэн Мор, Ошри КоэнПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CA3558261CE29A3580042EEA88E6AA63502FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694086   (121370) от 23.01.2024
-
-ФотоМОНТАЖ 3.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121370.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков. Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5874DF2526852A904763467E0A5BC15E209C4B
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aiseesoft Video Converter Ultimate 10.9.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11563.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11575.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:68F0B2F0F753E98090F1572E1208628820007B58
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11586.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7CC70EE9BCA53306E4E23C2524D58C7D36E1C547
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11616.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Krita 5.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11619.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DF5D23FCBB16E282A09C3BA974319CC87BE96D28
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11623.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ OCCT 14.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11624.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Calibre 8.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11625.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kylie Minogue, Jack Savoretti - Music's Too Sad Without You (2018) HDTVRip [H.26
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11633.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Shazam v16.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11693.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Firefox Browser ESR 115.25.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11716.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Firefox Browser 140.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11717.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ dBpoweramp Music Converter 2025.07.07 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11720.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser ESR 128.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11721.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ YT Downloader 9.12.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11725.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11729.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E110DDC553EE57CD73C7E26F4D1B0A092CA11164
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11734.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ iTubeGo YouTube Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11737.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Process Lasso Pro  16.0.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11739.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Display Driver Uninstaller 18.1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11744.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:016D80986C4B45B8534F0E8DCB57DEA7C968854F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11745.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ashampoo Music Studio 12.0.0.14 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11750.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Perfectly Clear WorkBench 4.8.0.2830 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11752.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ RegCool 2.035 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11754.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AnyDesk 9.5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11757.jpg" />
 </div>
 
 

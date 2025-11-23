@@ -1,3 +1,77 @@
+###  Публикация: 1681384   (132607) от 03.12.2023
+
+Text Edit Plus 13.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Text Edit Plus — мощный, но простой текстовый редактор с полезными функциями. Это легкий инструмент, который позволяет пользователям легко создавать новые текстовые документы или изменять существующие. Приложение разработано как альтернатива Блокноту и предлагает более широкий набор функций, таких как несколько вкладок, проверка орфографии и подсветка синтаксиса.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C418B25002095998072A8F5DA05977907D80D771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593746   (132608) от 28.12.2012
+
+Михаил Задорнов. Мелочь, а приятно (2010) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт, в котором собраны самые яркие наблюдения, афоризмы, пословицы и новые сказки писателя-сатирика.Жанр: ЮморПродолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F18487D9F38CE22AA72AE9E130423454E65D3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681602   (132609) от 03.12.2023
+
+Лорет Энн Уайт | Дневник служанки (2024) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайна, ради сохранения которой можно пойти на убийство.
+Кит Дарлинг – служанка, которая любит совать нос в жизнь своих богатых клиентов. Это было безобидным хобби до того дня, когда Кит узнает страшную тайну пары, которая ждет своего первенца. Их репутация под угрозой. Они готовы на все, чтобы Кит унесла эту тайну с собой в могилу.
+Мэллори ван Альст вызывают на место (   Читать дальше...   )Жанр: Детективы, ТриллерПеревод: Владимир ГришечкинИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E98C434E2B6293C27697E0EF854F5B685C3020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681643   (132610) от 03.12.2023
 
 JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
@@ -6,7 +80,7 @@ JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132610.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132612.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132613.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ magnet:?xt=urn:btih:8DB2BA28A21C15686291EBD65A22FB4680E815C9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132615.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:BF9E84E504DC0EB8EA00791058040D1913D89F8B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132616.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ Reface v3.56 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132618.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:763F4E85352D642F5943FB508F0DFE68F774AAF2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132619.jpg" />
 </div>
 
 
@@ -181,7 +255,7 @@ magnet:?xt=urn:btih:004C35AD4677B8D91D3609B2429E947709BEC244
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132620.jpg" />
 </div>
 
 
@@ -205,7 +279,7 @@ magnet:?xt=urn:btih:6BAF278ED38B131D904F89F177809B7BB98961E5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132621.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ magnet:?xt=urn:btih:E3C7422B24DBE2689987A9FC9027129B46762F82
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132622.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ magnet:?xt=urn:btih:B5CBFCAF2EB39498A96CBB8F201A151AC70537FF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132623.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ magnet:?xt=urn:btih:FEEC7F09595A9779E074A0DC34271FA4B3275D3E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132624.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Peter Gabriel - i/o (2023) 2 x CD [FLAC|Lossless|tracks + .cue] <Contemporary Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132625.jpg" />
 </div>
 
 
@@ -329,7 +403,7 @@ Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132627.jpg" />
 </div>
 
 
@@ -356,7 +430,7 @@ magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132628.jpg" />
 </div>
 
 
@@ -382,7 +456,7 @@ magnet:?xt=urn:btih:F30491EBC9772945008F11DEB9C8FD9A2ECBEC1A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132629.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ magnet:?xt=urn:btih:C4A475771B2134BD0FC6E54ED9B6CBD039B6815F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132631.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ LinkedIn Learning, Dr. Chaz Austin | Creating a Career Plan (2020) PCRec [EN]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132633.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ magnet:?xt=urn:btih:31E715971CC2CCBB1EC098FE5BDCF97E4DD2FC96
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132634.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ magnet:?xt=urn:btih:3B9994AB064516E99FB59B4910025D9706F6E11B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132635.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ Psiphon Pro 390 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132637.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ Ungoogled Chromium 119.0.6045.199-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132639.jpg" />
 </div>
 
 
@@ -553,7 +627,7 @@ Windows Repair (All In One) 1.9.3 + Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132640.jpg" />
 </div>
 
 
@@ -566,83 +640,6 @@ Windows Repair - инструмент все-в-одном для ремонта
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681477   (132641) от 03.12.2023
-
-Красавица: Унеси меня на Луну [ТВ-2] | Tonikaku Kawaii 2 | Tonikawa: Over the Moon for You 2 [2023, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132641.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о милой паре молодожёнов продолжается! Однажды Наса Юзаки чуть не попал под грузовик, но его спасла загадочная девушка Цукаса. Он ей сразу же признался в чувствах, но она согласилась встречаться лишь в том случае, если они поженятся... Через несколько лет Цукаса и правда объявилась, и они начали жить вместе как самая настоящая семейная пара. С тех пор они (   Читать дальше...   )Производство: Япония / Студия Seven Arcs, Tengu KoubouЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Русский двухголосый, многоголосый закадровый; Японский
-- Cleo-chan, Nuts (AniLibria.TV)
-- GimerHade, Muroi, Vel, Rurirururi (ShikokuStudio)
-- Myaurik, WoZWaLD, Abe, Akemitsuki, Veda (AniBaza)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV); (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57B4EAF4F6908A9C1901B86F6B1987BE1A9F92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681498   (132642) от 03.12.2023
-
-LibreWolf 120.0.1-1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox является одним из лучших браузеров. Тем не менее некоторые пользователи с недоверием относятся ко встроенным в продукт Mozilla службам телеметрии.
-Многие пользователи предпочитают, чтобы браузер по умолчанию был настроен на максимальную конфиденциальность и безопасность, хотя Firefox все же предлагает мощные возможности для настройки.
-LibreWolf как раз решает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86272574A7137B5576A23BE328332709FBE3FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595300   (132643) от 28.12.2012
-
-В.Н. Пак | Сборник шахматных задач, этюдов, головоломок [2004] [DJVU]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическую игру часто называют прозой шахмат, а композицию — поэзией. Многие великие шахматисты с удовольствием решали и сами составляли задачи и этюды. Эта книга введет вас в удивительный и прекрасный мир шахматной поэзии, познакомит с искусством шахматной композиции — поистине неисчерпаемой областью древней и мудром игры.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E6CEA367D11D5F10577F78BCD461720437E37E
 ```
 
 

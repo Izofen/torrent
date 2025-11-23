@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14740.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Firefox Browser 139.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14765.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ MobiPDF: Редактор и сканер PDF  v11.6.267114 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14770.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14773.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14781.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Rufus 4.8 (Build 2253) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14803.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C6EC794F7FE66181D70FE167B20CB2FC9EFAFF85
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14810.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Media Encoder 2025 25.2.0.141 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14813.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TapScanner v3.0.72 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14815.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Parrot Timer / Кухонный таймер v2.9.0 Mod by Alex.Strannik [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14820.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Shazam v15.26.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14829.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14835.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14837.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14841.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WPS Office + PDF v18.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14843.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ RarmaRadio Pro 2.77.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14848.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ TikTok Private Plus v40.4.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14854.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Office Installer & Office Installer+ 1.27 r1 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14886.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Adobe Acrobat Pro 2025.001.20531 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14890.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ TuneIn Radio Pro v38.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14933.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.5.56393 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14944.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C0BF0D4B70F5C1A3F18DDB690E03A78AB003A662
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14952.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Listen Audiobook Player v5.2.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14953.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:3E75BD2D5746A4080CA370722B0455BFA8667A1E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14959.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ableton - Live 12 Suite 12.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14962.jpg" />
 </div>
 
 

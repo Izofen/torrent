@@ -6,7 +6,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9695.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9762.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9774.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Girls Made Pudding (2025) [Multi] (1.2.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9775.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9826.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Luto (2025) [Ru/Multi] (Build 19401226) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9905.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9979.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10147.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Laser Tag Massacre (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10153.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10176.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10195.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10266.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10290.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10436.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10474.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10506.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10669.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10736.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10830.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Submersed 2 - The Hive (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10900.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Danger Zone (2025) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10934.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11248.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Murky Divers (2024) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11362.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11593.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11630.jpg" />
 </div>
 
 

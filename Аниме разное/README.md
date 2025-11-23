@@ -6,7 +6,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_241.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_760.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_777.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_778.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_962.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fermat no Ryouri | Fermat Kitchen | Готовка Ферма [2025, TV, 11 из
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1031.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1305.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1567.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1580.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1588.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1608.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1819.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1945.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1954.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1960.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1961.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1967.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1979.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2133.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2142.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2299.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2302.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2446.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2447.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2465.jpg" />
 </div>
 
 

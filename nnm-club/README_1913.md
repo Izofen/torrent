@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50093.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:06F2524003129DA5C544F62DDC2BDDA7B4D0B725
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50094.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:968D16BB2FC3DD9DA779CFD9C403DC1C5C224922
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50095.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:68CF1BC238432DD86CA6A1E42BA3B95ABBCBEB9A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50096.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.102179.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50097.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:08C1CD17740CEEDF157F47F09ED3C0C146CF9A7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50098.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B75137AB8BB06411FD91BBC91F4DCFD2668F44F5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50099.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:AFE43BE550AC6ACE60FEC519F6901B541142B2F6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50100.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Electric Light Orchestra - ZOOM - Tour Live (2001) [DVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50101.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:8C631A9CBE5D3B65A942AC35196894E888C391A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50102.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BF191CC000D9B6FF4618E98C49C2506F4224B95E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50103.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ YouTube заблокируют в России в сентябре, но в Кр
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50104.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.2.1a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50105.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Electric Light Orchestra - The Early Years (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50106.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Songs of Syx (2020) [En] (0.66.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50107.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:04567AE60F14BD5971CFEAFEDE42F0FE9F48F94C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50108.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Udemy, Вадим Прокопчук | Верстка сайта c исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50109.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50110.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50111.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MKVToolNix 86.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50112.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0637E472742CF01EEF1595983F7C23B007117AFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50113.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F2A28B0B9D7334EE6ECCDBFF2C9DA9C6C92A7FCC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50114.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ OpenShot Video Editor 3.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50115.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ColorMania - Color Picker 14.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50116.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50117.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50118.jpg" />
 </div>
 
 

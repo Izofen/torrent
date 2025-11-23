@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173874.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52F660478EF74AF03E629EAAAAA4529429AE71C2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175124.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:107BD860D01F5336AE33DA304C086A05096B065C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175751.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175751.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5D452ED9053118BCB3A60FBFBFD5D62F4A476B8A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175790.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FC3BC2C4D3E829BD6997408B4C705553E4FE28F3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176403.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:ABD4944C37BA22A9937882E10EE5287B77AB32CE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176437.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9EB9D37CF7632DED9F0366938227E966FCF57821
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176522.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2244B2AD48A2E02AD05AD85FA07A6978CE39E640
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176623.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:CB1AC5919D502DD0A66FA54447283786595C5C6E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177981.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177981.jpg" />
 </div>
 
 
@@ -214,6 +214,30 @@ magnet:?xt=urn:btih:3E5A8AB8BE7504BA1CE62DFAB22C13B768F83F86
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412823   (179451) от 28.11.2022
+
+Малыш Элиас – кораблик-спасатель / Elias og kongeskipet (2005) 2xDVD5 (сезон 1, серий 1-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький спасательный кораблик приезжает на новое место работы - в приморскую деревушку под названием Уютная Бухта. Ему предстоит познакомиться с новыми друзьями и доказать всем, что он действительно достоин носить гордое звание спасательного корабля - ведь это не только огромная честь, но и большая ответственность. Элиас всегда готов прийти на помощь любому, попавшему (   Читать дальше...   )Производство: НорвегияЖанр: детский, ПриключенияРежиссер: Эспен ФуксенПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~ 03:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C3D41504014B223FE10AF7996C15675276CE4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651317   (179874) от 03.10.2023
 
 Подросток Эвтаназия / Teenage Euthanasia (2021-2023) WEB-DL [H.264/1080p] (сезон 1-2, серии 1-17 из 17) TVShows
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:3E5A8AB8BE7504BA1CE62DFAB22C13B768F83F86
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179874.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179874.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:9EAADA6A0B432209FF88B2B91BB42CB819ED77D8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181049.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181049.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:12B767E368314FBD8162528F49D20B1616F675DA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181152.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181152.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:89640779364100FBE1505C577EB0AC570859DE7E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181678.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181678.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:861302D8E7FD771A4613F3F3817097FA9BA40335
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181893.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181893.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:36A75F996AD52E6668372D6E97A58861F0AD495E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181963.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181963.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:8EC67CD5DF911CCDFE0C1819B76F3157F8772E04
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182055.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182055.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:E54128BC24A23353788C38CA6142CC223ED6456C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182086.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:E9291CD2B4085CED58CB6A4A888B755C4B0FF5B0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182266.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182266.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:938A2621BFA057E5E49B60325532AF1BEEB65D42
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182377.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182377.jpg" />
 </div>
 
 
@@ -462,7 +486,7 @@ magnet:?xt=urn:btih:80674084063F375C7522DD4458A476DA4AAC249B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182629.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182629.jpg" />
 </div>
 
 
@@ -486,7 +510,7 @@ magnet:?xt=urn:btih:164A3029B262517248C3A9C97A94E598E515E515
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182643.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182643.jpg" />
 </div>
 
 
@@ -510,7 +534,7 @@ magnet:?xt=urn:btih:CA28F546CB511EB45D3797CFD38ECEA13E7121C7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182650.jpg" />
 </div>
 
 
@@ -534,7 +558,7 @@ magnet:?xt=urn:btih:1A22162DD495E1A7F45873FC36113E33011F4D29
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182698.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182698.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ magnet:?xt=urn:btih:1F331CD6DB95037EB781D220F25009EA9E0170CE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184002.jpg" />
 </div>
 
 
@@ -582,7 +606,7 @@ magnet:?xt=urn:btih:C9AE83E5C857A387BEA27FF9CD44A985BFA61B84
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184012.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184012.jpg" />
 </div>
 
 
@@ -593,30 +617,6 @@ magnet:?xt=urn:btih:C9AE83E5C857A387BEA27FF9CD44A985BFA61B84
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9F1BF727157DEA4A92CB62FB23A9310D2E36AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057408   (184017) от 21.11.2022
-
-Флинтстоуны / The Flintstones (1960-1966) DVDRip [H.264] (5 сезонов, 154 серии из 166) [Обновляемая]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать свидетелем легенды каменного века? Следите за приключениями самого популярного мультяшного пещерного клана в этой доисторической ретроспективе, представляющей самые первые истории Фреда и Уилмы Флинтстоун и их лучших друзей - Барни и Бетти Раббл!Производство: США, Hanna-Barbera ProductionЖанр: Мультсериал, комедияПеревод: Дублированный (Boomerang) 2013 г., (НТВ) 1993 г., (Нева-1) 1996 г. на VHS / Многоголосый, закадровый (2x2) 2007 г.Субтитры: Английские, РусскиеПродолжительность: 154 серии по ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66310F7DAAD932CE7A9DEAAE54D660D89590C612
 ```
 
 

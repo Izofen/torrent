@@ -1,3 +1,87 @@
+###  Публикация: 1681138   (133080) от 02.12.2023
+
+Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Come Back (Evolution Extended Edit) [4:14]
+02. Chicane & Ferry Corsten feat. Christian Burns - One Thousand Suns (Extended Edit) [5:09]
+03. Chicane - Hiding All The Stars (Evolution Extended Edit) [4:45]
+04. Chicane - No Ordinary Morning (Edit) [5:09](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3141CDAF30B3483A6A4D49D25969B060606FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681304   (133082) от 02.12.2023
+
+VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Talking to Myself (3:51)
+02. Red Hot Chili Peppers - Parallel Universe (4:29)
+03. Coldplay - Every Teardrop Is a Waterfall (4:01)
+04. Paramore - Daydreaming (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 03:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E13FBEF82FCCFF54E232698850A14706714F537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681230   (133084) от 02.12.2023
+
+Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Billy’s Band выпустила новый альбом «В шляпе». Пластинка стала седьмой в дискографии коллектива и была записана в новом составе.
+
+«В шляпе» — альбом, в котором постоянные участники группы, Билли и Михаил, знакомят слушателей с Марсом Ковалевским, который в феврале 2023 вошел в состав группы в качестве гитариста.
+(   Читать дальше...   )01. Старомоден
+02. Ты мерещишься мне
+03. Фонари
+04. Мама, забери(   Читать дальше...   )Жанр: Rock, Jazz, BluesПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594800   (133086) от 27.12.2012
 
 Битва в пустыне / Цель / The Objective (2008) DVDRip
@@ -6,7 +90,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133086.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ magnet:?xt=urn:btih:BFCD324A1441D5C0E4DF29EB5B089AA4FEAEACB1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133087.jpg" />
 </div>
 
 
@@ -56,7 +140,7 @@ VLC Media Player 2.1.0-git-20121227-0003 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133088.jpg" />
 </div>
 
 
@@ -80,7 +164,7 @@ GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133089.jpg" />
 </div>
 
 
@@ -107,7 +191,7 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133091.jpg" />
 </div>
 
 
@@ -134,7 +218,7 @@ Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133093.jpg" />
 </div>
 
 
@@ -161,7 +245,7 @@ Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133095.jpg" />
 </div>
 
 
@@ -188,7 +272,7 @@ magnet:?xt=urn:btih:C594527BD2964AA6C1389751E14EF75EECA647F5
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133096.jpg" />
 </div>
 
 
@@ -213,7 +297,7 @@ magnet:?xt=urn:btih:1027139B338803526A8ADAE4E9134F243BC0201A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133097.jpg" />
 </div>
 
 
@@ -237,7 +321,7 @@ VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133099.jpg" />
 </div>
 
 
@@ -264,7 +348,7 @@ VA - Blissful Journey: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133101.jpg" />
 </div>
 
 
@@ -291,7 +375,7 @@ magnet:?xt=urn:btih:5C543F937D36EDDA2F83F2480505016E401DEE21
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133103.jpg" />
 </div>
 
 
@@ -315,7 +399,7 @@ magnet:?xt=urn:btih:772007727D9A531E04E1E0C43A09A22A76C14DE9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133104.jpg" />
 </div>
 
 
@@ -339,7 +423,7 @@ EdgeView 4..4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133105.jpg" />
 </div>
 
 
@@ -363,7 +447,7 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133106.jpg" />
 </div>
 
 
@@ -390,7 +474,7 @@ magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133108.jpg" />
 </div>
 
 
@@ -414,7 +498,7 @@ VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133109.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ Winsent Messenger 2.3.25 + Portable [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133111.jpg" />
 </div>
 
 
@@ -466,7 +550,7 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133112.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133114.jpg" />
 </div>
 
 
@@ -523,7 +607,7 @@ Steely Dan - Gaucho (1980) Reissue, 2023, UMG [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133115.jpg" />
 </div>
 
 
@@ -550,7 +634,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -577,7 +661,7 @@ Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133117.jpg" />
 </div>
 
 
@@ -591,86 +675,6 @@ Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2D2A17C517ED96D3856A8E173CB129FC4033D16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681398   (133119) от 02.12.2023
-
-VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & NoMosk & Christina Novelli - Lost Soul (Extended Full Fire Mix) [6:14]
-02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
-03. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
-04. Roman Messer & Six Mists & Jaki Nelson - Just Be You (Extended Mix) [6:23](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594769   (133120) от 27.12.2012
-
-Шнитке - Concerto Grosso no. 1, Quasi una sonata, Moz-Art а la Haydn, A Paganini: Kremer, Gridenko, Smirnov, Schiff (2010) [FLAC|Lossless]<Classical, Modern, Avant-garde>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto Grosso no. 1 (1976-77)
-01 (1) Prelude: Andante
-02 (2) Toccata: Allegro
-03 (3) Recitativo: Lento
-04 (4) CadenzaЖанр: Classical, Concerto, Modern, Avant-gardeПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681348   (133121) от 02.12.2023
-
-Вольтер | Орлеанская девственница (2013) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для своей поэмы Вольтер использовал один из драматических эпизодов Столетней войны между Францией и Англией – освобождение Орлеана от осаждавших его английских войск. Замысел поэмы возник, очевидно, в 20-е годы XVIII в. Работал над ней Вольтер медленно, с большими перерывами. Первые песни были написаны к началу 30 – концу 40 гг.
-Первое анонимное франкфуртское издание (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэмаИздательство: Нигде не купишьПродолжительность: 07:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1825371   (136779) от 17.10.2025
+
+MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136779.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F13A7E474AE2DE13BEB2A669BF2B379F94F7868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825370   (136780) от 17.10.2025
+
+Reg Organizer 9.88 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7774091FBA32672AFE60BD61F045E6C698A14AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678455   (136781) от 17.10.2025
+
+STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в будущее космических войн! В игре Star Fleet II: Krellan Commander вам предстоит управлять современным космическим крейсером и исследовать сектора, сражаться с вражескими кораблями, брать их на абордаж и захватывать планеты. Эффективно управляйте своим кораблем, экипажем и эскортом и найдите путь к победе. 35 галактических регионов с более чем 1700 (   Читать дальше...   )Тип издания: LicenseРазработчик: Trevor Sorensen, Mark BaldwinЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825200   (136782) от 16.10.2025
 
 Гнев Титанов / Wrath of the Titans (2012) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136782.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:3EC95D5B474242C761D3B621B659EDE2BA536ED2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136783.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B95CE0C0692B874B83B7B5283AB7ED9197F1C5A5
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136784.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 3
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136785.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Zapret-discord-youtube by Flowseal (сборка на базе Zapret) 1.8.5 (04
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136786.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Vimic - Open Your Omen (2025) [FLAC|Lossless|WEB-DL|tracks] <lternative Metal, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136787.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:2DD7DCC9544B18CC40622C560024E1C5C8F10786
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136788.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:73F3536D76CC68787C84D7D42BBE938024BFFA61
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136789.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ Kerry Charles - It'll Be Over Soon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136790.jpg" />
 </div>
 
 
@@ -231,7 +303,7 @@ magnet:?xt=urn:btih:EF58AEA0BB85A1918810957CE9DFE6E46D088804
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136791.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ magnet:?xt=urn:btih:4514E57C652987E72FC09BB7B78AB946983445C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136792.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136793.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ Kerosene 454 - At Zero (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136794.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136795.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:3ED6B602CF37CCC4314625D680F8086A21546CBF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136796.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ Justin Runyon - Swirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136797.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136798.jpg" />
 </div>
 
 
@@ -436,7 +508,7 @@ magnet:?xt=urn:btih:6A1FBD24467E4172B75013082CC7FB05C962CBEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136799.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ magnet:?xt=urn:btih:E59F5B9EFBA25A8CA5CB8F3A74177AB15BD1D21A
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136800.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136801.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ magnet:?xt=urn:btih:39E177198CF5B9FC63CD0DAD6468AE6125374DCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136802.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136803.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ Jay Parrino - Cover Recovery 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136804.jpg" />
 </div>
 
 
@@ -576,87 +648,6 @@ Jay Parrino - Cover Recovery 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D8FDCA18AEF34964E64099FB08C1EE67668C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824385   (136805) от 16.10.2025
-
-PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicious (3:58)
-02. Arabic Dance (3:33)
-03. Dudu (3:08)
-04. Don_t Try to Stop Me (3:48)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C32F92353C3EA94CC09CFAF70AAEFC416AF471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825193   (136806) от 16.10.2025
-
-Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mesmerize Me (4:09)
-02.  Raincoat (4:50)
-03.  Tommy (3:55)
-04.  A Song (4:02)(   Читать дальше...   )Жанр: Rock, Alternative & IndieПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2860BAD02D74A8EC8997032889720EADF2B1CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825192   (136807) от 16.10.2025
-
-Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Puppy (3:23)
-02.  Charged (3:16)
-03.  Tiger Queen (4:26)
-04.  Stampede Act (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0AE28CA5A5C98BB1CC85CC36987877627CF44C
 ```
 
 

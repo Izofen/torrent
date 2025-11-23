@@ -1,3 +1,79 @@
+###  Публикация: 1433507   (161471) от 20.12.2020
+
+GrandTotal 7 v7.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161471.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60A61C54A6B9F2FBE06A9E62415FAC97C80FE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433464   (161472) от 20.12.2020
+
+PhotoMill X 1.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161472.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X – групповая обработка фотографий
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
+Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EA74F7D6BBE62B3D4E6C504D97C48D161F6C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433308   (161474) от 20.12.2020
+
+Middle 1.5.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287D175310B5C01DEAD3020C39141763793AFEB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599029   (161475) от 21.12.2022
 
 EditReady 22.4 [En]
@@ -6,7 +82,7 @@ EditReady 22.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161475.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Folder-Factory 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161477.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ Cookie 6.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161482.jpg" />
 </div>
 
 
@@ -85,7 +161,7 @@ PullTube 1.8.5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161491.jpg" />
 </div>
 
 
@@ -109,7 +185,7 @@ System Toolkit 5.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161492.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ OpenNumismat 1.8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161499.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ AnyMP4 iOS Cleaner 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161500.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ PowerPhotos 2.1.3 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161505.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161507.jpg" />
 </div>
 
 
@@ -231,7 +307,7 @@ Wise Registry Cleaner Pro 10.6.1.697 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161522.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161528.jpg" />
 </div>
 
 
@@ -279,7 +355,7 @@ magnet:?xt=urn:btih:96A0642B8FA083DE899B6B18AFF12F74DC73DC37
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161534.jpg" />
 </div>
 
 
@@ -304,7 +380,7 @@ Keep It 2.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161535.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 19.12.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161540.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ Foxit Reader 10.1.1.37576 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161548.jpg" />
 </div>
 
 
@@ -376,7 +452,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161553.jpg" />
 </div>
 
 
@@ -400,7 +476,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161559.jpg" />
 </div>
 
 
@@ -427,7 +503,7 @@ Adobe InDesign 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161570.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ IObit Driver Booster Pro 10.1.0.86 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161578.jpg" />
 </div>
 
 
@@ -475,7 +551,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161590.jpg" />
 </div>
 
 
@@ -499,7 +575,7 @@ Foxit PhantomPDF Business 10.1.1.37576 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161592.jpg" />
 </div>
 
 
@@ -523,7 +599,7 @@ Ableton - Live Suite 11.2.7 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161603.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ magnet:?xt=urn:btih:3F6E2E4654DFEFBCE5C17684E17D7FC7FAB6C9D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161604.jpg" />
 </div>
 
 
@@ -560,80 +636,6 @@ magnet:?xt=urn:btih:3F6E2E4654DFEFBCE5C17684E17D7FC7FAB6C9D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD26BDD423F66C7FAA9A079337BD04A80B90B942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432622   (161629) от 19.12.2020
-
-Гренландия / Greenland (2020) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания /  Anton, G-BASE, Riverstone Pictures, STX Films, Thunder RoadЖанр: боевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Английские (SDH)Продолжительность: 01:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B4FF37AC92FADF4B18AD51C6B03165D6294F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598716   (161635) от 20.12.2022
-
-Adobe Bridge 2023 13.0.1.583 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC811522263DEAF02B82668ECD0645289C3CC8D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598817   (161639) от 20.12.2022
-
-Blender 3.4.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C870B2963B3D7B826F9153C059DAA9EDB512CA
 ```
 
 

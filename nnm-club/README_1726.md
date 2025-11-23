@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MusicBrainz Picard 2.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45232.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sister Switchblade - Don't Try This at Home (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45233.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ XYplorer 26.30.0400 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45234.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Anjunabeats presents After Dark 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45235.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Roses Of Thieves - Gateway To Utopia (2024) [MP3|320 Kbps] <Melodic Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45236.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:B54D9A1D551FC27FA93D4815D77650424C9A0FD7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45237.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MuseScore 4.4.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45238.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Wondershare PDFelement 11.0.6.3108 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45239.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45240.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Demon - Invincible (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45241.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45242.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Dubvision - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <EDM, Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45243.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Super Sabre - Chasing the Rabbit (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45244.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Jem - Finally Woken (2004) 20th Anniversary Remastered Edition, 2024,  ATO Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45245.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45246.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Anciients - Beyond The Reach Of The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Ex
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45247.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Holy Tongue & Shackleton - The Tumbling Psychic Joy of Now (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45248.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:318FCC65C3C9F06B8F5F7A957137D64A0AE4B578
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45249.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ YT Downloader 9.10.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45250.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:653B7D3A1B8963768F0A4F6DF680CF3C5E93FBBA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45251.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - The Best of Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45252.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:039E0A7C0563757AFB32086E75AB7DAEE1EF1676
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45253.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45254.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 100% Club Hits - 2024.2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45255.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45256.jpg" />
 </div>
 
 

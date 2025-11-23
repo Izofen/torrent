@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C22873B887BB9060F85BFDCB43A5A7E2397C898
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30410.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2EEF53B3966E8E2BBEF2778924D52D2EADA467E1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30411.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:928732237A960324B8CCC5EC8ED0F352944BA266
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30412.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C47E03C1CFDD303450E73208E02DDDD2101BC34F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30413.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:CF64E9406965CC7F95C4E2F1A26C88C53F298C60
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30414.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:2EBB7046E80C556488B1D789E73E14E8368B5459
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30415.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:A0B72DCC12B442D96F61A6BDBD8434CF0721D8E6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30416.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:83219B7E4067D237C8C2638AE3EF33DF0F6EC066
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30417.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4B112F63A85314A99FEAF8BF48E3DD714CDBEAD6
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30418.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:3DEFEA70C07B96CE8368CC461B7C098A7F89EB74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30419.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:DE4359CEEAA708AF5DCF550AE845C4DB7E819962
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30420.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Musical kaleidoscope part 22 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30421.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:D1C3A6C4E2686D2F6608054509F83E0703F5188E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30422.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Def Leppard - One Night Only: Live At The Leadmill (2024) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30423.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Garmin: TOPO Great Britain v3 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30424.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:E7026C02018EFF371BAB04AB9ACCA958D7267512
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30425.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:D16EC5DAABAEADB6E36DF4F9CE5D41857DA5132E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30426.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:51C7C40817F7BA0C683194EB8B56F6DC73A06631
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30427.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30427.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:C374A9CB9C88D79C2E9FA1010D08CB165DE3ABC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30428.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A314C654638D37E2F999C8B4C6BBEC4BD103C8C5
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30429.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:8143ED5A6078B01E6FA8C65B76E5E4D3C261D877
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30430.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:5530CF480B0583281D0BD29DD188C01AC650AD5A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30431.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:9FCA82CD0D291724EC39E02981E16308DA9E8BC6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30432.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Reg Organizer 9.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30433.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Beyond Compare Pro 5.0.5.30614 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30434.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30434.jpg" />
 </div>
 
 

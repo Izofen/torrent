@@ -1,3 +1,183 @@
+###  Публикация: 1194482   (154238) от 26.12.2017
+
+Д.Н. Власов | Транспортно-пересадочные узлы (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы развития современных систем интермодальных транспортно-пересадочных узлов. С учетом современных тенденций становления систем пассажирского транспорта рассмотрены теоретические аспекты развития, предложены практические методики по формированию системы ТПУ, призванной обеспечить устойчивость и безопасность системы транспортного обслуживания населения (   Читать дальше...   )Жанр: ТранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E4821AF3535329F2D731A6E351E72CF6C22D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270903   (154239) от 21.12.2018
+
+VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker & Tomine Harket - Darkside (Original Mix)
+02. Anna Naklab feat. Alle Farben & Younotus - Supergirl
+03. Armin Van Buuren & Trevor Guthrie - This Is What It Feels Like
+04. ATB feat. Sean Ryan - Never Without You(   Читать дальше...   )Жанр: Dance, SpacesynthПродолжительность: 02:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086019   (154240) от 23.12.2016
+
+Демон внутри / The Autopsy of Jane Doe (2016) WEB-DLRip [H.264] [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: ВеликобританияЖанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин, Келли Паркер, Сойерс Джейн, Перри Ив О’ХараПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: SolodПродолжительность: 01:26:27Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE3CF21D399327B3D0BBF1940A7920EC26387EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347112   (154241) от 22.12.2019
+
+Хан Ган | Вегетарианка (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Вегетарианка» южнокорейской писательницы Хан Ган - обладатель «Международной Букеровской премии», признан одной из лучших книг 2016 года по версии журналов Time, The Economist, The New York Times, Elle, Wall Street Journal. Это волнующий роман о власти, предательстве, жестокости, красоте, творчестве и обретении свободы. Прекрасная и тревожная аудиокнига о (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 05:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65214A051653461ABB16735D706AAA64C6B42BF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518533   (154242) от 20.12.2021
+
+SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begining of Life (Intro Mix) (3:24)
+02. Forest (Original Mix) (6:24)
+03. Dream of Mermaid (Original Mix) (5:37)
+04. Revival the Bird (Original Mix) (5:53)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024F7364B1671AC87BCD3FFEAF79488D206FBE66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577838   (154243) от 22.12.2020
+
+Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight
+02. Give me real
+03. Remember it´s me
+04. Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA877CD3496F976D01664D01F45DDC6BD7E4036F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433963   (154244) от 22.12.2020
+
+VA - Heavy Metal Collections Vol. 17 (5CD) (2020) [MP3|320 Kbps] <Symphonic, Power, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154244.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Grailknights - Pumping Iron Power (2018) (3:54)
+02. Chaos Magic - One Drop Of Blood (2015) (4:27)
+03. Silverheart - Shadows Maiden (2015) (4:51)(   Читать дальше...   )Жанр: Symphonic, Power, Heavy MetalПродолжительность: 05:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C85E8DFCBFA8F84FB2DD8F85DBAB9EFB380F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601034   (154245) от 29.12.2022
 
 The First Assembly - The Prolet Kult (2023) [MP3|320 Kbps] <Doom Metal>
@@ -6,7 +186,7 @@ The First Assembly - The Prolet Kult (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154245.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154246.jpg" />
 </div>
 
 
@@ -60,7 +240,7 @@ Maxthon Browser 5.2.7.100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154247.jpg" />
 </div>
 
 
@@ -86,7 +266,7 @@ VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154248.jpg" />
 </div>
 
 
@@ -113,7 +293,7 @@ magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154249.jpg" />
 </div>
 
 
@@ -138,7 +318,7 @@ VA - Musik (Vanity Records) (1981/2019) Kyou Records | Reissue, Remastered [FLAC
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154250.jpg" />
 </div>
 
 
@@ -165,7 +345,7 @@ magnet:?xt=urn:btih:5A90A2C6DE9C4E51C7A4867DBACE9D2A7959CD09
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154251.jpg" />
 </div>
 
 
@@ -189,7 +369,7 @@ magnet:?xt=urn:btih:EA9951D4435A5ABC1DB9F07B22A600846E77BD49
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154252.jpg" />
 </div>
 
 
@@ -213,7 +393,7 @@ Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154253.jpg" />
 </div>
 
 
@@ -240,7 +420,7 @@ magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154254.jpg" />
 </div>
 
 
@@ -264,7 +444,7 @@ The Bat! Professional Edition 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154255.jpg" />
 </div>
 
 
@@ -288,7 +468,7 @@ magnet:?xt=urn:btih:30E2A673D8F57B7C48B072C3CD337E06D8E157DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154256.jpg" />
 </div>
 
 
@@ -312,7 +492,7 @@ magnet:?xt=urn:btih:2081590F300150619091299A79E8E169F202D7FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154257.jpg" />
 </div>
 
 
@@ -336,7 +516,7 @@ Permute 3 v.3.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154258.jpg" />
 </div>
 
 
@@ -360,7 +540,7 @@ TunesKit AceMovi Video Editor 4.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154259.jpg" />
 </div>
 
 
@@ -384,7 +564,7 @@ Mayhem - Wolf's Lair Abyss (1997) Reissue, 2019, Soulseller Records [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154260.jpg" />
 </div>
 
 
@@ -411,7 +591,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154261.jpg" />
 </div>
 
 
@@ -438,7 +618,7 @@ Olga Scheps - 100% Scooter – Piano Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154262.jpg" />
 </div>
 
 
@@ -465,7 +645,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154263.jpg" />
 </div>
 
 
@@ -476,180 +656,6 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F813A8D76E6BA5BBCBF5AAFD367083436EE709F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347312   (154264) от 22.12.2019
-
-ColorSnapper 2 v1.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154264.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorSnapper - инструмент «селектор» цвета для разработчиков
-Приложение для разработчиков приложений, веб-девелоперов и дизайнеров, позволяющее брать пипеткой цвет в различных форматах. Запись цвета в HTML распространено в области веб-дизайна и CSS стилей.
-
-Незамысловатое и очень полезное приложение. Само о себе оно говорит так: «инструмент для получения цвета, которого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Koole SacheПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF1B56B9D9306B2BE233E59EE84B579114EDDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433842   (154265) от 22.12.2020
-
-FreeCommander XE 2021 Build 840 donor x64 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154265.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeCommander XE - это довольно-таки удобный в работе файловый менеджер, который поможет значительно упростить повседневную работу с компьютером. Эта программа легка в освоении и использовании, и послужит отличной альтернативой стандартному проводнику Windows и другим менеджерам файлов. Функционал инструмента разнообразен, что даст возможность управлять всеми процессами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09ECD1BFFF65028D4D2D120E61EAD96DDF77C973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676830   (154266) от 15.11.2023
-
-Александр Изотов | Нулевой мир (Книга 6). Мера человек (2023) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда дары Неба удивляют. То, что мне досталось в Горах Ящера… Это взлёт или падение? Ведь чтобы исполнить предназначение, нужна сила. В битве между высшими мерами я увидел настоящую мощь Абсолюта, перед которой меркнет и сила богов… Вот только, оказывается, в Инфериоре боги боятся совсем другого. Надо лишь научиться этим пользоваться и, к счастью, наставников у (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 09:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241600A2AE9877D612EC312AF965FBD348A0BC04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347186   (154267) от 22.12.2019
-
-Jeff Goldblum & The Mildred Snitzer Orchestra - The Capitol Studios Sessions (2018) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantaloupe Island [5:43]
-02. Don’t Mess with Mister T (feat. Till Bronner) [4:34]
-03. My Baby Just Cares for Me (feat. Haley Reinhart & Till Bronner) [5:15]
-04. Straighten Up and Fly Right (feat. Imelda May & Till Bronner) [3:13](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B73DD61A57DC3490F44BCE7FC4FE90AEE5F9B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518684   (154268) от 20.12.2021
-
-Filmage Editor 1.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное и простое в использовании программное обеспечение для редактирования видео, которое  вдохновит всех. Filmage Editor включает в себя все расширенные и базовые функции, позволяющие создавать и редактировать видео за считанные минуты, даже если вы новичок в этом. Используйте все возможности редактирования и поделитесь ими с кем угодно в мире. Дайте своим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2021Разработчик: © 2019-2021 Filmage Pro Team, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C59503C82575364DB8E8A7685F9C5B0311622D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433796   (154269) от 22.12.2020
-
-Во плоти / In the Flesh (2013) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-3 из 3) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через четыре года после начала эпидемии правительство начинает реабилитировать обратившихся в зомби и возвращать их в общество, в том числе и подростка Кирена Уокера, который возвращается домой в свой маленький городок в Ланкашире, чтобы встретиться с враждебностью и своими собственными демонами.Производство: Великобритания / BBC Drama ProductionsЖанр: Ужасы, драмаРежиссер: Джонни Кэмпбелл, Джим О’Хенлон, Дэймон Томас и др.Актеры: Люк Ньюберри, Харриет Кейнс, Мари Критчли, Стив Купер, Эмили Беван, Кевин Саттон, Стивен Томпсон, Герард Томпсон, Стив Гэрти, Сандра Хаггетт и др.Перевод: Многоголосый профессиональный (LostFilm)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CD6F25DD93FD3F6F6458EE87BD70916EED594B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086133   (154270) от 23.12.2016
-
-Хороший мальчик (2016) WEB-DLRip [H.264] [MP4|1024x456]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная, казалось бы, неделя из жизни ничем не примечательного школьника Коли Смирнова превращается в череду невероятных происшествий: Коля влюбляется в учительницу английского, кто-то поджигает школьную пристройку с новыми компьютерами, а папа Коли заявляет семье о необходимости отказа от ночного сна, из-за чего никому в доме не удается выспаться и собраться с мыслями. (   Читать дальше...   )Производство: Россия / 2D Целлулоид, Art Pictures StudioЖанр: КомедияРежиссер: Оксана КарасАктеры: Семён Трескунов, Константин Хабенский, Михаил Ефремов, Александр Паль, Анастасия Богатырева, Василий Буткевич, Иева Андреевайте, Ирина Денисова, Татьяна Догилева, Ирина ПеговаПеревод: Не требуется  - (Русский)Продолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F245CB1FB971DFEE2F6C2953FB4EEBAB46B47E16
 ```
 
 

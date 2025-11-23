@@ -6,7 +6,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94268.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Red Samara Automobile Club - Прозрачно (2012) [MP3|320 кб/с]<Rock, I
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94400.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94489.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94735.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95018.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95254.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95254.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Pow
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95309.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95309.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95347.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95347.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95357.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95410.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95460.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95479.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95653.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95699.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95776.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Asphyx - Deathhammer (Limited Edition) (2 CD) (2012) [FLAC|Lossless]<Death/Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95967.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96024.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96090.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96159.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96242.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96242.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96244.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96295.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96364.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96364.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ The Album
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96377.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96377.jpg" />
 </div>
 
 
@@ -820,7 +820,7 @@ Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96388.jpg" />
 </div>
 
 

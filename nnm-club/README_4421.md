@@ -1,3 +1,84 @@
+###  Публикация: 1824385   (136805) от 16.10.2025
+
+PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicious (3:58)
+02. Arabic Dance (3:33)
+03. Dudu (3:08)
+04. Don_t Try to Stop Me (3:48)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C32F92353C3EA94CC09CFAF70AAEFC416AF471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825193   (136806) от 16.10.2025
+
+Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mesmerize Me (4:09)
+02.  Raincoat (4:50)
+03.  Tommy (3:55)
+04.  A Song (4:02)(   Читать дальше...   )Жанр: Rock, Alternative & IndieПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2860BAD02D74A8EC8997032889720EADF2B1CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825192   (136807) от 16.10.2025
+
+Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Puppy (3:23)
+02.  Charged (3:16)
+03.  Tiger Queen (4:26)
+04.  Stampede Act (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0AE28CA5A5C98BB1CC85CC36987877627CF44C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825187   (136808) от 16.10.2025
 
 Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +87,7 @@ Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136808.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:45B76F61D1D6279047EEAE879123E23FBB38A23F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136809.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ magnet:?xt=urn:btih:7D66EF367122B331839E7AF4A65BDE90B9DA9BD6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136810.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:3262DBB1C21E6AE170C0B0A3383202828348FD2D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136811.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Gothik Serpent - The Examination II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136812.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ magnet:?xt=urn:btih:7C3CC15EDFF0C0A4F85C9FE2FFEA94F475C4EC24
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136813.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:F28AB238928702FC8384BC8CFD08FAD18EEB833F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136814.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:93A3A4C9E7F14A02CA95D35815CC22B9D95285BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136815.jpg" />
 </div>
 
 
@@ -204,7 +285,7 @@ magnet:?xt=urn:btih:6F5726386B33BC96021E42A8C7538C3863DFAA94
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136816.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136816.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ MAX Desktop 25.13.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136817.jpg" />
 </div>
 
 
@@ -252,7 +333,7 @@ magnet:?xt=urn:btih:D6778A0E59FA84AC867B5ABD28D16FD5B08C7FCA
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136818.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136819.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ magnet:?xt=urn:btih:4FE321F247CBD5A54817B6DDE63D31CAF337C603
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136820.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ magnet:?xt=urn:btih:1097532DBBCC5B3109A34DE68C0DF0A8478BBD78
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136821.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ magnet:?xt=urn:btih:F57FDD3FBE0833BBE4777FD1A3C7348568E50501
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136822.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:BE27EBA79828501EF1FED4E0C0FB02C95519FC24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136823.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ magnet:?xt=urn:btih:B6E656F3B658FB80701CA7648BAC3854A7ADC137
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136824.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ magnet:?xt=urn:btih:610E703002DDFD3E4A76E2BD9F631B50B2B4C1D1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136825.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ magnet:?xt=urn:btih:E7B0A8C21D749B21970DAB6731AAB834BEC46F82
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136826.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ magnet:?xt=urn:btih:3C117FE3A29D911A26397F3247B0E5B1C5F4C37E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136827.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ magnet:?xt=urn:btih:C0828E59004431B65CF2E34B922BB486AE15D2F2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136828.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ magnet:?xt=urn:btih:F64BA04DC54059B711F74A73D1DD44DAD991EF83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136829.jpg" />
 </div>
 
 
@@ -548,7 +629,7 @@ magnet:?xt=urn:btih:348FCEA6D16A1A829BA18A3CD7C4D625CC4FBD01
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136830.jpg" />
 </div>
 
 
@@ -559,81 +640,6 @@ magnet:?xt=urn:btih:348FCEA6D16A1A829BA18A3CD7C4D625CC4FBD01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A201051A5F2551E4087A9DE548A86448709977AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824694   (136831) от 16.10.2025
-
-Саша Фишер | На стороне солнца (Книги 1-4) (2024-2025) [MP3, Павел Архипов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все страны, события и герои вымышлены, но совпадения и ассоциации не случайны.
-Действие книг происходит в вымышленном государстве, созданном по образу и подобию Германии 1900 - 1937 годов XX века. С небольшим допущением - в этом мире есть люди с паранормальными способностями.
-Источники вдохновения - шпионские романы середины прошлого века.
-P.S. Слово "фюрер" (   Читать дальше...   )Жанр: Фэнтези, триллер, шпионскийИздательство: ЛитРесПродолжительность: 37:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DECC069F8E527EB978B21A0350DE110E16A45A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825023   (136832) от 16.10.2025
-
-Джон Уик 2 / John Wick: Chapter Two (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: США, Гонконг / 87Eleven, Lionsgate, Summit Entertainment, Thunder RoadЖанр: боевик, триллер, криминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчио, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоуренс Фишборн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный (Лицензия), многоголосыйЯзык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014E0A78926A1BDDFBB89B765537728EB3A0C2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825078   (136833) от 16.10.2025
-
-VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136833.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский, Русский (через русификатор)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085BEE46AD5AAA110B65B0A7E5469F43E4BE3686
 ```
 
 

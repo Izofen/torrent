@@ -1,3 +1,82 @@
+###  Публикация: 1743909   (105326) от 18.08.2024
+
+La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa (5:02)
+02. Pan Con Salsa (4:25)
+03. Eight Days A Week (3:19)
+04. And I Love Her (3:37)(   Читать дальше...   )Жанр: Latin, Funk Soul, SalsaПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7013198736AD043437F29F087A48CC1C9695AF5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743781   (105327) от 18.08.2024
+
+Триада - Шестое Чувство (2009) [WavPack|Lossless|image + .cue] <Hip Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бум
+ 02. Моя Звезда
+ 03. МС
+ 04. Одна(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743952   (105328) от 18.08.2024
+
+Газета | Невыдуманные истории №32 (436) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105328.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A382750E6042ED605E71831F3998DD81926D6D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743918   (105329) от 18.08.2024
 
 Газета | Народный совет №33 (6 августа 2024) [PDF]
@@ -6,7 +85,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105329.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:A69B54C2AEE39DDE9443BA34C6852162760F285A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105330.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ Spektra - Hypnotized (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105331.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105332.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ magnet:?xt=urn:btih:79F19B29D344364BB4F3FD2709CE1AD87B7790CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105333.jpg" />
 </div>
 
 
@@ -130,7 +209,7 @@ magnet:?xt=urn:btih:4FCF72045667F900D1B0736E30A8DD0A2CDE25E5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105334.jpg" />
 </div>
 
 
@@ -154,7 +233,7 @@ magnet:?xt=urn:btih:8C0474EE80B280C3B75FB80370F0A4F78942DFD6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105335.jpg" />
 </div>
 
 
@@ -181,7 +260,7 @@ magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105336.jpg" />
 </div>
 
 
@@ -208,7 +287,7 @@ Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105337.jpg" />
 </div>
 
 
@@ -235,7 +314,7 @@ magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105338.jpg" />
 </div>
 
 
@@ -259,7 +338,7 @@ Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105339.jpg" />
 </div>
 
 
@@ -286,7 +365,7 @@ magnet:?xt=urn:btih:66E0758CAAEE1A02E8E8A4046688EAD7C59F1034
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105340.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ magnet:?xt=urn:btih:2ED191E724181B5481DD9C03423878256F78C525
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105341.jpg" />
 </div>
 
 
@@ -336,7 +415,7 @@ magnet:?xt=urn:btih:80A54251AAA0DDF77C0C4EEE92D1B5A057C75799
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105342.jpg" />
 </div>
 
 
@@ -361,7 +440,7 @@ magnet:?xt=urn:btih:372FBD71C7FC597EABA41DE3F42A5243AD21A7B5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105343.jpg" />
 </div>
 
 
@@ -386,7 +465,7 @@ And So I Watch You From Afar - 7 Albums (2009-2024) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105344.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ PowerDirector – Video Editor v14.3.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105345.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ PeaZip 9.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105346.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ Johann-Strauss-Orchester - Opernball (2008) [WavPack|Lossless|image + .cue] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105347.jpg" />
 </div>
 
 
@@ -488,7 +567,7 @@ Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105348.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105349.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ magnet:?xt=urn:btih:00D104D4265EFA26440B4C10BF45DBD19D4161E6
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105350.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ DailyArt - Daily Dose of Art v3.3.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105351.jpg" />
 </div>
 
 
@@ -580,87 +659,6 @@ DailyArt - Daily Dose of Art v3.3.1 Mod by youarefinished [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC88105DB4379805AD9CD1E445756F05DE3BA4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743793   (105352) от 18.08.2024
-
-Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - LOST [00:03:32]
-02 - Restored [00:04:40]
-03 - Live Without [00:04:20]
-04 - Lifeline [00:04:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8CC4871CB8BA38C5F1BF3BDC37D8D42D0765EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743788   (105353) от 18.08.2024
-
-Kalax - LOST (2024) [MP3|320 Kbps] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - LOST [00:03:32]
-02 - Restored [00:04:40]
-03 - Live Without [00:04:20]
-04 - Lifeline [00:04:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E661143B3E1EC5ABDEF8835A5370476374505865
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743770   (105354) от 18.08.2024
-
-Татьяна Чубарова - Полынь да крапива (2010) [WavPack|Lossless|image + .cue] <Stage, Folk, Pop, Chanson>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где
- 02. Кукушка
- 03. Дела
- 04. Не боли, душа(   Читать дальше...   )Жанр: Stage, Folk, Pop, ChansonПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA851E11600BC2929A060CB5C2ED8BBA929AA89
 ```
 
 

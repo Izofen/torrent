@@ -1,3 +1,84 @@
+###  Публикация: 489360   (101766) от 28.04.2012
+
+At Vance - Facing Your Enemy (2012) [MP3|320 кб/с]<Neoclassic Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is Calling (4:51)
+ 02. Facing Your Enemy (4:32)
+ 03. Eyes Of A Stranger (3:44)
+ 04. Fear No Evil (3:52)
+ 05. Live & Learn (3:33)
+ 06. Don t Dream (5:27)
+ 07. See Me Crying (6:06)
+ 08. Saviour (3:39)
+ 09. Tokyo (4:09)
+ 10. March Of The Dwarf (1:53)(   Читать дальше...   )2012Жанр: Neoclassic Power MetalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0551CB7A840403895DA3681DB06EB1A51FA5693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489185   (101769) от 28.04.2012
+
+Подснежники и эдельвейсы (1982) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 1942-го года отряд бойцов во главе с инструктором-альпинистом получает задание — убрать свастику, прикрепленную на одной из вершин Кавказа. Преодолев полный опасностей путь, герои сталкиваются на вершине с моторизованной колонной дивизии «Эдельвейс» и вступают в неравный бой с врагом.Жанр: ВоенныйРежиссер: Левон ГригорянАктеры: Лоренц Арушанян, Аршак Оганян, Араик Едигарян, Анаида Агаджанян, Андрей Ростоцкий, Александр Январёв, Виктор Мамаев, Павел Ремезов, Альберт Затикян, Нартай Бегалин, Мартын Погосян, Сергей Лоздейский, Георгий Мартиросян, Афанасий Тришкин, Левон Григорян, Нина Дмитрюк, Гамлет МартиросянПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF5BA9F28EED8C8FAFC888DE93198CACBD03A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489146   (101771) от 28.04.2012
+
+[Wallpapers] Обои для Рабочего стола - Оружие [1740 шт.] (2012)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола:Разрешение файлов: 450x600 - 2128x4256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488660   (101773) от 28.04.2012
 
 The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofolk>
@@ -6,7 +87,7 @@ The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofo
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101773.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ Various Artists - Codreanu - Eine Erinnerung An Den Kampf (2001) [mp3|320 kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101774.jpg" />
 </div>
 
 
@@ -72,7 +153,7 @@ magnet:?xt=urn:btih:AA4029EB45340C5D8738F7C3503AB4D688C1AC74
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101776.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101778.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ magnet:?xt=urn:btih:F4CE95657223FD65EF70F216609D2937E4546D81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101782.jpg" />
 </div>
 
 
@@ -154,7 +235,7 @@ magnet:?xt=urn:btih:57C92849A4BAC343A7395CC5B8A6F7FB193252C6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101783.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:DBBE19289B7879DF1B21EE40C74234CDB914E7CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101784.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ magnet:?xt=urn:btih:804FCBAC6CC957239D433BFF1272946A76DA0D8C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101787.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [APE|Lossless]<Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101789.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101791.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101796.jpg" />
 </div>
 
 
@@ -310,7 +391,7 @@ magnet:?xt=urn:btih:7DBFFC4D7D1CC1BEE35A7C4C291B51DD3C28EECB
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101798.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ magnet:?xt=urn:btih:325685AE30B7AB4590980C17B743E5846D48CF76
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101800.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ Menzoberranzan [En] (RePack) 1994 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101801.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ Menzoberranzan [En] (RePack) 1994 | Pilotus
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101808.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ magnet:?xt=urn:btih:A3D014CC1073FA8B36341D0C67721D15FF65C79E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101812.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101812.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ magnet:?xt=urn:btih:A3D014CC1073FA8B36341D0C67721D15FF65C79E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101813.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ magnet:?xt=urn:btih:ADC7F9B563840669F5E7F713C8711A97DD5DDAA9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101814.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ magnet:?xt=urn:btih:7ACC0C6612182FC0D50F8B2DC4267E329BF18E2D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101816.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [MP3|320 кб/с]<Da
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101817.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ Aziza Mustafa Zadeh 3 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101819.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101819.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ Aziza Mustafa Zadeh 3 CD [FLAC|Lossless]<Jazz>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101824.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ Yannic Noah - Pokhara (2003) [FLAC|Lossless]<french pop, chanson francaise, regg
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101826.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101826.jpg" />
 </div>
 
 
@@ -602,81 +683,6 @@ Yannic Noah - Pokhara (2003) [FLAC|Lossless]<french pop, chanson francaise, regg
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489248   (101827) от 28.04.2012
-
-Странное дело.  Планета динозавров. Хроника ликвидации  (2012.04.27) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Планета динозавров. Хроника ликвидации
-Странное дело Планета динозавров. Хроника ликвидации Эфир 27.04.2012
-1983 год. В Туркмении археологи обнаружили следы динозавров, а рядом - следы человека...Жанр: ТелепередачаПродолжительность: ~ 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F79C64F811DB938BED0F116BFD769291CB88441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488920   (101830) от 28.04.2012
-
-Один пропущенный звонок / One Missed Call (2008) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда на мобильный телефон поступают странные звонки. Голос в трубке — ваш собственный, но все что вы слышите, это жуткий предсмертный вопль. Теперь вы знаете время и обстоятельства вашей гибели. Она случится ровно через три дня.Жанр: Ужасы, Триллер, ДетективРежиссер: Эрик Валетт / Eric ValetteАктеры: Шаннин Соссамон, Эдвард Бёрнс, Ана Клаудия Таланкон, Рэй Уайз, Азура Скай, Джонни Льюис, Джейсон Бех, Маргарет Чо, Миган Гуд, Рода ГриффисПеревод: ДублированныйПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489345   (101834) от 28.04.2012
-
-Дмитрий Емец | Третий всадник Мрака (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья книга из цикла "Мефодий Буслаев".
-Полубоги не уходят без следа. Они не могут покинуть этот мир, не передав бессмертие и дар... Валькирия умирала... Умирала, раненная мечом, который разит даже бессмертных. Умирала в кухне зауряднейшего из домов, на полу, залитом ее кровью. Рядом с ней лежала Ирка, упавшая с инвалидного кресла и с ужасом и восторгом (   Читать дальше...   )Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9E9CDE00F03ED42E1CE216F5FB98C1A7718E81
 ```
 
 

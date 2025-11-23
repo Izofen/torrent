@@ -1,3 +1,189 @@
+###  Публикация: 1423386   (152305) от 23.12.2020
+
+Снайпер / Sniper / Miao Zhun (2020) WEBRip (сезон 1, серии 1-57 из 57) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1949 года опытный снайпер Су Вэньцянь, скрывавший свою личность, получает задание войти в отдел особо опасных преступлений в качестве консультанта, чтобы уничтожить организацию тайных убийц. В то же самое время враг посылает Ши Тиешэна, который является их убийцей номер один. Два легендарных снайпера оказываются по разные стороны баррикад из‑за различий (   Читать дальше...   )Производство: Китай / Dragon TV, ZJTVЖанр: ДрамаРежиссер: Orkenbek Baysenbay, У БайАктеры: Xiao Bao, Майкл Чэнь, Zhiqiang Chi, Мэй Фу, Хуан Сюань, Хо Цин, Сьерра Ли, Донг Фу Лин, Лю Бин, Tu Lü и др.Перевод: Многоголосый профессиональный (BaibaKo)Продолжительность: ~00:45:00 серияРеклама: Релиз содержит рекламные вставки
+
+Внимание! Присутствует ненормативная лексика.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630CE03179BC1AF8CDB42E24AB3C6B740A7A6F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588951   (152306) от 14.12.2012
+
+Cytotoxin - Radiophobia (2012) [MP3|320 кб/с]<Technical Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival Matrix (02:58)
+ 02. Ionosphere (02:48)
+ 03. Frontier Of Perception (05:03)
+ 04. Radiophobia (03:49)
+ 05. Dead Zone Walkthrough (03:00)
+ 06. The Red Forest (03:19)
+ 07. Heirs Of Downfall (04:38)
+ 08. Fallout Progeny (04:14)
+ 09. Abysm Nucleus (05:36)
+ 10. Prypjat (02:17)Жанр: :kruto:Продолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698286DA8B67540673554271177DECCDC3CB2B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086430   (152307) от 24.12.2016
+
+Александр Шибаев | Язык родной, дружи со мной (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как выросла эта книга?
+Как все. Как вы. Как все.
+Сначала она была совсем маленькая. В 1 965 году (вы еще не родились) в ней было всего десять страничек да обложка и называлась она еще не "язык", а только - "буква". Полностью - "Буква заблудилась". С этой книжечки началась наша совместная работа с особенным поэтом Александром Александровичем (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF070867C2CFB4C0A06B9FCDC5F8C8DC4EF1D386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601157   (152308) от 30.12.2022
+
+Falcon Scream - Falcon Scream (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picture Frames
+02. Shadow In The Night
+03. Goin Blind
+04. 4 Lines(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08D478E968B609CECD3ECDBBCD9C41705831E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347184   (152309) от 23.12.2019
+
+Хоккей. НХЛ 2019-2020. Тампа-Бэй Лайтнинг - Вашингтон Кэпиталз (21.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152309.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 декабря 2019 года, воскресенье 03:00 МСК
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
+Главный судья: Дин Мортон (Питерборо, Канада); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED021EB7C01C7684068065D1D2E622A28187B81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677089   (152310) от 16.11.2023
+
+Мальчики-налетчики / Takers (2010) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152310.jpg" />
+</div>
+
+
+###  Подробнее
+
+После серии блестяще спланированных ограблений банков команда взломщиков-профи, известных на всю Калифорнию, решается пойти на последнее, самое прибыльное дело. Такой шанс просто нельзя упустить, ведь на кону 25 миллионов долларов. Вот только есть один упертый полицейский, который готов на все, чтобы уничтожить банду мальчиков-налетчиков.Производство: США / Screen Gems, Rainforest Films, Grand Hustle EntertainmentЖанр: боевик, криминалРежиссер: Джон ЛьюсенхопАктеры: Пол Уокер, Хейден Кристенсен, Мэтт Диллон, Зои Салдана, Марианн Жан-Баптист, Крис Браун, Майкл Или, Идрис Эльба, Стив Харрис, Ти АйПеревод: Дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4759B781F658B22F5EA7308169F89B3554D2BFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421275   (152312) от 23.12.2020
+
+Мандалорец / The Mandalorian (2020) WEB-DLRip (сезон 2, серии 1-8 из 8) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: Многоголосый закадровый - Студия «AMS»Субтитры: русские, английские (отдельными файлами в раздаче)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CF1BA0481598E6087DCBEB99058B60FDA3C2CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521438   (152314) от 24.12.2015
 
 Холодная гора / Cold Mountain (2003) [720p] BDRip
@@ -6,7 +192,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_152314.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_152314.jpg" />
 </div>
 
 
@@ -31,7 +217,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152316.jpg" />
 </div>
 
 
@@ -55,7 +241,7 @@ magnet:?xt=urn:btih:86D60BDDDED61ED934153E1DA3A4F40D01A25663
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152318.jpg" />
 </div>
 
 
@@ -79,7 +265,7 @@ magnet:?xt=urn:btih:D286D4663E53B72450ED794EE9E7E3F6128DADA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152319.jpg" />
 </div>
 
 
@@ -103,7 +289,7 @@ Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152320.jpg" />
 </div>
 
 
@@ -130,7 +316,7 @@ magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152321.jpg" />
 </div>
 
 
@@ -154,7 +340,7 @@ magnet:?xt=urn:btih:150A998711ABD47E30A1EE66CF32FAEC28DDD78F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152322.jpg" />
 </div>
 
 
@@ -179,7 +365,7 @@ Emigrate - 3 Albums, 3 Singles (2007-2018) 6CD [FLAC|Lossless|image + .cue|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152323.jpg" />
 </div>
 
 
@@ -206,7 +392,7 @@ magnet:?xt=urn:btih:A5DEB418752564789493603D7CD37F78F9411F45
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152324.jpg" />
 </div>
 
 
@@ -232,7 +418,7 @@ magnet:?xt=urn:btih:A59E3E6DC4413669955049641A4177CA7A0D3720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152325.jpg" />
 </div>
 
 
@@ -257,7 +443,7 @@ Icecream Screen Recorder PRO 7.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152326.jpg" />
 </div>
 
 
@@ -281,7 +467,7 @@ macOS Big Sur 11.1 (20C69) [образ для BDU]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152327.jpg" />
 </div>
 
 
@@ -305,7 +491,7 @@ QuickMemoryTestOK 4.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152328.jpg" />
 </div>
 
 
@@ -331,7 +517,7 @@ Live Home 3D Standart 3.5.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152329.jpg" />
 </div>
 
 
@@ -357,7 +543,7 @@ Backgrounds 7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152330.jpg" />
 </div>
 
 
@@ -384,7 +570,7 @@ magnet:?xt=urn:btih:0D9C9B80474E7742A0D608794C4C62BBED44D16C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152331.jpg" />
 </div>
 
 
@@ -408,7 +594,7 @@ magnet:?xt=urn:btih:AF0FA488F65C55E81AA8F5C79E01E26F31067436
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152333.jpg" />
 </div>
 
 
@@ -432,7 +618,7 @@ magnet:?xt=urn:btih:C82DB0E9D531F08365D93D5E1941FC8AE75CFB24
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152335.jpg" />
 </div>
 
 
@@ -457,7 +643,7 @@ magnet:?xt=urn:btih:791A71979C638B263BA657CDC7B35A2CF81180A1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152336.jpg" />
 </div>
 
 
@@ -471,182 +657,6 @@ magnet:?xt=urn:btih:791A71979C638B263BA657CDC7B35A2CF81180A1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C2BA72B3AB1F5831C99CAC21318D6D6ACB146C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677144   (152338) от 16.11.2023
-
-Фотография - Mangrove Photography Awards 2023 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жюри конкурса Mangrove Photography Awards объявило победителей 2023 года. Год за годом фотографы со всего мира делятся снимками, которые помогают повысить осведомленность окружающих о мангровых лесах, об угрозах, с которыми сталкиваются эти экосистемы, и о необходимости принятия срочных мер для их защиты.
-
-В этом году на соревнование было подано более 2000 заявок (   Читать дальше...   )Формат: PNGРазрешение файлов: 1600x2204 - 5000x3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4700A60CC286324C4ADF9B2C3588C27867954B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968492   (152339) от 24.12.2015
-
-Topaz Glow 1.0.2 RePack by D!akov [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Glow - самостоятельная программа, а также плагин для Adobe Photoshop. Он создает волшебный люминесцентный светящийся эффект, который наполняет вашу работу чувством энергетического движения и потока. Он предназначен для создания динамических изображений с энергичными искрами неонового света. Эффекты можно полностью настроить, от тонких улучшений фона до электрификации (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72111F590FE88D241BFF2F24FC4DAB5A7538D383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601106   (152340) от 30.12.2022
-
-Эврика! / Eureka! (2022) SATRip (сезон 1, серии 1-9 из 9)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм рассказывает о молодой девушке-изобретателе, которая разрабатывает изобретения и хитроумные приспособления в надежде сделать мир лучше и перенести свое доисторическое сообщество в более современную эпоху.Производство: Сша, Disney Junior, Disney Television Animation, Wild CanaryЖанр: приключения, комедия, короткометражный, музыкальныйРежиссер: Мэйв Гарван, Нортон Вирген, Мартен ЙонмаркПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:12:13 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9323D7A59DFB191B07426EEFFFFA0DAA73A57837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433849   (152341) от 23.12.2020
-
-Эффективность за репутацию: зачем AstraZeneca вакцина «Спутник V» и кто от этого выиграет
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_152341.jpg" />
-</div>
-
-
-###  Подробнее
-
-AstraZeneca приняла предложение о сотрудничестве от разработчиков вакцины от коронавируса «Спутник V» и запустит клинические исследования комбинации своего и российского продукта. Для AstraZeneca это возможность сделать вакцину эффективней, а для «Спутника V» — подтвердить, что российская вакцина работает. Неудивительно, что комбинация делается с прицелом на внешние (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347346   (152343) от 23.12.2019
-
-Black Rose - Fortune Favours The Brave (1993) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Broken Saviours
-1999 - Age Of Innocence
-2000 - Live2KЖанр: Hard RockПродолжительность: 04:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226ED12BD11F3BD426E33AC852930953A6207711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194975   (152344) от 27.12.2017
-
-Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 1997, Narnia Self-released [MP3|320 Kbps] <Folk Rock, Pop Rok, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You'd Better Believe It
-2. Muddy Ground
-3. The Juggler
-4. Agape(   Читать дальше...   )Жанр: Folk Rock, Pop Rok, Prog RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA62AD1DA96AE7E8FE3BFB09A0F16753C90AFA21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826193   (152345) от 18.10.2025
-
-Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dune 2000 - стратегия в реальном времени с видом сверху. Император Фредерик Коррино 4 издал указ, согласно которому Дом, который сможет произвести больше всего пряности, будет управлять своим источником - планетой Дюной, без каких-либо ограничений относительно того, как это будет достигнуто. Как и в Dune 2, существует 3 главных игровых фракции - Дом Атрейдес, Дом (   Читать дальше...   )Тип издания: RepackРазработчик: Intelligent GamesЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87049.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87058.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87066.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87083.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:123FBF2269CA7D73F25DE5CC786173D398F76008
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87098.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:43B8BA056AD64F5C32FEC99F2482B21DD94B825D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87099.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:2F13EFAFA91C736750D31A6DAA8A9BE9343FDDB7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87110.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 (2012-04-07) [русский / а�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87112.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kaspersky AVP Tool находит и изолирует: вирусы, троя�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87118.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D1B25BAA8E4BEFFB2B6A8EA698332EA11FD24529
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87119.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A3BA846A90D0D51468C04DAAE3B9A027DAA95D30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87122.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:DD8E9BD41078713EB2C0E5E3A61E61834449DCD4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87123.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:AEEA14B25EE906A68C3FCF0B83C1A261757AB7DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87133.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Little Feat - Waiting For Columbus (1978) Remastered /2010, MFSL/ [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87136.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87139.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87144.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87147.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87149.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dr.WEB CureIt! 6.00.16 (07-04-2012) [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87151.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Dr.Web CureIt! определяет и удаляет: почтовые и се�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87157.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:8EEF0B15070445BB83EBC881D50EF13AA81AD8E3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87161.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:339A14393DEF96F353ACA9547FF5824E7BFF1455
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87162.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:339A14393DEF96F353ACA9547FF5824E7BFF1455
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87176.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:6E1C1B73699061EFFB8E4387A5FFB8C09CB19327
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87184.jpg" />
 </div>
 
 

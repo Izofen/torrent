@@ -1,3 +1,76 @@
+###  Публикация: 1696033   (120016) от 31.01.2024
+
+Bartender 5 v.5.0.50 beta [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 14.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CAE8590CEE1DB14B1F6FE970E9A1FF0ED5EF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696041   (120017) от 31.01.2024
+
+W10Privacy 5.1.0.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120017.jpg" />
+</div>
+
+
+###  Подробнее
+
+W10Privacy - программа для изменения настроек системы Windows 10 и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить/отключить.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5559DC60635AC65F5A295F5040A8DC15D62D03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695925   (120018) от 31.01.2024
+
+Мгновенный папочка / Instant Daddy (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холостяк Вал Рохас внезапно становится отцом маленькой Миры, когда мама девочки исчезает. Парню предстоит разобраться в себе и понять, что такое быть папой.Производство: Филиппины, США / Globalgate Entertainment, Viva FilmsЖанр: Комедия, драмаРежиссер: Крисанто Б. АкиноАктеры: Риза Сенон, Althea Ruedas, Jerald Napoles, Danita Paner, Джао Мапа, Nikko Natividad, MC Калакиан, Nicco ManaloПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:56Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C073034EF08F07DDA87DA95F3D3456440F2B68C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696045   (120019) от 31.01.2024
 
 Книжная серия | Справочные материалы [9 книг из 10] (1988 - 1994) [PDF, DJVU]
@@ -6,7 +79,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120019.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:3DBE19CB65913CF0D724C7A8879860371BF3A9B8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120020.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Tails 5.22 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120021.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120022.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:5092A9A676B3B3C0321BA13FEC2223D802DEBDE2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120023.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:33231FAB8BC217291B5A6F2E21FB14B188A101FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120024.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:673CA90FF26ACCB06D9A6CCB97769325C033F1C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120025.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:934C57B88C348FC31FE4F9CF5D30F583E60536F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120026.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:B1102241E308E078B9ADEF79B83F8FDC0E77305C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120027.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120028.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:AA1EC7F4917198EEDA7EC838C361217CBC9E40B5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120029.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:E24C888A392780733AAD0A43EE7334345B5299B1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120030.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:60C26F110538DEF711E91BCC751B1510F38DA500
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120031.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:98A8662608F34005FC9B32852ECA3FF83BF997CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120032.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:A85A8296E34AF84C7F060D588DDBB235BBC6298F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120033.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:336EDCC90FDADC94E11EF983C84DDFE5D6CF6850
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120034.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:25332F9A23845C5C6B255DB75E419EC768003797
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120035.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:CDC36263BA7F972B095FFDFEDEC1F9BAF1782009
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120036.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120036.jpg" />
 </div>
 
 
@@ -446,7 +519,7 @@ magnet:?xt=urn:btih:CDC36263BA7F972B095FFDFEDEC1F9BAF1782009
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120037.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:054E883A7E42601CBF7A594D88888BB8293185B4
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120038.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ magnet:?xt=urn:btih:AD76683C9B53C7F9D753F62247D6BFD6054B66D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120039.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ magnet:?xt=urn:btih:CD17FB22922CED2D8FD6F8C29E9962144C454FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120040.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:CD17FB22922CED2D8FD6F8C29E9962144C454FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120041.jpg" />
 </div>
 
 
@@ -555,79 +628,6 @@ magnet:?xt=urn:btih:CD17FB22922CED2D8FD6F8C29E9962144C454FA1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9479C5890AB43E1B59BF1D1FDAA0AFF6A16322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691302   (120042) от 31.01.2024
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20624 (2024.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8611F114B7C0612401EC5DEEA251631D4B22953
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695822   (120043) от 31.01.2024
-
-Догмен / Dogman (2023) BDRip [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он лучше всех на свете понимает собак. А те готовы выполнять любые его задания — украсть, припугнуть и даже приготовить блинчики. Догмен — не типичный супергерой с обложки комиксов. Его не волнуют проблемы людей, важно лишь одно — довольна ли стая. Но он единственный командует «взять», когда город прибирает к рукам влиятельный наркобарон.Производство: Франция / Luc Besson ProductionЖанр: БоевикРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Джоджо Т. Гиббс, Кристофер Денэм, Клеменс Шик, Джон Чарльз Агилар, Грэйс Пальма, Ирис Бри, Мариза Беренсон, ,Перевод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full)
-*** Версия фильма, длиннее русского WEB-DL на 4 минуты, на сцены без дубляжа сделаны Русские форсированные субтитры.Продолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CBF56729AD903C28AE78B1893B37C2A529A33E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200166   (120044) от 31.01.2024
-
-Хлоя / Chloe (2009) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэтрин — врач, Дэвид — профессор, у них прекрасный сын. На первый взгляд, это идеальная семья. Но однажды Дэвид опаздывает на самолет и пропускает семейное торжество, посвященное его дню рождения. С этого момента Кэтрин начинает подозревать мужа в измене. Женщина заключает сделку с Хлоей, которая должна соблазнить Дэвида и предоставить подробный отчет. Но со временем (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Атом ЭгоянАктеры: Джулианна Мур, Лиам Нисон, Аманда Сайфред, Макс Тириот, Р.Х. Томсон, Нина Добрев, Мишу Веллани, Джули Ханер, Лаура ДеКартере, Натали ЛисинскаПеревод: ДублированныйПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BA9300B087278C981AB204A2D103CFCA01040E
 ```
 
 

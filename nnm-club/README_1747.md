@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45777.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:5A939BD95FA63BEA6435C3BA5860ADEFF9E95989
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45778.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F70428E84A3E9EEDD1429580CE005E7129C5FDBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45779.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Super Antonio (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45780.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45781.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E06AED1AE445048614C37A8C3AB49BA4817843F4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45782.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:811F8EDE2D0300477F6D0918A939898AE449F80C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45783.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C6F0007EB272FD74DAB85F0CEB802FA7B044145A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45784.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:142A768D1F0A26FCB2FEFF2F9E74FEC866532C00
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45785.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:BD2F9CAD31EEE73844DDA82972B0FC9E2D333BE3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45786.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:70CEFD28DB88F5160C5B180ED56AFFA464DEE3B3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45787.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Frontiers Reach (2020) [En] (Chapter 3) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45788.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dicefolk (2024) [Ru/Multi] (20240819) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45789.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:0CEBE69359ACA1EDD109F54C916CE9C8635BE37B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45790.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C75648A96412988B436F70A9F40A35035DA1A826
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45791.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:B26A3778B754237F8A66026F0266069D84B7779C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45792.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:78E093270A5951A6AC10C843404905E3E4719FA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45793.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:78E093270A5951A6AC10C843404905E3E4719FA3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45794.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:ABEC24C6579F73309EF68DAE4C14B3932EA6D6C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45795.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:ABEC24C6579F73309EF68DAE4C14B3932EA6D6C7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45796.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5438A6EAFF5132D469453EBB7F180F8658BF0C7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45797.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E4F4CB6C9E7A2E5FDF0F04DFEF04A3551D943510
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45798.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Any Video Downloader Pro 9.0.5 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45799.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:5E4E17B586392FFD827142398C0CA31C0D5120B7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45800.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:22DF7366EA71F86A0E41CEDF644894419F06061C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45801.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:1E4A54D95ED92B0A1E651BB49B2996E5A822966D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45802.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1679026   (133268) от 01.12.2023
+
+Соседка (2023) WEBRip [H.264/720p] (сезон 1, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатипятилетний Фёдор Садовский — скромный директор клининговой компании, в чьей жизни давно нет места ни новым людям, ни уж тем более подвигам. Последние несколько лет его единственные развлечения — работа и шахматные турниры с лучшим другом Борей. При этом на доме, в котором проживает Фёдор, висит мемориальная доска в память об его отце — знаменитом советском (   Читать дальше...   )Производство: Россия | «Good Story Media», «ТНТ»Жанр: Лирическая комедияРежиссер: Байбулат БатуллаАктеры: Егор Корешков, Юлия Хлынина, Дмитрий Лысенков, Алексей Чадов, Елена Валюшкина, Дарья Пицик, Анастасия Светлова, Мария Шумакова, Игорь Чернявый, Игорь ХрипуновПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1873B2ADC6518B70A8E4D156037B10BDF2AAB348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681043   (133270) от 01.12.2023
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Тампа-Бэй Лайтнинг (30.11.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 декабря 2023, пятница. 03:00 МСК. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728EDFEAD0FFF9EF585254DA4DF7554C8127CB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681078   (133272) от 01.12.2023
+
+Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skinwalker Hunt — это симулятор охоты, смешанный с хоррором, от создателя игры Witch Hunt. Основными особенностями игры является фокус на исследовании, нелинейности и атмосфере. Вам предстоит играть за коренного американца, который занимается охотой на монстров. Вас ждет охота на легендарное существо под названием cкинуокер, охота на которое будет происходить в различных (   Читать дальше...   )Тип издания: RepackРазработчик: GuaЖанр: Simulator, Horror, 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594902   (133273) от 27.12.2012
 
 Журнал | Broadcasting. Телевидение и радиовещание №8 [декабрь 2012] [PDF]
@@ -6,7 +79,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133273.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:860141B9BCF8A75B8D1BF3DF18BD66199DB926C9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133274.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:9235CBA98354F2875BC09398B3D1C696C285A6D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133275.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:33D3D23555D80F2FBCD727C2EE9D59C3E32DE3C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133276.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:45031E043ACEF2784E50FB7654246F1FD04AAA2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133277.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:21808DE078B7EA7B30285EE6609022BAEE5D7E54
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133278.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ magnet:?xt=urn:btih:A19105A8B66CF1340CA72CE572654B37D4D0D2F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133279.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:1D1C151A5A6E609B4ACCAE3FCF2271932AA9B952
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133281.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:ECF4C8187708D3BFE2FD665EBE3B0616B03DF4BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133282.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133287.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133288.jpg" />
 </div>
 
 
@@ -281,7 +354,7 @@ magnet:?xt=urn:btih:34BACABAA19894DB4A732AB437119FAFB2E9B031
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133289.jpg" />
 </div>
 
 
@@ -305,7 +378,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133290.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:549A807C7E2DCCE86111061F80DE926E3D45235F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133292.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ magnet:?xt=urn:btih:CDACD2F05E6CA176332CDA132E8A3F4A41C31092
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133294.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ Stand Up (2023.12.01) SATRip (сезон 11, выпуск 11)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133295.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ SamDrivers 23.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133296.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ magnet:?xt=urn:btih:6DD9F9E5F67CB5617E7866FAC33ACA0907256BEE
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133297.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ Dark Souls: Prepare To Die Edition [Ru/En/Multi9) [Steam-Rip/1.0.0.1] 2012 | R.G
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133298.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ GPU-Z 2.56.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133299.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ Windows 7 Ultimate SP1 x64 Beslam Edition (v.8 Updated) 20.12.2012 [Русски
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133300.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ W10Privacy 5.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133301.jpg" />
 </div>
 
 
@@ -549,87 +622,13 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Retail + BootCD + Boot 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133302.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Paragon Домашний Эксперт™ 12 представляет собой интегрированный набор эффективных в работе инструментов, разработанных специально для разрешения большинства проблем, с которыми может столкнуться пользователь ПК. Его функциональность включает все аспекты жизненного цикла компьютера от выполнения практически любых операций с разделами до установки системы с нуля и (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680907   (133303) от 01.12.2023
-
-Compressor 4.7 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: Apple Inc.Поддерживаемая ОС: macOS 13.5 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA13825A2443DFE2BD8777D04056DB539DFB3502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681082   (133305) от 01.12.2023
-
-Я богиня (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наивная школьная учительница Лена в одночасье лишается и работы, и мужа. «Проблема точно во мне», – решает она и по совету подруги записывается перекраивать себя на тренинг «Стать богиней». Результат налицо: новый имидж и влюбленный поклонник Андрей. Вот только не понятно, получилось ли у Лены найти себя, и не потерялось ли в процессе что-то очень важное...Производство: Россия, ЛУКФИЛЬМ / LOOKFILM, STARTЖанр: комедия, мелодрамаРежиссер: Ольга ДибцеваАктеры: Александра Бортич, Антон Васильев, Антон Филипенко, Евгения Калинец, Евгений Муравич, Степан Девонин, Александр Мосин, Сергей Ильин, Никита Брусов, Мария КлешнинаПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE2A4B695D0CFDE1F244D00FB2B0B3A5A83C651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593874   (133306) от 26.12.2012
-
-Windows 7 Ultimate SP1 x86 Beslam Edition (v.8 Updated) 20.12.2012 [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе MICROSOFT:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.
-Автоматическая, Полуавтоматическая, Ручная установка. Интегрированы последние обновления по дату: 6.12.2012. Дистрибутив пропатчен для применения сторонних тем. Максимальный упор на производительность.Название программы: Windows 7 Ultimate SP1 x86 Beslam™ Edition (v.8 Updated)Язык интерфейса: русский
 
 ## Скачать торент
 ```bash

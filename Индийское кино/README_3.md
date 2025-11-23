@@ -1,3 +1,27 @@
+###  Публикация: 1649379   (195076) от 27.07.2023
+
+Чакравьюхам: Ловушка / Chakravyuham: The Trap (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сири, деловой партнер и домохозяйка, была найдена с перерезанным горлом. Следователь пытается раскрыть дело. Сможет ли он выяснить, кто и почему убил ее?Производство: Индия, AHASRA Creations.Жанр: Криминал, детектив, триллерРежиссер: Четкури МадхусудханАктеры: Аджай, Divya Dicholkar, Shrikanth Iyyanngar, Сандхия Янак, Раджив Канакала, Gnaneswari Kandregula, Кирити Дамараджу, Pragya Nayan, Урваши Пардеши, Mamilla Shailaja PriyaПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, телужскийСубтитры: английскиеПродолжительность: 01:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8FCBB0FC9AE272DD6B23462D1A09591CECF11F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637039   (197585) от 02.06.2023
 
 Катал - Тайна джекфрута / Kathal: A Jackfruit Mystery (2023) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +30,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197585.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197585.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:488A48FC8FE19E8D59659E5CD0B19E74F0B7A718
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197614.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197614.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:381EF31D6759AA2F2D1F9DD19AE445E2B04CE298
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198078.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:62B1B4A9C945435F3DADB54505861EFF29EBA797
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200305.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200305.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:A68EF95C790F711C2F645C7CBB268772F65E89A8
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200579.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200579.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:A0456F01FE78C950836B3F88498FC433933CAEBE
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200598.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:E4AB3978BA556B5AB5DA1AE1DA3960779124AB99
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200650.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200650.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:87C7550D32BEBDAA31D56951A304F055AE83CFFD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200667.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200667.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:D1465AFFC493C080B98ED9414E8C18B74018E961
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200991.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_200991.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:2B10E7DC58CC0DAE0CF8A186F9C7493DF351CFC6
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201258.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201258.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:A04FEC89C3F50958EF56EC061EE36A242D57E8CF
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202648.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202648.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:B6D58DD46019BF15CE6320F10E8F353DDCBCD640
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203450.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203450.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:987F95226071F91385B40EC705D711D8340C14BD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203505.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203505.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:7289CB83F81721A153A6509CDF9CFF28EE2B68E2
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204172.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204172.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:5053B663985A3EDBEA7517A4CEA74252F8D13EE8
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204506.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204506.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:62B660DD9955B8FE3FAFCE104D50302739D07700
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204980.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204980.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:800BEC164E37713FF945EAC13F37E349D8D0D8B0
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206952.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206952.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:6F4034598F13BEDD9BA5E531B2BF5AA15599B401
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209218.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:973D626D36236C76B71E412A3D2C11DFC8CD9E35
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210250.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210250.jpg" />
 </div>
 
 
@@ -462,7 +486,7 @@ magnet:?xt=urn:btih:8F378F41F83AA8279A5447A04C4775563AF713E3
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210293.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210293.jpg" />
 </div>
 
 
@@ -486,7 +510,7 @@ magnet:?xt=urn:btih:3EC28AF6C58EB80D3577CAFAA06662DDB12FD3FE
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210545.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210545.jpg" />
 </div>
 
 
@@ -510,7 +534,7 @@ magnet:?xt=urn:btih:CD01D78818FCFA46353D89618F64CB5DC7B1DD46
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220053.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220053.jpg" />
 </div>
 
 
@@ -534,7 +558,7 @@ magnet:?xt=urn:btih:50A5C5D6428CFD6CCFA263DF2608A76217E8C721
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220243.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220243.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ magnet:?xt=urn:btih:A8E36025BE10E67899F77F31A4D6D818E77A0AAD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238286.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238286.jpg" />
 </div>
 
 
@@ -582,7 +606,7 @@ magnet:?xt=urn:btih:189AD7FDF2C562E2123F27C69832AB3B057A00D3
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242639.jpg" />
 </div>
 
 
@@ -593,30 +617,6 @@ magnet:?xt=urn:btih:189AD7FDF2C562E2123F27C69832AB3B057A00D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12D38AC0BD29ECFAFE51E14F16756C954459F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621853   (244830) от 26.03.2023
-
-Бунтарь / Baaghi (2016) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ронни нельзя назвать дураком, но в свои 23 года он своеобразно выражает свои мысли и решает спорные вопросы. Он мог бы стать отличным врачом или учёным, но бунтарский характер не даёт ему такой возможности. Устав от вечных проблем, родители отправляют парня на обучение в академию, где на первом месте стоит дисциплина. Там Ронни сразу проявляет свой бунтарский дух, (   Читать дальше...   )Производство: Индия / Benetone Films, Nadiadwala Grandson EntertainmentЖанр: боевик, мелодрамаРежиссер: Сабир КханАктеры: Тайгер Шрофф, Шраддха Капур, Судхир Бабу Посани, Шифуджи Шаурья Бхарадвадж, Сунил Гроувер, Sourav Chakraborty, Арьян Праджапати, Санджай Мишра, Самит Гулати, Ahmed AmjadПеревод: Многоголосый профессиональный (Zee TV)Язык озвучки: русский, индийскийСубтитры: английскиеПродолжительность: 02:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EBDA624112AEAE630FB5A677D2D9BF3E3D26809
 ```
 
 

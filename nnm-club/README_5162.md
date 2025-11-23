@@ -1,3 +1,187 @@
+###  Публикация: 1599707   (159630) от 24.12.2022
+
+Неоткрытая Авоська - 1 Album, 2 Singles (2022) [MP3|320 Kbps] <Punk-Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Дальневосточная (Неоткрытая Авоська feat. Голос Омерики) (Single)
+2022 - Морж роман (Single)
+2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599744   (159631) от 24.12.2022
+
+Леся Шишкова | Страшный сон блондинки (2021) [MP3, Aagira]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не покупайте непроверенную косметику из страны сакуры. А то приснится…Жанр: Юмор, ФантастикаПродолжительность: 00:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF0CC35809A2FBEC91F1A1BA078D04C8FE667AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599713   (159632) от 24.12.2022
+
+Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells
+02. Let It Snow
+03. My Gift Is You
+04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E520513669F6920A062BD2143E7A4EF1B740241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599441   (159633) от 24.12.2022
+
+Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Many More Times (4:10)
+02. Hello (3:25)
+03. Paint It White (4:01)
+04. My Life (4:25)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73F4B0CCE98080E77DC440C3D741DC4960441A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599734   (159634) от 24.12.2022
+
+Галина Гончарова | Черное зеркало, белый алтарь (2022) [MP3, Оксана Шокина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая история разворачивается в Академии Магии. Какие секреты скрывает новенькая?
+
+Случайность – и вместо Наташи, любительницы булочек и романов, в Академию Магии попадает тоже Наташа, но любительница котлет и детективов. Романы она не читала, а вот подвох чует. И в свалившееся на нее счастье не верит. И в любовь с первого взгляда – тоже. Только в расчет. (   Читать дальше...   )Жанр: Романтическое фэнтези, ПопаданцыПродолжительность: 13:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606105D288F46CC711D454697629DE45C4AFF2A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599742   (159635) от 24.12.2022
+
+VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milad E & David Deere - Metamorphic (Original Mix) (3:09)
+02. Andrew Mirt & Natune - My Fairytale (KWONE Extended Remix) (4:25)
+03. Paul Echo - The Journey (Extended Mix) (5:34)
+04. POPOFF & Ria Joyse - Full Of Love (Extended Mix) (5:36)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0591115DE24797BD9C42C2C0ACD3000B1C08B78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599796   (159636) от 24.12.2022
+
+Наталья Мазуркевич | Семь бед - один адепт (Книга 1). Семь бед - один адепт (2021) [MP3, Анна Басс]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159636.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Семь бед – один адепт" – фантастический роман Натальи Мазуркевич, жанр любовное фэнтези, попаданцы.
+
+Терпение и труд до добра не доведут. Особенно если работа сопряжена отнюдь не с добром. Вот и головная боль начала проявляться (в ее-то возрасте!), и радость жизни куда-то исчезла, а толпы страждущих захватить забыла. И никуда от них, страждущих, не деться. (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, ПопаданцыПродолжительность: 10:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D483974EACD0A34FE6CA120AA9022024E35C5E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599573   (159637) от 24.12.2022
 
 VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
@@ -6,7 +190,7 @@ VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159637.jpg" />
 </div>
 
 
@@ -33,7 +217,7 @@ magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159638.jpg" />
 </div>
 
 
@@ -57,7 +241,7 @@ magnet:?xt=urn:btih:9994A45732BC3B3F2B77BDB35E5D789D4AE94082
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159639.jpg" />
 </div>
 
 
@@ -81,7 +265,7 @@ In Flames - I, the Mask (2019) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic-Groove, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159640.jpg" />
 </div>
 
 
@@ -108,7 +292,7 @@ magnet:?xt=urn:btih:9624750A461E19A943549D000218FBD178CE928C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159641.jpg" />
 </div>
 
 
@@ -132,7 +316,7 @@ magnet:?xt=urn:btih:4712C127C2DC90293558DAD8454C736C1C090712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159642.jpg" />
 </div>
 
 
@@ -158,7 +342,7 @@ magnet:?xt=urn:btih:3EE0C2EE2E35AF8310FA024ED7C92A97EA7E75DB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159643.jpg" />
 </div>
 
 
@@ -182,7 +366,7 @@ magnet:?xt=urn:btih:46155703CA536E317BEF6D53677FE5709B5EC6DC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159644.jpg" />
 </div>
 
 
@@ -206,7 +390,7 @@ magnet:?xt=urn:btih:37E6F0108178A101A5D697CF763DE23C459283AA
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159645.jpg" />
 </div>
 
 
@@ -230,7 +414,7 @@ Majestica - Above The Sky (2019) Japanese Edition [WavPack|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159646.jpg" />
 </div>
 
 
@@ -257,7 +441,7 @@ magnet:?xt=urn:btih:FC07ADDD0897CC8694E20FB5C687A2C14F310B50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159647.jpg" />
 </div>
 
 
@@ -282,7 +466,7 @@ The Blues Shop Trio - Decade (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159648.jpg" />
 </div>
 
 
@@ -309,7 +493,7 @@ magnet:?xt=urn:btih:E6E268F2966FF2A2B8905F64CF42596DF641BF0F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159649.jpg" />
 </div>
 
 
@@ -333,7 +517,7 @@ Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159650.jpg" />
 </div>
 
 
@@ -360,7 +544,7 @@ Howard - Event Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159651.jpg" />
 </div>
 
 
@@ -387,7 +571,7 @@ magnet:?xt=urn:btih:73FF4B228FAD3A042A87BD03665D29690EF3097A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159652.jpg" />
 </div>
 
 
@@ -414,7 +598,7 @@ magnet:?xt=urn:btih:C18B685C7A36829ECFC4059B15D0FE5BF41B18C2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159653.jpg" />
 </div>
 
 
@@ -438,7 +622,7 @@ Reverend Stomp - Mokara (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159654.jpg" />
 </div>
 
 
@@ -465,7 +649,7 @@ magnet:?xt=urn:btih:AEFD4B29BBDD16FDA8EE7F8705598ABD78F0EB8F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159655.jpg" />
 </div>
 
 
@@ -476,193 +660,6 @@ magnet:?xt=urn:btih:AEFD4B29BBDD16FDA8EE7F8705598ABD78F0EB8F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21B60EFA3DE0035BA36F657400835819E7D4B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599765   (159656) от 24.12.2022
-
-Чарли Чейз. Простые и стильные девушки / Plain and Fancy Girls (1925) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимми Джампу кажется, что его девушка слишком простовата. То ли дело изысканная красотка, которую он замечает в парке. В конце концов, после ряда приключений, он понимает, что ему лучше со своей девушкой.
-Это формальное описание. А если от себя - мне очень понравился ролик. Очень милый. Какой-то без временной привязки. То есть, если взять современное оборудование, (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтрин Грант,  Марта Слипер,Перевод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF206F6E9362C35CBE0E4A15CC74E7264FD332C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599692   (159657) от 24.12.2022
-
-CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тень (Глава первая) [00:03:48]
-02 - Темной тропой (Глава первая) [00:01:08]
-03 - Вера (Глава первая) [00:04:15]
-04 - Пропасть (Глава вторая) [00:04:19](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599670   (159658) от 24.12.2022
-
-Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДОМ СОВЕТОВ [00:03:54]
-02. МАГАЗИН [00:03:45]
-03. ПАРА СЕКУНД [00:03:51]
-04. ГРЯЗЬ [00:03:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5B50927F45D7ABCA3A06E9E3CD044CC9A008EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599629   (159659) от 24.12.2022
-
-Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Never Entered My Mind [5:40]
-02. A Nightingale Sang In Berkeley Square [2:45]
-03. How Deep Is The Ocean [4:04]
-04. How Long Has This Been Going On [5:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3019F8454806F34691B5950CE666827EE6C515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599625   (159660) от 24.12.2022
-
-Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Plenty o'Nuttin' [6:26]
-02. I Wants to Stay Here (aka I Loves You Porgy) [6:22]
-03. Summertime [3:51]
-04. Oh Dey's So Fresh and Fine (Strawberry Woman) [0:56](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314DCEF42C5AAC716E4F34C5BAE86DD8BF15EE16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599724   (159661) от 24.12.2022
-
-Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hardcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гора крестов [00:03:04]
-02. Теория относительности [00:02:34]
-03. Священная болезнь [00:04:37]
-04. Крах [00:02:48](   Читать дальше...   )Жанр: Blackened Hardcore, Female VocalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36062B0AF650506EEF9F506C700A67E7E8FCA602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599405   (159662) от 24.12.2022
-
-Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Tho't You Ought to Know [2:55]
-02. It Only Happens Once [2:57]
-03. Black Market Stuff [2:46]
-04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
 ```
 
 

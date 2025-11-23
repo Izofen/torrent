@@ -6,7 +6,7 @@ Open Shell (Classic Shell) 4.4.194 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32470.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Partition Assistant Technician Edition 10.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32482.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ AIMP 5.40 Build 2653 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32506.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ GPS АнтиРадар v47.0 Mod by 0x7d [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32516.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Karing 1.0.37.498 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32526.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:82A00E92B825F676B489B811882CB605478E9A01
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32539.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Youtube Downloader HD 5.9.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32541.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Topaz Gigapixel AI 8.1.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32549.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7EA96B73AE7A679900E1199D1C428563B8191669
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32563.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VMware Workstation 17 Pro 17.6.2 Build 24409262 (30.12.2024) RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32588.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Balabolka 2.15.0.886 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32601.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Ventusky: Прогноз погоды v40.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32606.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ WinContig 5.0.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32624.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MKVToolNix 89.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32625.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AIMP 5.40 Build 2653 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32634.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vanced Tube v5.2.80.178 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32679.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Spotify 1.2.51.345 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32680.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MiniTool Partition Wizard Technician 12.9 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32689.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AIMP 5.40 Build 2652 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32732.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VueScan Pro 9.8.42.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32734.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32737.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6  + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32741.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Plexim Plecs 4.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32742.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ DisplayFusion Pro  + Portable + MSI 11.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32751.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Free Download Manager 6.25.0.6016 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32758.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:739FD2CF20D1B35637131607B577159E19F8EF59
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32760.jpg" />
 </div>
 
 

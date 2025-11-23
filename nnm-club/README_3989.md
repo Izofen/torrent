@@ -1,3 +1,78 @@
+###  Публикация: 1691210   (123396) от 11.01.2024
+
+Наталия Шолохова | Робин Гуд (2007) [MP3, Лев Дуров, Никита Высоцкий, Владимир Высоцкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робин Гуд – герой средневековых английских народных баллад, предводитель лесных разбойников. По преданию, действовал со своей шайкой в лесах около Ноттингема и боролся за справедливость – грабил богатых рыцарей и священников, отдавая добытое беднякам. Личность прототипа этих баллад и легенд не установлена. Предположительно, жил в начале XIV века, во время правления (   Читать дальше...   )Жанр: Детская литература, историческая повестьИздательство: СиДиКом, ЭлитайлПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833CB006C64F915BD8F1636382E83DCB81333D9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691206   (123397) от 11.01.2024
+
+Татьяна Волхова | Северный мир (Книга 2). Падение (2023) [MP3, Виктория Томина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северный мир ждут тёмные времена. Сила огня не сможет противостоять приспешниками Нави, которые прорываются из-за границы миров и покоряют некогда свободный край. Иноземный колдун обманом обеспечивает победу войску нового князю. Истинных правителей Северных земель ждёт предательство близкого человека, который откроет двери города их врагам. Воинам Перуна придётся (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CD8985DB0195021260FDB3B24348ADFA173AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691179   (123398) от 11.01.2024
+
+First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riot Time 03:20
+02. The Abyss 04:32
+03. As They Fail Us 05:19
+04. Nightmare Lane 04:22(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C00F820E4B225D5F79B44C2DB2FF3BA152C2A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691175   (123399) от 11.01.2024
 
 Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +81,7 @@ Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123399.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Louis Bellson & Walfredo De Los Reyes - Ecue Ritmos Cubanos (1977) 1991, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123400.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Sad Whisperings - Return to Autumn (2023) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123401.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Sad Whisperings - Sensitive to Autumn (1993) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123402.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Regime - Demo 1991 + 3 (2013) Compilation [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123403.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ magnet:?xt=urn:btih:848FC88A18E643D89FF7A8D1457D9CC4ADC28960
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123404.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ magnet:?xt=urn:btih:FB45B89F30102287F824835EE24DC4B9EC048636
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123405.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Sandboxie plus 1.12.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123406.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ PDFCreator 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123407.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.33 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123408.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123409.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ magnet:?xt=urn:btih:C7B234991445430FF4C6818BF8AF1F8EFAE60B1B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123410.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ QOwnNotes 24.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123411.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ VA - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123412.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ magnet:?xt=urn:btih:22E47EE10CBBE4AAA3730F30F9FA6FF3F2B4322C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123413.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ Sandboxie 5.67.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123414.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ FireAlpaca 2.11.14 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123415.jpg" />
 </div>
 
 
@@ -436,7 +511,7 @@ magnet:?xt=urn:btih:EA75CA77B791C03CB0B6A6E25110FAC9808E9D46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123416.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ magnet:?xt=urn:btih:699B012E6A0CFE606F7533B89B07B51A3E962AE8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123417.jpg" />
 </div>
 
 
@@ -485,7 +560,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123418.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ Trevor Something - Archetypes (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123419.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ magnet:?xt=urn:btih:D2962B94A036792C3A3A80B5D8E62ADAB81EC003
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123420.jpg" />
 </div>
 
 
@@ -563,7 +638,7 @@ Russell & Guns - Medusa (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123421.jpg" />
 </div>
 
 
@@ -577,78 +652,6 @@ Russell & Guns - Medusa (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FD7C4AC2EB4255A15F47C2E5DABF3006268F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691187   (123422) от 11.01.2024
-
-GeoGebra 6.0.819.0 Classic + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123422.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2D79D32DB0EDBC71BDBD3C80D563E358A7C960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691185   (123423) от 11.01.2024
-
-File & Image Uploader 8.4.0 Portable + Skins [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123423.jpg" />
-</div>
-
-
-###  Подробнее
-
-File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EA13F350F02CE119BA0032F9DA5477A30AB666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691246   (123424) от 11.01.2024
-
-Total Commander 11.02 (11.01.2024) Portable by MiG [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896002A7F3A22DA88D55481DF258C735BD988DE3
 ```
 
 

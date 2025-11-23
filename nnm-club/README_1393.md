@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36571.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36573.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36574.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36575.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36576.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36577.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36578.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Exif Pilot 6.26.1 + Batchplugin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36579.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Free Hex Editor Neo 7.50.01.8790 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36580.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36581.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36582.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36583.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36584.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36585.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:57ECFEC95C28CD68B44B14F84F3678FDB1349A5E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36586.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BE27C8EBC79DB71DE1608F6F90DA8A6D372FBEC6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36587.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:5A691A6087AE7F0E529CC368C7AD6F177FD8AEE7
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36588.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36589.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36590.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Xandria - Universal Tales (2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36591.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D1F065420F0032CBB1A9F4A17DF61EF73D6CF8FF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36592.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Emotional Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36593.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Autumn Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36594.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:03FEECABAE2812A88C9E48B4F5FB9AE67888D01C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36595.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36596.jpg" />
 </div>
 
 

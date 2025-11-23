@@ -6,7 +6,7 @@ MobaXterm 24.4 build 5258 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34829.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3CCAB004CFF351DAD3592FD075ED5CB9F3021508
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34830.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A0A4BDA0FFF4ECD9ED05FD8351A41389FC0C44FC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34831.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FileMenu Tools 8.4.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34832.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CDD1A57D83AA628406A2E74EF34BDE01483835F2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34833.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:48CB81F57E1CF8F648D6EC65DFACBF27F2EBE535
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34834.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Any Video Downloader Pro 9.1.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34835.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:96F37636BC402CB355E770FF57A38C9046419ED7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34836.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34837.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CONSCRIPT (2024) [Ru/Multi] (1.0.1.2/dlc) Repack Let'sРlay [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34838.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:14D24F5F416FBD0D552859DCF32CFE6EFD7D62F3
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34839.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34840.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wise Care 365 Pro 7.0.9.691 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34841.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:5B3FB95ED3F888D4963CD3109A0EAF5DE38A5AE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34842.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:CC9F389F4913386DBDBC16B73DC294EA62B9C986
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34843.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:874B4BAE91755664339FEAB99226752FDE6E4E6A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34844.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ NVIDIA GeForce Desktop Game Ready 566.36 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34845.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3657560ECC74DC4B7FF995C057CDDE705073F6B3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34846.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5FC6D269C358C40290E6EC20D92398AF91F445DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34847.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5FC6D269C358C40290E6EC20D92398AF91F445DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34848.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:2095C64663F0ED54097880DBBFAD73F1F0554825
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34849.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:13E24190BDD702EABCE4A43E6ED06948CB06AA95
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34850.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34851.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:868396C7A6EFF530ACE642A3F7AB4D11436FFA12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34852.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:868396C7A6EFF530ACE642A3F7AB4D11436FFA12
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34853.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3AF6C2ADA7E451D8B9B302448B22F409B62B2FB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34854.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1720420   (110292) от 03.05.2024
+
+Идеальная зависимость / Perfect Addiction (2023) BDRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиенна — успешный тренер по боксу. Однажды она узнаёт, что её парень Джэкс, действующий чемпион, изменял ей с её же сестрой. Разъярённая, она решает отомстить бывшему самым болезненным способом — она берётся тренировать единственного боксёра, который может свергнуть Джэкса с пьедестала. Но то, что начиналось как план мести, постепенно перерастает во что-то большее.Производство: США, Германия /  Constantin Film, JB Pictures, Arbor FilmsЖанр: боевик, драма, мелодрама, спортРежиссер: Кастиль ЛэндонАктеры: Киана Мадейра, Росс Батлер, Мэттью Ношка, Бри Уинслоу, Ману Беннетт, Николас Дюверней, Райан Баун, Алекс Червинский, Джей ДеМерит, Поппи ГилбертПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:14Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720418   (110293) от 03.05.2024
+
+Идеальная зависимость / Perfect Addiction (2023) BDRip [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиенна — успешный тренер по боксу. Однажды она узнаёт, что её парень Джэкс, действующий чемпион, изменял ей с её же сестрой. Разъярённая, она решает отомстить бывшему самым болезненным способом — она берётся тренировать единственного боксёра, который может свергнуть Джэкса с пьедестала. Но то, что начиналось как план мести, постепенно перерастает во что-то большее.Производство: США, Германия /  Constantin Film, JB Pictures, Arbor FilmsЖанр: боевик, драма, мелодрама, спортРежиссер: Кастиль ЛэндонАктеры: Киана Мадейра, Росс Батлер, Мэттью Ношка, Бри Уинслоу, Ману Беннетт, Николас Дюверней, Райан Баун, Алекс Червинский, Джей ДеМерит, Поппи ГилбертПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:14Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720409   (110294) от 03.05.2024
+
+Потрошитель. Наследие / Bloodline Killer (2024) WEB-DLRip [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад Мойра пережила настоящий ад: ее кузен устроил резню и убил почти всех ее родственников и других невинных людей. Психа так и не удалось поймать, и каждую осень убийца напоминает о себе. В городе его даже прозвали маньяком по кличке Череп. Когда листья начинают желтеть, город погружается в страх и панику. И только детектив Сайферс может вернуть (   Читать дальше...   )Производство: США / BondIt, Future Proof Films, Gaudioso Twins FilmsЖанр: ужасы, триллерРежиссер: Анте НоваковичАктеры: Шоуни Смит, Тэрин Мэннинг, Дрю Морлейн, Тайриз Гибсон, Брюс Дерн, Джеймс Гаудиозо, Монтанна Гиллис, Крешимир Новакович, Сол Рендино, Адам ШиппиПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:58Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720392   (110295) от 03.05.2024
 
 1Tap Cleaner Pro 4.52 Mod by Айфона нет [Ru/Multi]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110295.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:00E291BA786E8734C1F615E7423877DFC20FBA8E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110296.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:CB1E7B46B460A339FD86639742B9B23DE832F849
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110297.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ VA - Beach House Hits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110298.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:AE68C92A703F29666BF2BB671D3061CF13D23BB1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110299.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ FastCopy Pro 5.7.7 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110300.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:CC68B11190AFAC6E238214B7F4D180FD87DE3F9E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110301.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ V.A. - Best Sound of Chill & Lounge 2024 - Summer Edition (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110302.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ magnet:?xt=urn:btih:BC2B48BB586A1F9EA44F6B8CB9FCF1E4CDA9907E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110303.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ Nevercenter CameraBag Pro 2024.1.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110304.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ magnet:?xt=urn:btih:1637094AEAFA97279F460D8387BD842BCEF5EE36
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110305.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Bobby Watson - At the Gouvy Festival: In The Groove (2000) Challenge Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110306.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ PhotoDirector - Редактор фото 19.1.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110307.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:CC2C092B165A3E0A0BEC0EBD142F73E313E90A85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110308.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Kandace Springs - Run Your Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110309.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Ironsmith - Ironsmith (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110310.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ VA - Armin van Buuren - A State Of Trance 1171 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110311.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ James Grant & Jody Wisternoff - Live @ Anjunadeep London, Roundhouse London, Uni
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110312.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ The Last Element - Act I: Find Me in the Shadows (2024) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110313.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ Bad Marilyn - Eye Of The Snake (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110314.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:8D3187B5D28DF9C94FF402B00DD89C73D1E8B120
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110315.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110316.jpg" />
 </div>
 
 
@@ -566,7 +638,7 @@ magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110317.jpg" />
 </div>
 
 
@@ -577,81 +649,6 @@ magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720309   (110318) от 03.05.2024
-
-Icecream Video Converter Pro 1.43 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78010006AC37A4D0FE37E580B13ED712643EBA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720433   (110319) от 03.05.2024
-
-Журнал | Homebuilding & Renovating №6 (2024) [PDF][EN]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A332C7A10EC6308AE6937661B4701ABF7BB1FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720496   (110320) от 03.05.2024
-
-Михаил Шуфутинский – Тихий Дон (1993) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тихий Дон
-02. Москвичка
-03. Кто был ничем, тот стал никем
-04. Эх, ты жизнь...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
 ```
 
 

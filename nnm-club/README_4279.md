@@ -1,3 +1,79 @@
+###  Публикация: 1681732   (131605) от 06.12.2023
+
+Арнольд Шварценеггер | Будь нужным: Семь правил жизни (2023) [PDF, FB2, RTF, EPUB] [RU, EN]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Будь нужным» – о том Арнольде Шварценеггере, которого вы до сих пор не знали, даже если занимаетесь бодибилдингом, смотрели всех «Терминаторов» и интересуетесь американской политикой. Мало кому известно, что десять лет назад суперзвезда Голливуда, великий спортсмен, предприниматель и политик оказался на самом дне, но смог подняться и построить заново свою (   Читать дальше...   )Жанр: Автобиографии, Методы мотивации, Саморазвитие / личностный ростПеревод: Николай МезинЯзык: Английский, РусскийИздательство: Альпина ДиджиталФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCE75C31C1335BE9B77A0358D6005D4448DC1A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682164   (131607) от 06.12.2023
+
+В смятении / Fuzzy Head (2023) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина копается в своих детских воспоминаниях и травмах, чтобы узнать правду о смерти матери.Производство: США / Bell The Cat, Neon Heart Productions, Trikon ProductionsЖанр: триллерРежиссер: Венди МакколмАктеры: Алисия Уитт, Венди МакКольм, Рэйн Феникс, Tolliver, Фред Меламед, Нума Перрье, Celina Biurrun, Ричард Рили, Кэссиди Батлер, Доминик БенедеттоПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB9A58902CBECF92E35C00B8E052AEFBC8868E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596346   (131608) от 30.12.2012
+
+[Wallpapers] Best collection of wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131608.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best collection of wallpapers (30.12.12)
+Название: Best collection of wallpapers (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E2D3936D81CCC12BA9778990E47B6E7423D173
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682356   (131609) от 06.12.2023
 
 Крик. Ночь перед Рождеством / It's a Wonderful Knife (2023) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
@@ -6,7 +82,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131609.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:3262782291F145F443C24B3FE5A28F50761751C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131611.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:F95FB0482A0E309D6B62849196174F410AC66BB9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131612.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ Scott Henderson, Steve Smith, Victor Wooten - Vital Tech Tones (1998) [WavPack|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131613.jpg" />
 </div>
 
 
@@ -116,7 +192,7 @@ Blender 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131614.jpg" />
 </div>
 
 
@@ -142,7 +218,7 @@ magnet:?xt=urn:btih:A8B6F1C397F5B5512F0A0F92D6B675D170E6D02F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131616.jpg" />
 </div>
 
 
@@ -166,7 +242,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131618.jpg" />
 </div>
 
 
@@ -190,7 +266,7 @@ magnet:?xt=urn:btih:630440704088EB4165EC9A2F76304DF9F40C6870
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131619.jpg" />
 </div>
 
 
@@ -214,7 +290,7 @@ magnet:?xt=urn:btih:8EE26398734D99803C2CFE33665146B06C8A63E5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131622.jpg" />
 </div>
 
 
@@ -238,7 +314,7 @@ Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131623.jpg" />
 </div>
 
 
@@ -271,7 +347,7 @@ Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131624.jpg" />
 </div>
 
 
@@ -295,7 +371,7 @@ Udemy, English Academy | Living in U.S.: Speaking English for Everyday Situation
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131625.jpg" />
 </div>
 
 
@@ -319,7 +395,7 @@ Validor - Dawn Of The Avenger (2012) [MP3|320 кб/с]<Folk / Heavу/ Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131626.jpg" />
 </div>
 
 
@@ -351,7 +427,7 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131627.jpg" />
 </div>
 
 
@@ -375,7 +451,7 @@ magnet:?xt=urn:btih:05117FAB081042B5C56B5D09FC11C00BF58D191D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131628.jpg" />
 </div>
 
 
@@ -403,7 +479,7 @@ The Amenta - V01D (2011) [MP3|320 кб/с]<Industrial Experimental Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131629.jpg" />
 </div>
 
 
@@ -436,7 +512,7 @@ magnet:?xt=urn:btih:684A6F12BA7514124BC4AE868CEA5358F49B154E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131630.jpg" />
 </div>
 
 
@@ -460,7 +536,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131631.jpg" />
 </div>
 
 
@@ -484,7 +560,7 @@ magnet:?xt=urn:btih:57A9D19305307DB6C3F3B7AA01A576082226E00C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131632.jpg" />
 </div>
 
 
@@ -508,7 +584,7 @@ Deformed Slut - Stench Of Carnage (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131633.jpg" />
 </div>
 
 
@@ -539,7 +615,7 @@ magnet:?xt=urn:btih:D8A5132C351CB7FFA26706044833FD4E715E9B8B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131634.jpg" />
 </div>
 
 
@@ -567,7 +643,7 @@ magnet:?xt=urn:btih:6BAE42B8930081D4BD40E6FFB1CBC31FF2F4D335
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131636.jpg" />
 </div>
 
 
@@ -591,7 +667,7 @@ magnet:?xt=urn:btih:5A39106A335882888008E6E73E7C8BAEBE14A492
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131637.jpg" />
 </div>
 
 
@@ -602,88 +678,6 @@ magnet:?xt=urn:btih:5A39106A335882888008E6E73E7C8BAEBE14A492
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:854DD08DC4F962E07806165B4769614BC7B8AA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682336   (131640) от 06.12.2023
-
-Ледяной дракон, или Легенда о синих цветах / Ice Dragon: Legend of the Blue Daisies (2018) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ледяной дракон сбегает из заточения в глубокой горной пещере. Древнее зло на свободе и теперь, только юным друзьям, Мелоди и Лифу, в силах остановить наступление вечного холода и спасти мир от разрушения.Производство: Канада / Chelsea Road ProductionsЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Брюс У. СтэйсиАктеры: Рил Рис, Джастин Дюбе, Билл Брэй, Марк Андердаун, Брюс Уоллес, Шерил Стэйси Нилсон, Отем Нилсон, Ноэль Нилсон, Майлс Нилсон, Джеймс СтоуэллПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41232C7F64DE21C87AAC8F8EC878689102CEDCEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595338   (131641) от 30.12.2012
-
-Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recursion 05:03
- 02. Galaxies' Lament 02:43
- 03. Matchbook 05:37
- 04. Hippy Crack 03:43
- 05. Burn the Flesh 05:38
- 06. Love Theme 02:51
- 07. Ritual 06:11
- 08. Circles 04:55
- 09. Try to Make It 05:43
- 10. Terminus 03:35Жанр: Psychedelic Stoner DoomПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7572CB12460D0BB32A2C92DCDB9EA53CFFEE2F45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682334   (131642) от 06.12.2023
-
-Проекты - VideoHive - Christmas Snowman - 49545852 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131642.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas Snowman» - стильный, элегантный проект для создания рождественского поздравления, вступительного ролика.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41C7084434A6F466ED16DE1335C6B6EB3151041
 ```
 
 

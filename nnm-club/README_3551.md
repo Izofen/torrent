@@ -1,3 +1,81 @@
+###  Публикация: 1712908   (112008) от 04.04.2024
+
+Cryoshock - The Cold New Regime (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shock Troops
+02. Operation Earthworm
+03. Mighty Winter
+04. Between the Trenches(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55130F662D54393ABFCB3619E77CCC6DEDEB8A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712824   (112009) от 04.04.2024
+
+Uaral - Lamentos A Poema Muerto (2007) [FLAC|Lossless|image + .cue] <Doom Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludio a la Siembra (1:42)
+02. La Escritura y el Alarido (5:30)
+03. Lamentos... (10:49)
+04. Surrendered to the Decadence (Parte 2) (6:11)(   Читать дальше...   )Жанр: Doom Metal, Folk MetalПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F9E042D289869EC5A3FBFA2E94E92CBE55A98A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713004   (112010) от 04.04.2024
+
+Скандалисты / Gwasok scandle (2008) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112010.jpg" />
+</div>
+
+
+###  Подробнее
+
+На радио, где работает ведущим Нам Хюн Су, поступил звонок от матери-одиночки. Она рассказала, что едет на встречу к своему отцу, которого никогда до этого не видела и хочет после встречи с ним стать певицей. Посмеявшись с коллегами над наивностью сельской девушки, Нам Хюн Су вернулся домой. Каково же было его удивление, когда в его дверь позвонила та самая девушка (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Lotte Entertainment, Toilet PicturesЖанр: комедия, музыкаРежиссер: Хён Чхоль КанАктеры: Тхэ Хён Чха, Иль Квон Ан, Кён Мин Хон, Сок Хён Хван, У Соль Хё Хван, Вон Ким, Мин Со Чон, Вон Чжун Чон, Ки Бан Ким, Хё Чжин Ким, Юн Хо Ким, Ён Чжун Ли, Чжи Кю Им, Сын Тэ Им, Бо Ён ПакПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ АЛЬЯНС), английскиеПродолжительность: 01:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996A0786C63FD416C9419BE858C6EA078EB092E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712997   (112011) от 04.04.2024
 
 CudaText 1.212.0.0 Portable + addons [Ru/En]
@@ -6,7 +84,7 @@ CudaText 1.212.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112011.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:1552EDD539CAA4E6CAFF509C3FBADF879563AC58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112012.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:067AF820955EB0ED1F88C5BF6B5A79A27DD4CC01
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112013.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ magnet:?xt=urn:btih:FF23226DCF80944E16B306C3BE8C160F2C05E2E4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112014.jpg" />
 </div>
 
 
@@ -103,7 +181,7 @@ magnet:?xt=urn:btih:F3401DA6AAD2CE88DBA3EDDF278770A2588E917C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112015.jpg" />
 </div>
 
 
@@ -127,7 +205,7 @@ magnet:?xt=urn:btih:98FEB95BBE454FA72E41E5CFD62A26D7258C08D6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112016.jpg" />
 </div>
 
 
@@ -151,7 +229,7 @@ magnet:?xt=urn:btih:2F6AA069513E8F955ED02072ED7B034964AD3560
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112017.jpg" />
 </div>
 
 
@@ -175,7 +253,7 @@ magnet:?xt=urn:btih:F2DC079A000DE07783A7CC5BD7B95EA262F9B866
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112018.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ HWiNFO 8.01 Build 5410 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112019.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ magnet:?xt=urn:btih:7C2A5149437992CAE4C27CDA063D53C2FE992053
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112020.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ magnet:?xt=urn:btih:C6C54E74BDCDE1980ADCC1951FC27B99F38D2963
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112021.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ magnet:?xt=urn:btih:3A7369510896269D11A8813F6B6F1206375DCED8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112022.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ magnet:?xt=urn:btih:B27DD64CE79C4E5118B6C8F4B809B1DE499869BE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112023.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ magnet:?xt=urn:btih:430936C8672A2B206B6EE0F8D5A16A6D95534DF8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112024.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ magnet:?xt=urn:btih:477F98669548010A9FC1EED3841D9180299E5991
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112025.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ magnet:?xt=urn:btih:02D2F3635629CCE868367696BCE06E265CB0CE8F
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112026.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Ramblin' Preachers - Sins & Virtues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112027.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ magnet:?xt=urn:btih:ABA90526E8F24168CF85370CC4A699D3E954AE5B
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112028.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ magnet:?xt=urn:btih:FF7373CAE2470A7BC23E6A1CACB5579D7E437624
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112029.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ magnet:?xt=urn:btih:F894C525FC883C4B2230B328564B1729F59D578F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112030.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Telegram Desktop 4.16.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112031.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ magnet:?xt=urn:btih:C02B0CF4B314C4C37AEE69D770EED71E9B5D9C9F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112032.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ magnet:?xt=urn:btih:B326FA7BE1B5FA010907BDB1FFDCB703EE0C4492
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112033.jpg" />
 </div>
 
 
@@ -567,81 +645,6 @@ magnet:?xt=urn:btih:B326FA7BE1B5FA010907BDB1FFDCB703EE0C4492
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0185C7F1894C8FD1210AD0AB2096397A5CE3B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713094   (112034) от 04.04.2024
-
-Shimah - 4th Dimension (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Void
-02. 4th Dimension
-03. So Real
-04. Visions of Neon(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE252F12893EEEAD6BD2CB70D28E1B0EE2E00E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713011   (112035) от 04.04.2024
-
-Эпигенез / Epigenesis (2022) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шейн занимается шантажом влиятельных людей. Однажды в его жизни происходит нечто, в результате чего со всеми, кому он мысленно желает зла, начинает случаться именно то, чего он хотел. За Шейном начинает тянуться след из трупов.Производство: США, Piercing ProductionsЖанр: ужасы, фантастика, мелодрама, приключенияРежиссер: Скаут ТафояАктеры: Гиффорд Эллиотт, Ник Смерканич, Крис Донохью, Джулиан Лазар, Мишель Сиракуза, Купер МакКим, Такер помощник, Скаут ТафояПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 01:34:44Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801B09ABD0C05FB261DD0EA6293C0A41586DCDFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713067   (112036) от 04.04.2024
-
-Повод / Trigger (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112036.jpg" />
-</div>
-
-
-###  Подробнее
-
-История уличного художника граффити и загадочного ордена "Братство Кросс-стрит", через призму которых раскрываются острые социальные проблемы.Производство: СШАЖанр: драмаРежиссер: Alon-4evrАктеры: 2cnd Floor Harley, Кайвон Аллен, Делвон Бэйкер, Делави Бакстер мл., Марио Беверли, Ham Radio Bob, Омар Будху, Халил КолдуэллПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 01:40:49Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35730FAB6BB215EC734C344594C08A39E607B310
 ```
 
 

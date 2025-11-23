@@ -6,7 +6,7 @@ PotPlayer 241216 (1.7.22398) RePack (& Portable) by elchupacabra (28.01.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29531.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sandboxie plus 1.15.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sandboxie 5.70.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29590.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29590.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StartAllBack 3.9.2 build 5232 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29594.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FastCopy Pro 5.8.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29595.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TechSmith Camtasia 24.1.5 Build 6542 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29597.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29597.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ TweakPower 2.068 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29599.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29599.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ WinMerge 2.16.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29606.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ DVDFab 13.0.3.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29613.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Aiseesoft Video Converter Ultimate 10.8.96 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29617.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29617.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wondershare UniConverter 16.2.05.133 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29628.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29628.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VueScan Pro 9.8.44 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29629.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ StartAllBack 3.9.2 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29670.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Softany WinCHM Pro 5.54 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29673.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Fort Firewall 3.15.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29679.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ES File Explorer File Manager v4.4.2.18 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29685.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ TweakNow WinSecret Plus! 6.1.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29687.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Display Driver Uninstaller 18.0.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29703.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29703.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ DiskDigger 2.0.5.4013 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29704.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29704.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Auslogics File Recovery 12.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29705.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29705.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ IsoBuster Pro 5.51 Build 5.5.1.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29709.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Auslogics Registry Cleaner Pro 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29715.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CareUEyes 2.4.8.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29716.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Shotcut 25.01.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29717.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Auslogics Disk Defrag Pro 12.0.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29720.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ashampoo WinOptimizer 2025 27.00.06 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29721.jpg" />
 </div>
 
 

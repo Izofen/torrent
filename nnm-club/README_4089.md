@@ -1,3 +1,75 @@
+###  Публикация: 1687133   (126000) от 25.12.2023
+
+Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DL [H.265/1080p] [HDR10, Dolby Vision Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126000.jpg" />
+</div>
+
+
+###  Подробнее
+
+В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США, Венгрия, Швеция, Дания, Великобритания / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: Эд Скрейн, София Бутелла, Чарли Ханнэм, Энтони Хопкинс, Кэри Элвес, Джена Мэлоун, Михил Хёйсман, Клеопатра Коулмэн, Джимон Хонсу, Кори СтоллПеревод: Дублированный (Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, SDH)Продолжительность: 02:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FF51357B39D35C10CB446D31E80B535F8C7B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687027   (126001) от 25.12.2023
+
+Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на воде (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Knight Cats. На Кэтстаун совершено нападение! Пираты собираются разграбить город, но охотятся они не только за товарами. Пропал агент под прикрытием, который занимался расследованием контрабанды. Только такой храбрый рыцарь, как вы, может его отыскать. Однако все не так, как кажется поначалу, когда речь заходит о семи морях. Вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D146BF871B329536B6CB2E6484C671F9AAB69528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687123   (126002) от 25.12.2023
+
+Брежнев, которого мы не знали (2013) IPTVRip [H.264] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти всю жизнь его недооценивали. Но все, кто над ним посмеивался, кто считал его недалёким - все куда-то разлетелись. Кто на пенсию, кто послом в далёкие края, кто приземлился на обидно мелкой должности. А Леонид Ильич Брежнев руководил нашей страной восемнадцать лет. Как ему удалось так долго продержаться на государственном Олимпе? История стремительного взлёта (   Читать дальше...   )Телекомпания: Россия / ТВ ЦЕНТРЖанр: документальный, биографияРежиссер: Игорь МаксимчукУчастники: Леонид МлечинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:38:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C77F072252A2D08E0076097CCC29DED8BE2794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685956   (126003) от 25.12.2023
 
 Теорема / Teorema (1968) BDRip [H.264/720p] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126003.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:D3B9DA8891B3C79B4DD4CD4EF6390B20456533FE
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126004.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:4E497024ADB9FD85C45DD1E6B1D39B5B745E1757
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126005.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Realtek Ethernet Driver 1125.016 | 10.69 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126006.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:44742A7479DEA3B8B748CC5E92B213FF13BEEBCB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126007.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ AOMEI Partition Assistant Technician Edition 10.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126008.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126009.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126010.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:E44B210A430EC6A7444C49627532F0E69265B762
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126011.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:1A607D1B89EC1E2810887819E866108AE4200BED
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126012.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:423A32EC03E4369528334CD1169593F16CA64E6B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126013.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126014.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126015.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:3031C35057197BD4C36570067FA50C7AAFF96D6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126016.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:708F54F8C982EBC52AF105B8AAA6492325B05C4C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126017.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:708F54F8C982EBC52AF105B8AAA6492325B05C4C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126018.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Defender Remover Portable 12.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126019.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Psiphon 3 build 181 (24.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126020.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Bryan Lee - 14 Albums (1991 - 2018) [FLAC|Lossless|tracks + .cue|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126021.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Topaz Photo AI 2.2.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126022.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:7A48AB65DD70448D879B661CD615257CAA77D540
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126023.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ magnet:?xt=urn:btih:8018C96544DC43A5C19E3DDE38BCDA9E6E650720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126024.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ FCKGW-RHQQ2-YXRKT-8TG6W-2B7Q8
 >>Флейм
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126025.jpg" />
 </div>
 
 
@@ -559,81 +631,6 @@ FCKGW-RHQQ2-YXRKT-8TG6W-2B7Q8
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203006   (126026) от 13.10.2025
-
-Длинное, длинное дело (1976) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма — следователь районной прокуратуры. Он — скромный, добрый и мягкий человек, но когда речь идет о чужих человеческих судьбах, становится непреклонным и ради справедливого приговора готов пожертвовать даже собственным благополучием и профессиональным статусом.Производство: СССР / ЛенфильмЖанр: Драма, криминалРежиссер: Григорий Аронов, Владимир ШредельАктеры: Евгений Леонов, Владимир Заманский, Михаил Глузский, Олег Янковский, Олег Белов (I), Николай Караченцов, Нина Ургант, Роман Мадянов, Рита Гладунко, Светлана Карпинская ...Продолжительность: 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3585FF2D5881F2136F664BB0C11DE1459E00771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823985   (126027) от 13.10.2025
-
-Екатерина Латушкина | У жизни свой план. Самоподдержка в периоды тревоги и перемен (2025) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126027.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Трудности случаются, но они так же естественны как дождь или зима».
-
-Мы привыкли думать, что все под контролем: у нас есть знания, опыт, планы. Кажется, что жизнь будет развиваться так, как мы задумали. Но иногда все рушится. Сценарий будто переписывают без спроса — и остается только усталость и ощущение, что ты не справляешься. У жизни свой план.
-(   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: МИФФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F628D39A839A2106859148A8253FAF853D4EEFD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823992   (126028) от 13.10.2025
-
-Михаил Зурков | Взломай мозг: Освой любой навык за 20 часов (2025) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126028.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Взломай мозг: Освой любой навык за 20 часов» — это практическое руководство, которое учит осваивать любые навыки за 20 часов. Используя психологию, декомпозицию и привычки, вы быстро достигнете компетентности, интегрируете навыки в жизнь и станете учеником на всю жизнь.Жанр: Общая психологияИздательство: Издательские решения в системе RideroФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904C6E7628A44C6E0541D4B2A3EAB7E5DB6A2B19
 ```
 
 

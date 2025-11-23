@@ -1,3 +1,75 @@
+###  Публикация: 1525049   (130218) от 19.01.2022
+
+Дэниел Фрайер | Вредные мысли. Четыре психологические установки, которые мешают нам жить (2022) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если жизнь кажется вам невыносимой, не спешите винить в этом весь мир, своего начальника или случайного прохожего, неосторожно наступившего вам на ногу. И уж точно перестаньте валить все на себя. Чтобы изменить жизнь к лучшему, вам не нужно искать себе другую планету, закатывать скандал или заедать стресс: достаточно отказаться от вредных мыслительных привычек. Именно (   Читать дальше...   )Жанр: О психологии популярно, Саморазвитие / личностный ростПеревод: Анна ВласюкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD8F9CCC797C79C1821B19A91EC2559D15740BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525206   (130219) от 19.01.2022
+
+Hard Disk Sentinel PRO 5.70.10 Build 12540 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755DE9C5590B2A5BAE9A1731CB2262E26EFA08A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491305   (130220) от 02.05.2012
+
+[Wallpapers] Wallpapers Fantasy №15(Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F396E177EA7A57072A0D21C8F1CBFC0937AE30F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491221   (130223) от 02.05.2012
 
 Каникулы в Мексике - 2. Выпуск №42 (2012.05.02) SATRip
@@ -6,7 +78,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130223.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Legends of Valour [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130225.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130226.jpg" />
 </div>
 
 
@@ -88,7 +160,7 @@ Jinn'sLiveUSB 9.3 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторск
 >>28
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130227.jpg" />
 </div>
 
 
@@ -112,7 +184,7 @@ magnet:?xt=urn:btih:086B39DA74C2A4A0F40D827A9DD4C5F58F8DB832
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130228.jpg" />
 </div>
 
 
@@ -139,7 +211,7 @@ magnet:?xt=urn:btih:E82AF63E16956C84F015621F8AB48C76D17F945E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130229.jpg" />
 </div>
 
 
@@ -166,7 +238,7 @@ Adobe Photoshop for Mac 2022 v23.1.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130231.jpg" />
 </div>
 
 
@@ -190,7 +262,7 @@ Lucky Patcher 9.8.7 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130233.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ Teddy Edwards Octet - Back to Avalon (1960) [FLAC|Lossless]<Bop, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130234.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Adobe Photoshop 2022 23.1.1.202 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130235.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:EA5E79B2F1E1A2A97236B4C0AA07848D440773A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130237.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:3A4BF176FCDAC8BA882FFDC6DC79DB2405947F70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130238.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Adobe Lightroom Classic for Mac v11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130239.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:7D8D8F3085BD396D63DEDCE62389DDD100C2AC31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130240.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ Xenus /  Xenus Точка кипения (2005) [Ru] (2.2/dlc) Repack Other s [G
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130241.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:6D5A734BBBC358314070C565AC02120FDA3AFF16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130242.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:896736B7C42E40A3B540B68D5530A250AB58F168
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130243.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:36D2944EDD3B3D324E8BA5F5B87805B450848A2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130244.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ George Williams - Swing Classics In Stereo and Put On Your Dancing Shoes (2003) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130245.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ George Williams - Swing Classics In Stereo and Put On Your Dancing Shoes (2003) 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130247.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:1D72C1969D0E7FE7CA518DAC81258424A870EBAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130249.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:9EACE3970C3F8869049799836CB5BF6502B3D28F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130250.jpg" />
 </div>
 
 
@@ -572,7 +644,7 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130251.jpg" />
 </div>
 
 
@@ -592,78 +664,6 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525133   (130252) от 19.01.2022
-
-Ад Данте: Анимированный Эпос / Dante's Inferno: An Animated Epic (2010) Blu-ray [H.264/1080p] [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данте проходит через круги Ада и сражается с демонами, тварями, монстрами и даже с самим Люцифером, чтобы спасти свою возлюбленную Беатриче.Производство: Япония, США, Сингапур, Южная Корея / Film Roman, Dong Woo Animation Co. Ltd., Electronic Arts (EA), Visceral Games, Production IG, Starz.Жанр: Рисованная анимация, ужасы, для взрослых.Актеры: Грэм МакТавиш, Ванесса Бренч, Питер Джессоп, Стивен Блюм, Марк Хэмилл, Виктория Теннант, Кевин Майкл Ричардсон, Шарлотта Корнвэлл.Перевод: Многоголосый профессиональный, многоголосый любительский, одноголосый любительский.Язык озвучки: Русский, английский.Субтитры: Русские, английские, болгарские, венгерские, польские, румынские, чешские, словацкие, исландские, греческие, арабские, иврит.Продолжительность: 01:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1BEB7ECF50830FEC824EE313211DE35F2C507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525268   (130254) от 19.01.2022
-
-HitmanPro 3.8.28 Build 324 RePack by Umbrella Corporation [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130254.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitmanPro обнаруживает, идентифицирует и удаляет вирусы, шпионские программы, трояны, руткиты и другие вредоносные программы. Утилита использует собственный движок поведенческого анализа и экспертизы файлового кластера, а также инновационную облачную технологию проверки с помощью антивирусных баз данных SophosLabs, Kaspersky и Bitdefender. Сканер HitmanPro обнаруживает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие ...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816EB94DB30D6648E421F78EBF297E4DF90FAE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524707   (130255) от 19.01.2022
-
-Аркейн / Arcane: League of Legends (2021) WEB-DLRip [H.265/1080p] (сезон 1, серии 1-9 из 9) [hand made 60fps]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130255.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается в утопическом краю Пилтовере и жестоком подземном мире Зауне и рассказывает о становлении двух легендарных чемпионов Лиги и о той силе, что разведёт их по разные стороны баррикад.Производство: США, Франция / Riot Games, Fortiche ProductionЖанр: Мультфильм, фантастика, фэнтези, боевик, драмаРежиссер: Паскаль Шаррю, Арно Делорд, Жером КомбеАктеры: Хейли Стайнфелд, Кевин Алехандро, Джейсон Спайсэк, Токс Олагундойе, Джейби Бланк, Гарри Ллойд, Миа Синклер Дженнесс, Реми Хай, Дэйв Митчелл, Амира ВэннПеревод: Дублированный (Iyuno-SDI Group)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76E3776369FD74082176F82C55FF66555F3F9F0
 ```
 
 

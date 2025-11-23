@@ -1,3 +1,78 @@
+###  Публикация: 594656   (133538) от 26.12.2012
+
+Барбара / Barbara (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая девушка из ГДР подала заявление на выезд из страны и за это сослана в провинцию. В свободном мире ее ждет возлюбленный, который уже разработал для нее план побега на лодке через Балтийское море. А пока Барбара живет под надзором спецслужб и работает в больнице в отделе педиатрической хирургии, где вместе со своим коллегой Андре пытается помочь юной беженке из трудовой колонии — ярой противнице режима.Жанр: ДрамаРежиссер: Кристиан Петцольд / Christian PetzoldАктеры: Нина Хосс, Рональд Церфельд, Райнер Бок, Кристина Хеке, Клаудия Гейслер, Питер Уайсс, Каролин Хаупт, Дениз Петцольд, Роза Энскат, Ясна Фритци Бауэр и другие.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD9163F7D73C4AFEFAC59EE214D61C9389B4AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680739   (133539) от 01.12.2023
+
+DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transistor (Intro) [00:02:46]
+02. Aurora [00:04:14]
+03. Path [00:02:17]
+04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594632   (133540) от 26.12.2012
+
+Кейт Аткинсон | Джексон Броуди (Книга 3). Ждать ли добрых вестей? (2012) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт Аткинсон прогремела уже своим дебютным романом, который получил престижную Уитбредовскую премию, обойдя многих именитых кандидатов — например, Салмана Рушди с его «Прощальным вздохом мавра». Однако настоящая слава пришла к ней с публикацией «Преступлений прошлого» — первой книги из цикла о кембриджском частном детективе Джексоне Броуди. Роман вызвал бурю восторга (   Читать дальше...   )Жанр: ДетективПеревод: с англ. Анастасии ГрызуновойПродолжительность: 13:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11121E85CD3D9E2BC893DAF1CC258CD48AF66928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680936   (133541) от 01.12.2023
 
 Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -6,7 +81,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133541.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:41E068A76641E803465D691CF9B5C9512D9770AE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133542.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Dissection - The Somberlain (1993) Reissue, Remastered, 2006, 2CD [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133543.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133544.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Kiosc 1.15.13 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133545.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Anger As Art - Virtual Sympathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133546.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:A580F76B283116B1FEFFA5D0422F88AB4EC2C34E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133548.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:52854AB495159B00FCB8F264307A61380633A2C5
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133550.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:4B25C063DAF832449AC55AA59260B8A6B5E80A39
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133551.jpg" />
 </div>
 
 
@@ -236,7 +311,7 @@ Navitel / Навител: Официальные карты релиза Q3 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133553.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ magnet:?xt=urn:btih:AC66DF2444E0B6B921C272123CBEC52456B45E9B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133554.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:A390FF5E19A80FD589F4B2A8F6456DD2E7F47FE1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133555.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ magnet:?xt=urn:btih:A390FF5E19A80FD589F4B2A8F6456DD2E7F47FE1
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133556.jpg" />
 </div>
 
 
@@ -334,7 +409,7 @@ magnet:?xt=urn:btih:1B528C705EB7B109581EE1870E63DBB6E4AA812D
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133557.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ magnet:?xt=urn:btih:C5F456F78A29A52B5155CA31F8A61448EFBED4ED
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133558.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ Adobe Photoshop 2024 25.2.0.196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133559.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133561.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ Coolutils Total PDF Converter 2.1.229 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133562.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ Half-Life (1998) [Ru/En] (12833965) Repack dixen18 [25th Anniversary Update]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133563.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133564.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ magnet:?xt=urn:btih:409805C8BFE485627F08DCCC32AF375078921883
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133566.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133567.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133569.jpg" />
 </div>
 
 
@@ -567,78 +642,6 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4FA91B665B4E79BC0F44E3A4FD3B574B6D9E45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594612   (133570) от 26.12.2012
-
-Врачеватель(Архиепископ Лука) (2007) DVDRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о святителе Луке (Войно-Ясенецком), в котором ярко сочетались научное подвижничество и служение исповедническое, восходящее к апостольскому. Врач милостью Божией и архиепископ, человек глубокой горящей веры. Он успешно врачевал и тело, и душу людей. В самые жестокие безбожные времена не поступался своей совестью. За подвиг исповедничества был причислен Русской Православной Церковью к лику святых. Фильм может использоваться как рядовым зрителем, так и преподавателем новейшей истории или истории Церкви. Особенно же он трогает тех, в ком трудно уживаются знание и вера.Жанр: ДокументальныйРежиссер: Н. РаужинПродолжительность: 00:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853402178F575F7574C52D8EC8660BA2D0ECAE81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680347   (133571) от 30.11.2023
-
-Пожалуйста, не уничтожай: Сокровище Туманной горы / Please Don't Destroy: The Treasure of Foggy Mountain (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийная труппа «Пожалуйста, не уничтожай», состоящая из Мартина Херлихи, Бена Маршалла и Джона Хиггинса, представляет свой первый полнометражный фильм «Сокровище Туманной горы». Сюжет фильма рассказывает о трех друзьях детства, которые вместе работают в магазине товаров для активного отдыха в маленьком городке. Однажды они видят в социальной сети карту сокровищ (   Читать дальше...   )Производство: США / Universal Pictures, Apatow Productions, Mosaic, Talent OneЖанр: комедияРежиссер: Пол БригантиАктеры: Martin Herlihy, Джон Хиггинс, Бен Маршалл, Конан О’Брайен, Боуэн Янг, Мэг Штальтер, Икс Майо, Николь Блум, Седрик Ярбро, Chloe TroastПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH), ИспанскиеПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0F30338683EC2752737BBB1975D03753ECADD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592957   (133572) от 26.12.2012
-
-Хождение по мукам: Восемнадцатый год (1958) [H.264] DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй фильм кинотрилогии «Хождение по мукам». В России Гражданская война. Её безжалостный вихрь разметал уже сложившиеся супружеские пары Даши и Ивана, Кати и Вадима Рощина. После смерти ребёнка Даша не находит в себе сил преодолеть ощущение собственной никчемности. Телегин уезжает на фронт в Красную Армию. Катя и Рощин едут на юг, но Вадим решает вступить в Добровольческую армию и расстаётся с Катей.Жанр: Драма, ИсторияРежиссер: Григорий РошальАктеры: Руфина Нифонтова, Нина Веселовская, Вадим Медведев, Николай Гриценко, Майя Булгакова, Виктор Авдюшко, Сергей Яковлев, Павел Винник, Евгений Матвеев, Михаил Козаков,  Евгений Тетерин, Леонид Пархоменко, Владимир Сез, Алексей СмирновПродолжительность: 01:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CAC60FD0EEAB8FA88B010A283385CF27588102
 ```
 
 

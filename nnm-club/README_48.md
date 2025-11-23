@@ -6,7 +6,7 @@ Fуanor - Hellhammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1285.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CA30A22CF249C939D8D4A67296CA1A4DEF74B77F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1286.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:67E34BFA1B72B3DE65BEB9271AA1B2520976BB43
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1287.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DDF7DB21778774ADC9B608415BCFDD31A6518EAB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1288.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:99161DBC0E96BD6CEEBFCF58A5D2C6F27A9A5237
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1289.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D15EE41D8167178DCA78EF395DECC72F591C1538
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1290.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1291.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:5C68FC34BC59926E6384500D34C4B7D2BBEA0FEE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1292.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1293.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:631C3F3DC2FF9EBA6681E0AEFEB319D1863CBA3B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1294.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Purvpn 9.4 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1295.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:48BD2D7D320C642B7D1F3C33FDEB1F5FC30D2A2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1296.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:65A84348D0A7E6E236FE3AFBE282B49B629697D0
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1297.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:560440818859DD606DCB961361D1F6533D981B64
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1298.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1299.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1300.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1301.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1302.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:9094C3FB66D4753AB3FD4CD5460039CD2C3A1B06
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1303.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:B80EB60939CD42BED3E2D955313C3C6DB5735D50
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1304.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1305.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:4269E1D8EA48E340D485CED6130740E00D364668
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1306.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:5FF700086CE5F58C142FCF8A6CFCE56AB19AAB9A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1307.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:AEB70BF026049A5B09DB08FE69491483DDB36B38
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1308.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1309.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Aignes WebSite-Watcher 2023 23.4.0.101 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1310.jpg" />
 </div>
 
 

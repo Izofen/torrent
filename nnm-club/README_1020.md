@@ -6,7 +6,7 @@ Therion - Collection (1992 - 2023) 30CD [FLAC|Lossless|image + .cue|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26868.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:25C4C619943447FD4E81DA092CABF38AD9EFAB6B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26869.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Desktop Calendar 3.21.223.6999 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26870.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GPU-Z 2.63 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26871.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Draw.io 26.0.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26872.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26872.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26873.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Fuse Audio Labs - OCELOT Clipper 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26874.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ GM Service Manual 0.9 - 2008 [En]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26875.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ NЮ - Когда мы были львами (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26876.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ djdtime - Melodic Techno & Ethereal Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26877.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:0A127B1E742FEFE9053B159ABDC0AF34748B88E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26878.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Magic Eraser / Магический ластик v2.19.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26879.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26880.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Tarbozaver88 | Проходите, пожалуйста (2024) [MP3, Денис 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26881.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E381325634403D24319C0D68289FEA185C07278E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26882.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Re: Китайская одиссея 2. Золушка / Sai yau gei: Sin leui 
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26883.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:6FF3FCD1861AE0DF4EEF0F0F40CF44F3F4D4AE32
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26884.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:2AB71A1F00C37CF6332118D60C1CB4A3FDF3DE60
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26885.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:68AC1479CEF37D39F6626D3EA9F51F53640BF21F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26886.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Raven - Over The Top! (The Neat Albums 1981-1984) (2019) 4 x CD, Box Set, Compil
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26887.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ O&O DiskImage Professional 20.2 Build 348 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26888.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:297CEC5982937800C5A16C49DA8D04187333E2D0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26889.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PowerDirector – Video Editor v14.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26890.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:FFA0D9C5AE8773CD8C562DFDD2B38AF0E5E8ACF6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26891.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:36219DC5C8B2CF4EEECB36D87C56858A39C6EB30
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26892.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:F3C2E3967D5A49CD692B6D1D9A03392E9600D284
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26893.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5316.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5317.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5318.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5319.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ori Uplift - Uplifting Only Episode 655 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5320.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DD384547E0662A9F57DCF55DBB727ADF4A00D0C7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5321.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5322.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:157B0320981BEC2D4A83AFAD43594B869886B177
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5323.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:7B0B56EAA25AD75ABB55C051A3628B94378179CF
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5324.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:1B2589BD54922295E423ABC04CF04894B8BEF3C3
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5325.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Who - Live At The Oval 1971 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5326.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:852349A3B142BBBB67C5F3BDA3D78E4F4B43B108
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5327.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Unen - Forever Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5328.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:F4293CB1B617D73F65A6234D29DE6C6EB66188EA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5329.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DCDBF7B2EA24EF5B88B396A69DE9E9F3582AECE4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5330.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A838D9C9A659C7B8D20309CC35435707C6D44748
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5331.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5332.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Armin van Buuren - A State Of Trance 1240 (Takeover By Joris Voorn) (2025) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5333.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5334.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:7266BE7DC10C1AA2D11D580567FBAFB89BD902B2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5335.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A46B50BAAEBB69ECF5778B725364ED815CCF7E26
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5336.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Sweet Freedom - Blind Leading The Blind (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5337.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:928EE4CEC94F854C04A68AD573907FF0B0A57BB1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5338.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5339.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Darker Half - Book Of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5340.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:3D2C0290CD9F0F4596C3AE2DDFB97553F6B52D1F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5341.jpg" />
 </div>
 
 

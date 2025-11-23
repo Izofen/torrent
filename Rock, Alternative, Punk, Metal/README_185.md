@@ -6,7 +6,7 @@ Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122347.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122348.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8E65E9D2A941854749A13FF38DD1AD4FFE02EF37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122355.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122360.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122365.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Sto
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122512.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Magia Nera - Vlad (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122516.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ PowerTribe - Up with the Sword (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122518.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122700.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122706.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122707.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kalmankantaja - Kohti valon kuolemaa (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122724.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:22BE9D31248CBE2FDBF734E53F7D56D7A85CE597
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122733.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122751.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:CAB3DC965059E520D6FB847E88037ED0DA49C03C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122754.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122783.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122789.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Overlorde - Awaken the Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122790.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:AE9F0BB96F4CBDDAA394E786B9F1B86492C09254
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122792.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122873.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122874.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122881.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122882.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122883.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122885.jpg" />
 </div>
 
 

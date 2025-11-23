@@ -1,3 +1,99 @@
+###  Публикация: 1639325   (220891) от 07.08.2023
+
+Вирусы: Разрушение и созидание / Viruses: Destruction and Creation (2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое вирусы? Как они влияют на человека и как распространяются? Врачи, вирусологи и ученые изучают вирус Зика, который распространяется по миру уже в масштабах пандемии. Что может сделать современная медицина, чтобы остановить эпидемию?Производство: США, CuriosityStreamЖанр: документальный, научно-популярныйПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535CC94BAF70811817E2C7E21377951F520C2FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 89454   (221838) от 13.12.2018
+
+Птицы / Le Peuple Migrateur / Winged Migration (2001) [DVD9+DVD5]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из года в год на протяжении тысячелетий перелетные птицы каждый сезон мигрируют с места на место. Во время перелета их поджидает множество опасностей в виде разбушевавшейся стихии, хищников, человеческого фактора. Но они все равно достигнут своей цели!Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: Фильм 01:34:24 + Бонус 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E7F9F8F7565694D210E6DFF74FF5B159355B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513737   (222520) от 30.11.2021
+
+Долина воды и огня / Valley of Flood and Fire (2017-2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезонные изменения в долине Луангва чрезвычайно интенсивны. Проливные дожди превращают реку Луангва из мелкого русла в величественный водный путь, где трава становится высокой, а ручьи наполняются обильным набором существ, обеспечивая обильную пищу для многих пасущихся ртов. Это заболоченный рай. Но это недолго. Последует беспощадная и разрушительная засуха, которая (   Читать дальше...   )Производство: Канада / Blue Ant Media Solutions INC., Plimsoll ProductionsЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Ханна ХоаПеревод: Одноголосый профессиональныйПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB170AE32832B0630AA6FD24F89677B4E9130A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513703   (222530) от 30.11.2021
+
+Потрясающие истории слонов / The Great Elephant Tale (2020) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три истории - слоненок путешествует по дельте Окаванго, самец отправляется на поиски пары, а опытная слониха ведет семью через пустыню.Производство: США / MER International, Blue Ant Media Solutions Inc.Жанр: Документальный, Природа, Фауна, ФлораРежиссер: Чарли ЛакокПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A2F58C286038E495723AE7DA2248C45CB7CF24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833412   (223213) от 15.12.2015
 
 Микро Монстры с Дэвидом Аттенборо / Micro Monsters with David Attenborough (2013) BDRip [H.264/720p] (1-6 серия из 6)
@@ -6,7 +102,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223213.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:C114FBDC48C21FD069A737814572F125AE6C2E3E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224041.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224041.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ magnet:?xt=urn:btih:3CE3F9918BF83E43ED561028F321DB4646974841
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224213.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ magnet:?xt=urn:btih:A034F2CE621E40441BF9502B0F7023A1334AC8BF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224628.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ magnet:?xt=urn:btih:00F2D1881C21E36DCF1EC0479B10537531C95614
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224631.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ magnet:?xt=urn:btih:7634AD222724718DB216454DDAB073836C4072E3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225341.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225341.jpg" />
 </div>
 
 
@@ -150,7 +246,7 @@ magnet:?xt=urn:btih:946F3BB52C23E8227951C3057D070A8A99361582
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225777.jpg" />
 </div>
 
 
@@ -174,7 +270,7 @@ magnet:?xt=urn:btih:DA59B101A04E69F1047B31C6FBDE18D15E769074
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227435.jpg" />
 </div>
 
 
@@ -198,7 +294,7 @@ magnet:?xt=urn:btih:C2F393C71DCF76FBBA0B87751E7B72DF1022CE7F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227578.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227578.jpg" />
 </div>
 
 
@@ -222,7 +318,7 @@ magnet:?xt=urn:btih:0E6E6D35AD9C9E4D413BD8D8ADBAC664F0A7877B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_229901.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_229901.jpg" />
 </div>
 
 
@@ -246,7 +342,7 @@ magnet:?xt=urn:btih:DF50A002B1CB0270A3B9CFCF37B8E7C7D8203AC7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230355.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230355.jpg" />
 </div>
 
 
@@ -270,7 +366,7 @@ magnet:?xt=urn:btih:FFF41842AA3D165A562BC168057181F94CA0AB3D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230707.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230707.jpg" />
 </div>
 
 
@@ -294,7 +390,7 @@ magnet:?xt=urn:btih:636C34A474A2E2B917AF5D1AEE188E924545713C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230787.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230787.jpg" />
 </div>
 
 
@@ -318,7 +414,7 @@ magnet:?xt=urn:btih:642F3723490A50092006BF31F21958F8C8DB8D66
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230816.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230816.jpg" />
 </div>
 
 
@@ -342,7 +438,7 @@ magnet:?xt=urn:btih:EB41BCC4DA34E855104E90DC9091F69E1A768F2F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230940.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230940.jpg" />
 </div>
 
 
@@ -366,7 +462,7 @@ magnet:?xt=urn:btih:B528E52EDAD54343092947E3E2957CEDFC6D3830
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231860.jpg" />
 </div>
 
 
@@ -390,7 +486,7 @@ magnet:?xt=urn:btih:9F2D5512AF78A7FEAD70343B9159A0A9F922BEC6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232011.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232011.jpg" />
 </div>
 
 
@@ -414,7 +510,7 @@ magnet:?xt=urn:btih:AC1514AA90368C623541E2E6643D69CAEE99123D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232467.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232467.jpg" />
 </div>
 
 
@@ -438,7 +534,7 @@ magnet:?xt=urn:btih:502FC83E1AFA2846DB44B6D69AA98811EE8262B6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232486.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232486.jpg" />
 </div>
 
 
@@ -462,7 +558,7 @@ magnet:?xt=urn:btih:6A4ED447E247D8F6A94744A9FEA61C89331633E4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233136.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233136.jpg" />
 </div>
 
 
@@ -486,7 +582,7 @@ magnet:?xt=urn:btih:9E52A5367047FA6FB523608BB675632CB131EB87
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234406.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234406.jpg" />
 </div>
 
 
@@ -510,7 +606,7 @@ magnet:?xt=urn:btih:50B3F48B708D0F83B22BAF7F7E9572F44291961A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234441.jpg" />
 </div>
 
 
@@ -521,102 +617,6 @@ magnet:?xt=urn:btih:50B3F48B708D0F83B22BAF7F7E9572F44291961A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D209F59B8D0FCEC02D60C3E34F4A865BE7A458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642317   (234822) от 26.06.2023
-
-От рассвета до заката. Жаркий день в Новом Свете / Dawn to Dusk. Hot day in the New World (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встаёт солнце, наступает рассвет и мир пробуждается к новому дню. В норах, колониях и на ветвях просыпаются животные, что бы встретить восход солнца и приступить к своим обычным делам. Всё это в период: от рассвета - до заката.Производство: Новая Зеландия, NHNZЖанр: документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DFE3C0EDD8A29573D6DD4C9CD3E0FE6A8762FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642314   (234890) от 26.06.2023
-
-От рассвета до заката. Жаркий день в Новом Свете / Dawn to Dusk. Hot day in the New World (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встаёт солнце, наступает рассвет и мир пробуждается к новому дню. В норах, колониях и на ветвях просыпаются животные, что бы встретить восход солнца и приступить к своим обычным делам. Всё это в период: от рассвета - до заката.Производство: Новая Зеландия, NHNZЖанр: документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8596237298DC6647641222556256503F5CFD6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642327   (234967) от 26.06.2023
-
-Жизнь в рамках пищевой цепи / Living within the food chain (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями. GREAT BLUE WILD - это ваш тур высокой четкости по подводному миру, в сочетании с увлекательными историями от профессионалов подводного плавания.Производство: Канада, GREAT BLUE WILDЖанр: документальный, природа, флора, фаунаРежиссер: Кайл Мердок, Эндрю УотервортУчастники: Даниэль Дэ Ким, Дэн НахтрабПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B0E6738462AE9F08E026B59769702202B10B0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642685   (235313) от 28.06.2023
-
-RTG. Главный Ботанический сад Российской академии наук (2014) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России первый ботанический сад - "аптекарский огород" - учредили при царе Иване Грозном в 1581 в Кремле. Заморские растения собирали и культивировали для изготовления лекарств. Сейчас ботанические сады в первую очередь - научные центры, благодаря которым сохраняется многообразие растений на планете. Главный Ботанический сад Российской академии наук крупнейший (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, природаРежиссер: Илья ПетровУчастники: Румия НиязоваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF60C00B0E453CB3ECA00496D73C6474D049879F
 ```
 
 

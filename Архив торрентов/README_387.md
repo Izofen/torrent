@@ -6,7 +6,7 @@ Dr.Web LiveCD 6.0.0  (23.04.2012) 6.0.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90471.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kvisoft Flash Photo Gallery 1.5.3 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90473.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ IconGroups 1.4.2 [Multi/Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90477.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ IconGroups - симпатичная программка поможет Вам �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90490.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Internet Download Manager 6.11 Build 5 Final RePack by KpoJIuk [Русский, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90495.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90499.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2FDCC98AE521F42477954C80F17899D6DC4F4F51
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90505.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ LEGO Indiana Jones [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90510.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9B6CA494AD0D8C3FCA398EB2ED6FD161A8829952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90511.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9B6CA494AD0D8C3FCA398EB2ED6FD161A8829952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90515.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9B6CA494AD0D8C3FCA398EB2ED6FD161A8829952
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90524.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Aimersoft Video Converter Ultimate 4.2.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90529.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Aimersoft Video Converter Ultimate — представляет собой по�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90530.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ A Valley Without Wind [En] (L/1.0) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90541.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C5E6E382E92F82654138F57B9BA1B3C9717434EE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90564.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C5E6E382E92F82654138F57B9BA1B3C9717434EE
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90581.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sunmonx - Power Salad (2012) [FLAC|Lossless]<Dub , Downtempo , Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90595.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Sunmonx - Power Salad (2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90609.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Tor Even Mathisen - Novemberfrost (Релакс) (2012) HDRip [H.264/720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90610.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Asbaar - 2 albums (2010) [FLAC|Lossless] <Dark Ambient, Drone Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90617.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Nu:Tone - Beliefs / Beatnik (2007) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90620.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Nu:Tone - Beliefs / Beatnik (2007) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90622.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:A9CF23BF5110B62DE2CAB7842CA5D1A15C4F8597
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90624.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:A9CF23BF5110B62DE2CAB7842CA5D1A15C4F8597
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90626.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:A9CF23BF5110B62DE2CAB7842CA5D1A15C4F8597
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90632.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:A38D62F76D23519FB331451F11598D448578688C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90633.jpg" />
 </div>
 
 

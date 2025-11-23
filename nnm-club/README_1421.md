@@ -6,7 +6,7 @@ Linkin Park - From Zero (2024) Scene [FLAC|Lossless|tracks] <Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37299.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37300.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 7.0.3495.14 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37301.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37302.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E4355E1D373ABD693AC2DED6FE33287E1FF7B3BB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37303.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ V.A. - Buddha Bar by Dole & Kom and Ravin (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37304.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E77945077DBDD0BFB6F7947BB09ED90A051BC01B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37305.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Music News For Forum vol.042 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37306.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37307.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37308.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Pencil Photo Sketch : Drawing v2.0.99 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37309.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ MyFitnessPal: Счетчик калорий v24.44.0 + Wear v1.1.2 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37310.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Photo Lab PRO v3.13.37 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37311.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37312.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37313.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - A State of Trance - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37314.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Abc - The Best On Abc (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37315.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:1696FDF576E3CD08C8788C65E6D81E532CC9B4A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37316.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37317.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37318.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:4BB3EF067B6E026450563E56BDF6C511C9BE87CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37319.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:F1207B8E5C07E297F96E9788A4EF87EAC534DAD7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37320.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F1207B8E5C07E297F96E9788A4EF87EAC534DAD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37321.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Electrodoc Pro v6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37323.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37324.jpg" />
 </div>
 
 

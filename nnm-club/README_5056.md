@@ -1,3 +1,182 @@
+###  Публикация: 1085785   (156472) от 22.12.2016
+
+Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Rocked [4:57]
+02. Only After Dark [4:02]
+03. Women (Live) [6:32]Жанр: Hard RockПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DEBC73AC1C032EA197B26BBB72C1A52A371CD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194327   (156473) от 24.12.2017
+
+Хранители дверей / Xiao men shen / The Guardian Brothers (2016) WEBRip [H.264/1080p-LQ] [EN / EN, GER, NLD, FRA, SPА, ITA, TUR, POL Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156473.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире китайских божеств кризис. Люди больше не верят в Богов. Один из Богов-хранителей дверей спускается в людской мир, чтобы доказать, что он ещё чего-то стоит. Но это приводит к непредсказуемым последствиям.Производство: Китай, Light Chaser Animation StudiosЖанр: Мультфильм, Комедия, СемейныйРежиссер: Гэри ВанПерсонажи: Гао Сяосун, И Сяосин, Бай Кэ, Цзи Гуаньлинь, Ивонн ЧжаоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Немецкие, Голландские, Французские, Испанские, Итальянские, Турецкие, ПольскиеПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875A9C0FEC8725EC95EBDC025687F278CA01DD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344968   (156474) от 20.12.2019
+
+Код 8 / Code 8 (2019) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156474.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced) - отдельным файломПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A549B914D7E7F04F6BE59F0390A3A9B0DFFCD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433665   (156476) от 21.12.2020
+
+Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Collection) (2020) [FLAC 24/48.0|Lossless|WEB-DL|tracks] <Ambient, New Age, Easy Listening>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once in Royal David's City (Live) (5:14)
+02. A Maiden Most Gentle (Live) (3:03)
+03. There is No Rose of Such Virtue (Live) (1:57)
+04. Herefordshire Carol (This is the Truth Sent from Above)Жанр: Ambient, New Age, Easy ListeningПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 107507   (156477) от 19.12.2018
+
+Сумасшедшие за стеклом / Drawn Together (2004 - 2007) DVDRip (Сезон 1-3, серий 36)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь нарисованных психопатов в одном доме борются за свою жизнь, за ними день и ночь следят мультипликаторы и фиксируют все на миллион камер. У каждого героя свои проблемы, но никто не придет на помощь. Дальше все будет только хуже. Первое и единственное мультреалити в мире.Жанр: реальное ТВРежиссер: Рич Мур, Stephen Sandoval, Ray ClaffeyАктеры: Билл Фрейбергер, Эрик Соммерс, Рид ЭгньюПеревод: Канал 2х2Формат: AVIПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC122B65571A198C491B11DB69C6754D6A3F7D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600320   (156478) от 27.12.2022
+
+Voitixler, Екатерина Векслер | Практический онлайн-курс по API и Postman для будущих и действующих IT-специалистов (2021-2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156478.jpg" />
+</div>
+
+
+###  Подробнее
+
+После курса
+Вы сможете уверенно работать с API
+Вы сможете понимать и анализировать документацию по API
+Поднимете свою востребованность на рынке труда(   Читать дальше...   )Производство: voitixlerЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968077   (156480) от 23.12.2015
+
+Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Pop Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joys of Christmas (5:15)
+02. I Can't Dance to That (4:19)
+03. Windy Town (4:25)
+04. Gonna Buy a Hat (4:25)(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, Country RockПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194328   (156481) от 24.12.2017
 
 Стивен Хокинг | Теория всего. От сингулярности до бесконечности: происхождение и судьба Вселенной (2018) [PDF, FB2, RTF]
@@ -6,7 +185,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156481.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ magnet:?xt=urn:btih:67A93654E7A8040761FD84AF3502B4B5863CCB97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156482.jpg" />
 </div>
 
 
@@ -54,7 +233,7 @@ magnet:?xt=urn:btih:EBEC8026DDCD57E67781EB8C1486F12229C2D34B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156483.jpg" />
 </div>
 
 
@@ -78,7 +257,7 @@ magnet:?xt=urn:btih:0D1C527CD1C32FEF28BDB9890B3C9B6BFB552989
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156485.jpg" />
 </div>
 
 
@@ -102,7 +281,7 @@ magnet:?xt=urn:btih:0D1C527CD1C32FEF28BDB9890B3C9B6BFB552989
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156486.jpg" />
 </div>
 
 
@@ -126,7 +305,7 @@ magnet:?xt=urn:btih:4FDE293F5319CDE5F40E8A3F4D6A13067B19BE39
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156488.jpg" />
 </div>
 
 
@@ -150,7 +329,7 @@ magnet:?xt=urn:btih:4B9EC6EA5899190DC20FDEEE9694C9725E23C522
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156489.jpg" />
 </div>
 
 
@@ -174,7 +353,7 @@ StartAllBack 3.5.7 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156490.jpg" />
 </div>
 
 
@@ -198,7 +377,7 @@ magnet:?xt=urn:btih:8DD2B2563AF7AC7285A6D17D3FFC287167A0CC97
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156491.jpg" />
 </div>
 
 
@@ -222,7 +401,7 @@ DesignToolBox 2.4.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156493.jpg" />
 </div>
 
 
@@ -246,7 +425,7 @@ magnet:?xt=urn:btih:747EF60D1CAAEAE08ECA18BB05684115A5C44019
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156494.jpg" />
 </div>
 
 
@@ -270,7 +449,7 @@ magnet:?xt=urn:btih:542A9512CB045BECED78BA84A8D483CFA3C57F98
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156495.jpg" />
 </div>
 
 
@@ -294,7 +473,7 @@ E-Mantra - Raining Lights (2015) Altar Records [FLAC|Lossless|WEB-DL|24Bit|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156496.jpg" />
 </div>
 
 
@@ -321,7 +500,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7719/dlc) License GOG [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156498.jpg" />
 </div>
 
 
@@ -345,7 +524,7 @@ magnet:?xt=urn:btih:1AD979D8764AA480A156D11C07C13480D4585838
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156499.jpg" />
 </div>
 
 
@@ -369,7 +548,7 @@ magnet:?xt=urn:btih:F6643B643171F028996509FE74501244F5764D30
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156500.jpg" />
 </div>
 
 
@@ -393,7 +572,7 @@ magnet:?xt=urn:btih:E86D6D99C145CCB488D1E1E874322507B41F01AF
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156501.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156501.jpg" />
 </div>
 
 
@@ -420,7 +599,7 @@ magnet:?xt=urn:btih:E86D6D99C145CCB488D1E1E874322507B41F01AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156502.jpg" />
 </div>
 
 
@@ -444,7 +623,7 @@ magnet:?xt=urn:btih:8116F85C85D41A85C5C9CCEB359A8CD0DC78B88D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156504.jpg" />
 </div>
 
 
@@ -455,177 +634,6 @@ magnet:?xt=urn:btih:8116F85C85D41A85C5C9CCEB359A8CD0DC78B88D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8814EE002C691747DA86281DC2D4E832C8A77F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600400   (156505) от 27.12.2022
-
-Децибел / Desibel / Decibel (2022) WEB-DL [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командиру военно-морского флота звонит аноним, и утверждает, что заложил бомбы в местах скопления людей, в том числе на футбольном стадионе и в аквапарке. Заряды представляют собой «звуковые бомбы», которые взорвутся, когда уровень окружающего звука превысит 100 децибел. Эта террористическая атака происходит после инцидента, произошедшего год назад на подводной лодке, (   Читать дальше...   )Производство: Южная Корея, East Dream Synopex, Megabox Plus MЖанр: боевик, триллер, детективРежиссер: Хван Ин ХоАктеры: Ким Рэ-вон, Ли Джон-сок, Чон Сан-хун, Пак Пён-ын, Ли Сан-хи, Чо Даль-хван, Чха Ын-у, Ли Мин-ги, Хан Мин-ёп, У Джи-хёнПеревод: Авторский (Ю. Сербин)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5032D2FB1BC911306FBA8417CF2FF0B4023AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346765   (156506) от 20.12.2019
-
-Проекты - VideoHive - Christmas - 25067701 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон с волшебной, струящейся лентой, танцующими частицами и золотым текстом - это праздничная открытка, которая ожила благодаря чудесной рождественской магии. Проект подходит для создания рождественского вступления, праздничных поздравлений.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04499C039E3784C80E7EC3C907BEA9D8A03C36A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518150   (156507) от 18.12.2021
-
-Драйв / Drive (2011) UHD BDRip [H.265/1080p-LQ] [HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный водитель – при свете дня он выполняет каскадерские трюки на съёмочных площадках Голливуда, а по ночам ведет рискованную игру. Но один опасный контракт – и за его жизнь назначена награда. Теперь, чтобы остаться в живых и спасти свою очаровательную соседку, он должен делать то, что умеет лучше всего – виртуозно уходить от погони.Производство: США / Bold Films, Odd Lot Entertainment, Marc Platt ProductionsЖанр: Криминал, драма, триллер, фильм-нуарРежиссер: Николас Виндинг РефнАктеры: Райан Гослинг, Кэри Маллиган, Брайан Крэнстон, Альберт Брукс, Оскар Айзек, Кристина Хендрикс, Рон Перлман, Каден Леос, Джефф Вульф, Джеймс БибериПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (2хFull), английские (Full, SDH)Продолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DE4462F86FB45E7243763EC11EE62A0F8CB272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433730   (156508) от 21.12.2020
-
-Анна Жироль | Школа байеров. Как зарабатывать на шопинге (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна Жироль – модный байер и популярный блогер, заработала первый миллион в 23 года и делится профессиональными секретами на страницах этой книги.
-Видеоуроки Анны теперь воплотились и на бумаге. Точность инструкций, краткость определений, честные ответы даже на «неудобные» вопросы и, конечно, непревзойденная энергия, искренность и мотивация!
-Что это за профессия (   Читать дальше...   )Жанр: Интернет-бизнес, Стартапы и создание бизнесаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA797CED4EBBD6513EE104CCA1FD8D680BC4350C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085639   (156509) от 22.12.2016
-
-Журнал | Авиаколлекция №3 (2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C11F5E5D874B91346AFD0A02F19608A3AFB30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433732   (156511) от 21.12.2020
-
-Ирина Данилина | Кредит по-русски. Как уменьшить выплаты и не попасть в финансовый коллапс (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Данилина – советник первого заместителя председателя комитета Госдумы РФ по финансовому рынку, 15 лет возглавляла юридическую службу одного из крупнейших банковских холдингов на российском рынке. В этой книге она делится знаниями, которые помогут вам избежать проблем, связанных с излишней доверчивостью и самонадеянностью.
-С помощью книги вы научитесь использовать (   Читать дальше...   )Жанр: Личные финансыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F643D07E2FB39D5EFD40E16728B1E3A9156F7946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600557   (156512) от 27.12.2022
-
-Артур Кларк | Космическая Одиссея (Книга 1). 2001: Космическая Одиссея (2022) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156512.jpg" />
-</div>
-
-
-###  Подробнее
-
-﻿В 1999 году на Луне был найден некий объект, посылающий мощный сигнал в космос. Ученым удалось выяснить, что сигнал направлен в сторону Япета, одного из спутников Сатурна. Именно туда через пару лет отправляется межпланетный корабль «Дискавери»…Жанр: научная фантастикаПродолжительность: 08:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859418676DC20AA6878876FF6F43517DD85E8C1E
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1711641   (112424) от 31.03.2024
+
+MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112424.jpg" />
+</div>
+
+
+###  Подробнее
+
+MUSYNX пришла на компьютеры с мобильных устройств. Продукт является ритм-игрой, выполненной в стилистике аниме. В тайтле есть 2 режима графики: трехмерная и двухмерная. Между ними можно постоянно переключаться. В первом случае камера будет расположена сзади под углом, а во втором – чётко сверху. Геймплей в MUSYNX выглядит следующим образом. В сторону юзера сверху (   Читать дальше...   )Тип издания: SceneРазработчик: I-InfernoЖанр: Инди, СимуляторыЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711652   (112425) от 31.03.2024
+
+(Не)бывшие / Hors-saison / Out of Season (2023) TS [H.264/1080p] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_112425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный актер Матье и учительница музыки Алис когда-то были влюблены. Теперь ему за пятьдесят, ей за сорок, их отношения остались в прошлом - и каждый давно живет своей жизнью.
+Однако, судьба вновь сводит их: парочка бывших оказывается на одном курорте в мертвый сезон, где просто идеальные условия для возобновления романа. Но смогут ли ожившие чувства прорваться (   Читать дальше...   )Производство: Франция / Canal+ Жанр: драмаРежиссер: Стефан БризеАктеры: Гийом Кане, Альба Рорвахер, Шариф Андура, Эмми Буассар Помель, Люсетт Боден, Жильберт Беллю, Юго Дийон, Стефан Бризе, Джонни Рассе, Жан БукоПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:55Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711400   (112426) от 31.03.2024
+
+Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 01.03.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1687D31FC634362FDF924A01B6D1E987499B19C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711753   (112427) от 31.03.2024
 
 Anyma - Genesys II (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
@@ -6,7 +79,7 @@ Anyma - Genesys II (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112427.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112428.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ PrivaZer Pro 4.0.84 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112429.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ Valentina Studio Pro 13.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112430.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ OfficeSuite Pro + PDF 14.3.51316 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112431.jpg" />
 </div>
 
 
@@ -132,7 +205,7 @@ magnet:?xt=urn:btih:DB61D6916216B8B8237D198FEFC74D568617E216
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112432.jpg" />
 </div>
 
 
@@ -156,7 +229,7 @@ magnet:?xt=urn:btih:6304F3A1332F4A6FE6606CF97FB0F4037B225D66
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112433.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ magnet:?xt=urn:btih:FE4ED52A260A35B4CA5429A9382A64081A9C69DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112434.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112435.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112436.jpg" />
 </div>
 
 
@@ -258,7 +331,7 @@ magnet:?xt=urn:btih:FF8C3AB632676B09B0890979F19FE1968B2B15B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112437.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ magnet:?xt=urn:btih:C17F3F39B6A84C8277E8C08F20584D7BC749C62A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112438.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ magnet:?xt=urn:btih:2A7FE8C3A79F2B0A7E95595A1C962EF75D5C50A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112439.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ magnet:?xt=urn:btih:ECF1F600ED03F7B8648BE30B12031455A240A3DA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112440.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ magnet:?xt=urn:btih:71D6C9757DE6DE434FCD5AF46A180427CBBC2B71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112441.jpg" />
 </div>
 
 
@@ -378,7 +451,7 @@ magnet:?xt=urn:btih:EB630A59DAF81A6484D33964CBFC0D6F16702723
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112442.jpg" />
 </div>
 
 
@@ -402,7 +475,7 @@ CrystalMark Retro 1.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112443.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ magnet:?xt=urn:btih:07A5E818DBD239E3E38502CAC348E0FDD279A1B0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112444.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112445.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112446.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:C6964045E0498E2A8697C40B4F89ED3B88DBDA70
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112447.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ magnet:?xt=urn:btih:E3F097A34B8636F2263C4DDD08ECE61D3BB6191E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112448.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ D16 Group - SilverLine Collection 2024.03 VST, VST 3, AAX (X86/X64) RePack by TC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112449.jpg" />
 </div>
 
 
@@ -557,85 +630,6 @@ D16 Group - SilverLine Collection 2024.03 VST, VST 3, AAX (X86/X64) RePack by TC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:932F88E5B03D9F9458724F022ACC47F186B0A490
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711552   (112450) от 30.03.2024
-
-Сто к одному (30.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112450.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Пловчихи" против команды "Гимнастки"Язык озвучки: РусскийПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81E4D8DA905DD00968FD28DE697E85880E2A288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711376   (112451) от 30.03.2024
-
-Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out Of Town [2:58]
-02. S'Wonderful/They Can't Take That Away From Me [4:07]
-03. Just The Way You Look Tonight [5:41]
-04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711457   (112452) от 30.03.2024
-
-Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.03.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112452.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 марта 2024, пятница. 02:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 18 577 зрителей (92% при вместимости 20 270)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6DBB77A2C203C0F1070F46BADD40F55DF8A6F7
 ```
 
 

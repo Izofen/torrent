@@ -1,3 +1,75 @@
+###  Публикация: 1827255   (185773) от 20.10.2025
+
+Шаблоны - Pixelbuddha - Vintage Postcard Poster Effect - 6084 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тепло винтажных печатных открыток — фактурных и слегка состаренных. Этот эффект, разработанный для постеров и печатных проектов, добавляет полутоновые цветовые узоры, мягкое стирание и тактильную ретро-фактуру, напоминающую иллюстрации середины века. Идеально подходит для создания аутентичных праздничных открыток, ретро-рекламы или классических изображений в стиле (   Читать дальше...   )Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B3E416945FF1FD913DB8F577F4D8F8AC195CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827419   (186091) от 21.10.2025
+
+Шаблоны - Creative Market - Paper Poster Card Mockup - 290947358 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот потрясающий нейтральный шаблон макета на бумаге идеально подходит для демонстрации различных товаров, напечатанных на бумаге: открыток, плакатов, резюме, флаеров, меню и приглашений. Он очень универсален и идеально подходит для демонстрации ваших работ и дизайнов в вашем магазине, позволяя им выглядеть профессионально и современно в кратчайшие сроки.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECEC20C890F835A00BCF4EC4F53F4C31E0E122F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827416   (186093) от 21.10.2025
+
+Шаблоны - YouWorkForThem - Vintage Anaglyph Halftone Effect - E13008 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте завораживающие, высококачественные изображения и фотографии всего за пару кликов! Этот фотоэффект включает в себя слои смарт-объектов, обеспечивая полную настройку, простоту и универсальность рабочего процесса. Просто откройте нужный слой, дважды щелкнув по его миниатюре, удалите заглушку, добавьте графику, сохраните и наблюдайте, как волшебство дизайна (   Читать дальше...   )Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D7289464E75304D21B0346FD8ED6787C984098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827373   (186112) от 21.10.2025
 
 Шаблоны - Pixelbuddha - Old TV Photo Template - 4064 [PSD]
@@ -6,7 +78,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186112.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:1BAD4B23A9CA4F71F69404E2EAC09AC368A41733
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191560.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191560.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:7F5841442034AE709E9D3C6D071B3BC70F917454
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196319.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196319.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:DE3376FA0FB23D9F46DB1CB25EFDE2B01F0DF9A3
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196380.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:1C4A5837E30BEEB332C88AF14BD822C5411E24A2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196384.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196384.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:11381EEDB42DE94F1D7C2726AF8010FC0E19210B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196400.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196400.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:2D3BB480C220434A2397A86E561F81E6C01E8C97
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196402.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196402.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:8E7363E4FD5DA0D6FBDD3D130AFE84CA465029EA
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196404.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196404.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:A2D98D0326186A1ED2547E42A1593F4AD2F6C4D5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196408.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:F2CE3EEA9878EC9CFAE1780CD11045D2CD2A07B4
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196914.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:1F446AE6E9A5385DCEEF2967481F2D69FF5278E6
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206128.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206128.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:F9B87CEB0AAA9776308F07DD4A736F5B5BF9AB58
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210187.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210187.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:64ECF4371EB8F5ECCEAC202FFF5EFC1202E3A360
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212455.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212455.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:F68D8366CCD658972C31F91A32A789DEE5A5DFBE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212554.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:441D6884DFEF9A5246C09DBD81D82699843847DD
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213619.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:D77FB113EACEE86F14179DA47FEA38C4BC1C4011
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215198.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:A5397025A9ADEE64A8AC09264CF1754C7DFBBC7A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219827.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:6C0401CC11119024C47E47FCF3C9750CB9999494
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221631.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:0F39962B8AD853EC9C658DECDF427DE607C61E61
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221775.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221775.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:C4BFC0E09BD7DDEB579252308103B471A423292F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221977.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221977.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ magnet:?xt=urn:btih:CF826A39FD986B07DF389F4753E0A1007474E397
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223344.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223344.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:3D71174D6B6CFAF8C3E685FAD85B4CF75B08F161
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224987.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224987.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:679E4602AC7520241769AD0D41363AF5904EBD1E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225561.jpg" />
 </div>
 
 
@@ -556,80 +628,6 @@ PSD-комплект, который удобен веб-дизайнерам / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5D2BB98CCB07F1FE1F7C5A29283AEB0ABA0873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586315   (227981) от 08.12.2012
-
-Шаблоны - Портфолио для детского сада "Незнайка и его друзья" [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227981.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 PSD (многослойные) l 300 dpi
-Два шрифта в комплекте.
-Автор: ТрассерФормат: PSDРазрешение файлов: 3250x2300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431F27CD06C4582511C2281F232FF3D04F24B8C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832968   (230345) от 31.10.2025
-
-Шаблоны - UI8 - Hardcover Book 6x9 Inch Size Mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продемонстрируйте свой дизайн обложки книги с этим профессиональным внешним видом и простым в редактировании набором макетов psd для книги в твердом переплете размером 6x9 дюймов. Созданный для вашего дизайнера вашим коллегой-дизайнером, идеально подходит для презентации вашего дизайна обложки книги как для клиентского проекта, так и для вашего профессионального (   Читать дальше...   )Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C9BDD4B71F589721E1F2B2E7BB4C1EE67F60A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832954   (230432) от 31.10.2025
-
-Шаблоны - Mockup Cloud - Premium MacBook Mockup 1 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои веб-дизайны, пользовательские интерфейсы и презентации брендов с помощью этого профессионального мокапа MacBook от Unknown Supply. Этот мокап с чистым фоном, реалистичными тенями и текстурами высокого разрешения станет идеальной площадкой для вашей работы. Независимо от того, представляете ли вы целевые страницы, веб-приложения или цифровые продукты, (   Читать дальше...   )Формат: PSDРазрешение файлов: 6500x4500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F032F625EA68EE502CBD197D40A59D601EE940DF
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1692541   (122356) от 17.01.2024
+
+Unclutter 2.2.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
+Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2024 Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F81B2260C6BF9B85C0C8F4AF68712209BCF2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692732   (122357) от 17.01.2024
+
+Aiseesoft Mac FoneTrans 9.2.28 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это программное обеспечение для передачи и управления Mac и iOS, может передавать контакты / фотографии / песни / видео и многое другое между устройствами Mac и iOS. Это позволяет вам редактировать плейлист / подкасты быстро и эффективно. Ваша цифровая жизнь может управляться проще.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B6E494BD4F12CF601884B6C5257B064E42E6BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692557   (122358) от 17.01.2024
+
+Чингиз Абдуллаев | Дронго (Книга 48). Крах лицедея (2024) [MP3, Маркиза]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный преступник Петр Дудник скрывается от правосудия где-то в Европе. За ним тянется такой кровавый след, что его ищут лучшие сыщики Интерпола. Да не могут найти. Дудник сменил фамилию, сделал пластическую операцию на лице и даже изменил отпечатки пальцев. Ни один человек в мире не знает, как он выглядит на самом деле. Чтобы его найти, нужен суперпрофессионал, (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9332CEB0F87EFAA747AC48DAB17ADBD6FDD054D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692542   (122359) от 17.01.2024
 
 Chain - Study & Workout Timer 10.1 [Multi/Ru]
@@ -6,7 +79,7 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122359.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122360.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ VA - Top 8 December 2023 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122361.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ magnet:?xt=urn:btih:2B28E3AD889D8820F7B3315B598B12845580A35C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122362.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ DirEqual 5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122363.jpg" />
 </div>
 
 
@@ -133,7 +206,7 @@ FSNotes 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122364.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122365.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ VideoProc Converter 4K 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122366.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ magnet:?xt=urn:btih:59F573BF993D52603F3BBB6813718A4C91C83D03
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122367.jpg" />
 </div>
 
 
@@ -233,7 +306,7 @@ PDF Checkpoint 1.9.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122368.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ FontLab 8 v.8.3.0.8766.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122369.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ Google Chrome 120.0.6099.225 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122370.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ magnet:?xt=urn:btih:684B1304926618604BE2D5113E070B51159F26A3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122371.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ magnet:?xt=urn:btih:16B2FB828C21DE4ADC896825B7586F3A4A3867F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122372.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122373.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ magnet:?xt=urn:btih:CB16313EC079BE979043DE7CF9EF149DA6BBA5AF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122374.jpg" />
 </div>
 
 
@@ -407,7 +480,7 @@ magnet:?xt=urn:btih:44AE39C214B06A138EF10C6EB72AA32C2788A61F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122375.jpg" />
 </div>
 
 
@@ -431,7 +504,7 @@ magnet:?xt=urn:btih:375FE93A43818A390E43C56C194B947F3A71FA27
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122376.jpg" />
 </div>
 
 
@@ -457,7 +530,7 @@ magnet:?xt=urn:btih:767B89935942A34E9582A583F4B40C22477F154E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122377.jpg" />
 </div>
 
 
@@ -481,7 +554,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [MP3|320 Kbps] <S
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122378.jpg" />
 </div>
 
 
@@ -508,7 +581,7 @@ QOwnNotes 24.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122379.jpg" />
 </div>
 
 
@@ -532,7 +605,7 @@ magnet:?xt=urn:btih:96A85FEA0AFDD46D9889342EE55C51C7D7629969
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122380.jpg" />
 </div>
 
 
@@ -556,7 +629,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122381.jpg" />
 </div>
 
 
@@ -567,78 +640,6 @@ Lyn - легкий, быстрый и удобный просмотрщик из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:426CA2E6B76CB747D3907CAEBE9FC67FC585C680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692666   (122382) от 17.01.2024
-
-Джон Уиндем | Метеор (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122382.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Очень древняя цивилизация планеты Форта столкнулась с тем, что истощение ресурсов неминуемо приведет к деградации и вымиранию. Правитель Форты решает дать истории своей расы последний шанс, построив флот из кораблей-ковчегов, чтобы отправить их в дальний полет в разные уголки галактики. Кому-то из отважных фортианцев повезет продолжить цивилизацию в более благоприятном (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB6F7FCB4D6A3952662768F5D3A87605CF011C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692535   (122383) от 17.01.2024
-
-4K Video Downloader + 1.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C2906E44013717889DB500E3C49CA462E3FD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692614   (122384) от 17.01.2024
-
-Glary Disk Cleaner 6.0.1.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Disk Cleaner - инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C4FDABDB22C9F88E8C0DA4C76C7BFF4B1730ED
 ```
 
 

@@ -6,7 +6,7 @@ Carey Bell - 15 Albums (1969 - 2007) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176540.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176540.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Miguel Montalban - And The Southern Vultures (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176546.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176546.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Andrew Riverstone - Andrew Riverstone (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176577.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176577.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny Wayne Shepherd - Trouble Is... 25 (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177267.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177267.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Ellis Marsalis Trio - Twelve's It (1998) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177434.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mike Wofford - Live At Maybeck Recital Hall, Vol. 18 (1992) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177442.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (Live) (2023) [F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177516.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177516.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177625.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177625.jpg" />
 </div>
 
 
@@ -214,6 +214,60 @@ magnet:?xt=urn:btih:9D32A324B9CB477A776461923A16517981F73DAF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429147   (177710) от 05.12.2020
+
+Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177710.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Theme: Lullaby of Birdland/Announcer Introduction [0:50]
+02. Tea for Two [5:38]
+03. It Could Happen to You [3:34](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365200   (177933) от 06.10.2023
+
+Joe Louis Walker - 27 Albums (1986 - 2023) 29 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric Blues, Soul-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joe Louis Walker, известный также как JLW - американский музыкант, блюз - гитарист, певец, автор песен и продюсер, родился 25 декабря 1949 в музыкальной семье. Многократный обладатель премии Grammy & WC Handy Award Joe Louis Walker - один из самых известных исполнителей блюза нашего времени. JLW - настоящий виртуоз-гитарист, уникальный певец и плодовитый автор (   Читать дальше...   )Список альбомов:
+1986 - Cold Is The Night
+1988 - The Gift
+1989 - Blue SoulЖанр: Modern Electric Blues, Soul-BluesПродолжительность: 25:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420B94FDF13E1D6E03256512A091CFBD00E10500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594567   (178056) от 01.12.2022
 
 Sofia Perhomaa - Temppuja (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -222,7 +276,7 @@ Sofia Perhomaa - Temppuja (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178056.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178056.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Famous Dogs - Famous Dogs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178083.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178083.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ The True Blues Band - TBB & Friends (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178092.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178092.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Steven Taylor - Touch & Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178096.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Gerry Jablonski & The Electric Band - 105 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178101.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Blue Mountain Tribe - Oh Great Warrior (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178105.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178105.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Durham County Poets - Out of the Woods (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178114.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Sandra Malta - Empty Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178123.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Kai Strauss - Night Shift (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178125.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178134.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178134.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178139.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178139.jpg" />
 </div>
 
 
@@ -511,6 +565,33 @@ magnet:?xt=urn:btih:FE1A9A5D4911CFC379814C1DCB0AD94A27F94BA6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428822   (178148) от 04.12.2020
+
+Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (4:03)
+02. New Beginning (7:40)
+03. Power to the Peaceful (3:39)
+04. Let the People Be Free (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE2950430C9A5D4C24A82CC0E121FE8C9C8C25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594482   (178159) от 01.12.2022
 
 Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -519,7 +600,7 @@ Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178159.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178159.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178161.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178163.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178163.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178169.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178169.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AB6D1FDE6A5A00D70BA7B947DA0590961A96174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594562   (178202) от 01.12.2022
-
-D. K. - Above The Clouds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey And The Blues (3:49)
-02. Housekeeping Blues (4:06)
-03. Stay A Little While (3:58)
-04. When I Die (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE57EB9838B9A1713304A6F74140629E7910F2FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594488   (178214) от 01.12.2022
-
-Bri Bradley - Covers at The Roost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Send Me Somone To Love (4:33)
-02. Chain of Fools (3:57)
-03. Crazy (4:39)
-04. Oh Darlin (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFF0D88C1973048E3443E1E2B69DE2CA4E27C8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666835   (178436) от 06.10.2023
-
-George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah! [2:56]
-02. Undecided [2:36]
-03. Mood For Milt [2:47]
-04. Rap Your Troubles In Drums [2:54](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D4BD6B71D5DF2D156659ABA7CB9F0D5E017B4
 ```
 
 

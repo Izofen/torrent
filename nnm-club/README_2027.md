@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53067.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5B9752F01CF6D828695E4F7FB7E27C250159ED5B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop 2024 25.9.1.626 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53069.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stepik, Артем Егоров | Продвинутый python: заряди с
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53070.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0FAF5C5E592A15AB974455EC0DE011AE08FFF969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53071.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Tensei Shitara Dai Nana Ouji Datta no de, Kimamani Majutsu o Kiwamemasu / Я п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53072.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0445BBBD307E6836CD7D53F2154D596F01129916
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53073.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53074.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53075.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53076.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53077.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7B4AC68E3D1E58D8D62520E0D9867E602247F236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53078.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A5F29BD4A907398DF030BA52FB18DDEB1E8AFF7A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53079.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53080.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:1177FF3F077DBE5A551868310F886794B56EE7C6
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53081.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E5FB43F494C7FD825648AE667E58B7D06CAA8A82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53082.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ iFind Data Recovery 9.1.2.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53083.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7CD7BABFB8D609B28ED1A6F44A4362715347C3C1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53084.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:5398683490555D56B385725DB27624DAB307BDC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53085.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:5398683490555D56B385725DB27624DAB307BDC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53086.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Tablacus Explorer 24.6.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53087.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:CAE5C58DC6CD6F2EF50E3882FB74EF0FA50628E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53088.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53089.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FCF2538A71D0A67B8C906BE357DE33C021223ECC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53090.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ A. Damodaran | Narrative and Numbers. The Value of Stories in Business (2017) [E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53091.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DDC10E0EF19BAAADD88720C523668E3830CB72DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53092.jpg" />
 </div>
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1087600   (144709) от 28.12.2016
+
+Тролль Гнет Ель - Карьялали (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1. Де-да (05:10)
+02. 2. Карьяллтролль (05:12)
+03. 3. Медведь Йонне (04:30)
+04. 4. Самогонка (03:45)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272305   (144710) от 27.12.2018
+
+VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Divisional Phrase - Goner (Ruslan Device & Alex Byrka Radio Edit)
+02.Metta & Glyde - Secret Garden (Radio Edit)
+03.Metta & Glyde - I Wish You Would (Radio Edit)
+04.RYDEX - Fallen Drops (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D493F590F2BACE3AD9D6CEB131060E5B496E25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435399   (144712) от 28.12.2020
+
+JixiPix Aquarella 1.38 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aquarelle - прекрасный прозрачный и светлый художественный медиа-стиль. Посмотрите, как Aquarella превращает ваше изображение в единое целое с жидкими цветными лужами, плавно смешанными на бумаге, чтобы создать акварель со всеми тонкими деталями, характерными для традиционных акварельных материалов.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: JixiPix SoftwareПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637D8F33CCDF408018297BBE4B8B845D1789F340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272303   (144715) от 27.12.2018
+
+VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tycoos - 717 (Extended Mix)
+02. Paul Boyle - Believe (Extended Mix)
+03. Cris Grey - Parallel Dimension (Extended Mix)
+04. Ozo Effy & RYDEX - The Eridium (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA11143627058BFFC0C5F3306C71341D90EB2C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087453   (144716) от 28.12.2016
+
+VA - German Top 50 Official Dance Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Oliver Heldens Ft. Ida Corr - Good Life 3:09
+002.Martin Solveig Ft. Ina Wroldsen - Places 3:23
+003.EDX - High On You 3:00
+004.Robin Schulz & David Guetta Ft. Cheat Codes - Shed A Light 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386632   (144717) от 21.11.2023
+
+Стефан Цвейг | Амок (2009) [MP3, Михаил Гульдан]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новелла «Амок» впервые вышедшая в 1922 году, была первым крупным прозаическим произведением австрийского писателя Стефана Цвейга. Главный герой – врач, живущий в отдаленной тропической деревушке. Внезапно он открывает в себе безудержную страсть к строгой, холодной женщине. В состоянии одержимости, которую герой постоянно сравнивает с распространенным в тех местах (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: Терра-Книжный клубПродолжительность: 02:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E333DDFFB56D8C4648FF23CB82BED1CB5D3CCE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348412   (144718) от 27.12.2019
 
 VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
@@ -6,7 +162,7 @@ VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144718.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144719.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ Cookie 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144720.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Marousse - Hara-Kiri (2003) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144721.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ magnet:?xt=urn:btih:27EF09B47033A0A3DEFAD223BB1AF99FD30217AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144722.jpg" />
 </div>
 
 
@@ -135,7 +291,7 @@ magnet:?xt=urn:btih:CF5A66C432E8755BAFE15EA72196B93760983154
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144723.jpg" />
 </div>
 
 
@@ -161,7 +317,7 @@ magnet:?xt=urn:btih:07AD1F2AAF3E91ADDA1B3BF23AAC0D0FAE5236BA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144725.jpg" />
 </div>
 
 
@@ -186,7 +342,7 @@ magnet:?xt=urn:btih:D685DA05F52C3B5DEA23D8338F6207B752FA2F72
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144726.jpg" />
 </div>
 
 
@@ -210,7 +366,7 @@ VA - Музыкальный плен Часть № 5 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144727.jpg" />
 </div>
 
 
@@ -237,7 +393,7 @@ Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144728.jpg" />
 </div>
 
 
@@ -264,7 +420,7 @@ VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144729.jpg" />
 </div>
 
 
@@ -291,7 +447,7 @@ magnet:?xt=urn:btih:8B2B0872DA296CEA37E5140A3B83E2D39EE22FCE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144730.jpg" />
 </div>
 
 
@@ -315,7 +471,7 @@ magnet:?xt=urn:btih:0137D494B7A0670653F720CBEBC49F2610CB0C8C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144731.jpg" />
 </div>
 
 
@@ -339,7 +495,7 @@ magnet:?xt=urn:btih:8B762F90C686E20FD0D50F4F0332DDC780A6B41C
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144732.jpg" />
 </div>
 
 
@@ -363,7 +519,7 @@ Comfy Partition Recovery 2.4 Home Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144734.jpg" />
 </div>
 
 
@@ -387,7 +543,7 @@ magnet:?xt=urn:btih:A826A566FF5D4BC5291D87B59069E0C5A5E6FD5D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144735.jpg" />
 </div>
 
 
@@ -411,7 +567,7 @@ magnet:?xt=urn:btih:E503078811F5671D0082FADB5E34E1BF945EECB7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144736.jpg" />
 </div>
 
 
@@ -435,7 +591,7 @@ Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144737.jpg" />
 </div>
 
 
@@ -462,7 +618,7 @@ BELOFF [dp] 2019.12.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144738.jpg" />
 </div>
 
 
@@ -489,7 +645,7 @@ magnet:?xt=urn:btih:84811CE39DE965EDA4E95E6CAD73914EF918D088
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144739.jpg" />
 </div>
 
 
@@ -501,156 +657,6 @@ magnet:?xt=urn:btih:84811CE39DE965EDA4E95E6CAD73914EF918D088
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D969853F01CC107708D250D7B26DB48CCCA234B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677414   (144741) от 21.11.2023
-
-Bzzzt (2023) [Multi] (1.001) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bzzzt - это захватывающий высокоточный платформер, который отправит вас в ретро-футуристическое приключение с очаровательным и мощным роботом ZX8000. Эта игра перенесет вас в эпоху игровой революции 80-х годов с пиксельной графикой, которая пробудит в вас ностальгию. Но не позволяйте очаровательной эстетике обмануть вас - эта игра полна испытаний, которые проверят (   Читать дальше...   )Тип издания: SceneРазработчик: KO.DLLЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Чешский, Польский, Французский и другиеЯзык интерфейса: Английский, Чешский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D248AD61ECF479A790305F3C89368491F1019A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435630   (144743) от 28.12.2020
-
-Yate 6.2.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB1A795431FACEE02E7D7030FBA8AB62D2B82D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519834   (144744) от 26.12.2021
-
-Погружаясь в даркнет / Down the Deep, Dark Web (2016) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование, которое выходит за рамки всего, что вы думали и знали о даркнете. Хакеры, шифропанки и криптоанархисты уведут нас все глубже в эту кроличью нору, проливая свет на дно глубокой темной паутины.Производство: Франция, Израиль, Upian.com, Zygote FilmsЖанр: документальный, исследованияРежиссер: Дуки Дрор, Цаши ШиффПеревод: двуголосый профессиональный (The Kitchen Russia)Субтитры: русскиеПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F477D788ABC6DE9EF1B2FE0947B2B1819363D1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348298   (144747) от 27.12.2019
-
-Майк Викинг | Искусство счастливых воспоминаний. Как создать и запомнить лучшие моменты (2019) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга основателя и директора Института исследования счастья в Копенгагене, автора бестселлеров «Hygge. Секрет датского счастья» и «Lykke. В поисках секретов самых счастливых людей». Помните ли вы свой первый поцелуй? А свой первый день в школе? Или как ощущаются на лице первые лучи весеннего солнца? А каким было самое вкусное блюдо, которое вы пробовали? Почему (   Читать дальше...   )Жанр: ПсихологияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC998447C74C204950ABF2A987ADE4579E5C97C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087745   (144748) от 28.12.2016
-
-VA - Tiesto - AFTR:HRS (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuits d'Etoiles & Noemie – Un Autre Monde feat. Noemie (AFTR:HRS Mixcut) (04:24)
-02. Niklas Ibach & Dan Reeder – The Blues feat. Dan Reeder (AFTR:HRS Mixcut) (02:23)
-03. Florian Paetzold – Easy (AFTR:HRS Mixcut) (04:12)
-04. Autograf – Heartbeat (Alex Schulz Remix) (AFTR:HRS Mixcut) (02:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30162082D2B0D0BE008A5335BED17AE962DCA4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678305   (144749) от 21.11.2023
-
-Приколы по-соседски / Prank Squad (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа подростков организовала отряд приколов, который разыгрывает всех соседей подряд. Окружающие так устали от бесконечных пранков, что когда одну из участниц отряда похищают, всем кажется, что это очередная шутка. Когда ребята понимают, что ждать помощи от полиции и родителей не приходится, они решают спасти подругу сами.Производство: США / Gemelli Films, New Era EntertainmentЖанр: семейный, комедияРежиссер: Кэндис КукАктеры: Стефани Блум, Джон Романски, Катрин Кэйн, Мэдисон Росс, Чарльз Кэйн, Джейсон Фредерик, Кенни Майерс, Моника Мэнникс, Керри Луиз, Эйдан СкоттПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A859E93A8F95C5E25174AC24B1057579E31D41A0
 ```
 
 

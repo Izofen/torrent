@@ -1,3 +1,78 @@
+###  Публикация: 1450188   (121810) от 21.01.2024
+
+D. White - 4 Albums, 67 Singles (2016-2023) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121810.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - One Wish
+2020 - How Are You?
+2022 - The Butterfly Effect
+2022 - Towards the SunЖанр: Disco, Pop, DanceПродолжительность: 14:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADABF5CEC67D47641BD677F938294F9C3E44FAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693670   (121811) от 21.01.2024
+
+A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео и Винсент — два парня, мотающих срок в хорошо охраняемой тюрьме. Еще вчера они не были даже знакомы, но сегодня у них просто не осталось иного выхода… и они решаются на побег. A Way Out — приключение исключительно для совместной игры, где вам предстоит примерить роль одного из двух заключенных, задумавших побег. Рывок на свободу быстро становится захватывающим (   Читать дальше...   )Тип издания: RepackРазработчик: HazelightЖанр: Adventure (CO-OP), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063BE8B69946F42D47A384B4E341223139445485
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678492   (121812) от 21.01.2024
+
+Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеттинг в Above Snakes показывает альтернативную вселенную Дикого Запада, где в 1883 году начинается восстание нежити. В одну из темных ночей, недалеко от Трупного ручья, происходит огненный дождь и падение ярко-зеленого метеорита. Из-за удара массивного космического объекта об поверхность земли, происходит загадочная метаморфоза с мертвецами и они начинают оживать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Square Glade GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693593   (121813) от 21.01.2024
 
 Убийцы цветочной луны / Killers of the Flower Moon (2023) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121813.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:5AD1106D4277F7BCEBE97FBD3D69F4222BF7E158
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121814.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:9E39CB33FDAD4944D0CF2F556D91B1EF16E0D888
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121815.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Microsoft убивает Outlook. Легендарный почтовый сер
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121816.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121816.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121817.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:B1C04383BF153AEBF66AC6B943CCDD17C5F7EAD9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121818.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ Scrutiny 12.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121819.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ Animarum - The Gaian Mind (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121820.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ Misery - Out Of My Hands (1994) Remaster, 2023, Eonian Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121821.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ magnet:?xt=urn:btih:3D51598640CFBD0676BCD948FB441386DFA7225A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121822.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ magnet:?xt=urn:btih:DAE43C07A2F84C09FA040A164404AB5001D232A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121823.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:860678B2CE75355F1DCEE93FE6856AF3060364E7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121824.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ n-Track Studio Suite 10.0.0 Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121825.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121826.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ n-Track Studio Suite 10.0.0 ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121827.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ Eddie James - Soft (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121828.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:DC9EF32A78B611D2CF61873B78CF8B6705B17C1F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121829.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121830.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:DD2ABFE039E9E34285E97C8EA6865E8BE176AD9C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121831.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ SQLPro Studio 2023.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121832.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121833.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ ASCO - Live @ Symphony of CAOS, Ascoli Piceno, Italy (2023-09-09) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121834.jpg" />
 </div>
 
 
@@ -568,7 +643,7 @@ magnet:?xt=urn:btih:FA3609D5B769BAAB42ED2EC93CA6CDECC37DD583
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121835.jpg" />
 </div>
 
 
@@ -579,81 +654,6 @@ magnet:?xt=urn:btih:FA3609D5B769BAAB42ED2EC93CA6CDECC37DD583
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206996C82A0800EC224EF089AED37AD4C9975183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693086   (121836) от 20.01.2024
-
-Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simulation (02:21)
-02 - Vikalpa (06:01)
-03 - Machina (07:33)
-04 - Bloodletting (06:20)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D3ED2FABDA5854CC55C5C1C6CBDACE5E85CA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693357   (121837) от 20.01.2024
-
-Typora for Mac 1.8.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typora дает вам безупречный опыт как читателя, так и писателя. Приложение удаляет окно предварительного просмотра, переключатель режимов, синтаксические символы исходного кода и все другие ненужные отвлекающие факторы, заменяя их предварительным просмотром в реальном времени, чтобы помочь вам сосредоточиться на самом контенте.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2021 TyporaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6116F2A942DC245B4861264B79394CE5FC815308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693319   (121838) от 20.01.2024
-
-JaSFTP for Mac 13.8[En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121838.jpg" />
-</div>
-
-
-###  Подробнее
-
-JaSFTP - автоматизированный протокол безопасной передачи файлов (SFTP). Безопасный протокол передачи файлов (SFTP), разработанный с учетом требований автоматизации, чтобы вам не приходилось тратить время на интерактивную передачу файлов. Для Windows, Mac OSX, Linux и других Unix-платформ.Тип издания: macOS SoftwareРелиз состоялся: 01.01.2024Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6C9D4DFF9FD3C29387489CFA39144EF8CB0549
 ```
 
 

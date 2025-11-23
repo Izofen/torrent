@@ -6,7 +6,7 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113794.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113868.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114031.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114827.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115667.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115686.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115696.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117034.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117041.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117075.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117965.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118236.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Echo Splinter - The Last Stand (2024) [FLAC|Lossless|WEB-DL|tracks] <post-hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118762.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Outside Agency - Machine Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119148.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120453.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120945.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122240.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122360.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122881.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123615.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123920.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124560.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124649.jpg" />
 </div>
 
 

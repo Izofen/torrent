@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DB31068AFCCF78890F2324B69D43506B5A2C2C50
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B86422951FB38B42914662E692B26903AFC1F285
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25257.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9A481A34B45D6B6F01FF11DB96D893EEBBD3E55A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25258.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FA0AAD76554CEBA119B5E4AAE55345B404A31272
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25259.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Photo AI Pro 3.5.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25260.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6D6CDBFA45E85F141CB3C1A6D508A6FE38AEBFF1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25261.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6D6CDBFA45E85F141CB3C1A6D508A6FE38AEBFF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25262.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:CF2143C5AD10FFECE9E8734CD2EAC0D6356E1CE6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25264.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C07D1EF845FF8F72C04C905632A652B759AFD1F4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25265.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:74B29BE5043370E30EB38A621A4C34C3E5807225
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25266.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2153A9E1EFBBF0F00665CDEAAE46160535EF380B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25267.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DD7054ACEDE11C93B1C6CA18BB26868744725238
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25268.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:621B44EACB10736080F6906761307DE3E2AE9F12
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25269.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9A4DBFE64E2BD85299ADD0026E57F49ACB60244C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25270.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:87BE899FC2684F2A4763AFBA4F5A0DB974144A45
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25271.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:141A4EFC692523895E19BBB9D30405534CD021D7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25272.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ KMS Tools Portable by Ratiborus 08.03.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25273.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:45CB7AC14EBD240885FA6532C65960F729286A89
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25274.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3EE18D2004D13887C6934DB4A9ACF5CE1E190A3E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25275.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:37E6CA270C1188EC75E1E43C1C1A9DC95B359AE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25276.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CorelDRAW Graphics Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25277.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ HEU KMS Activator 50.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25278.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B926DC39FDB78C4058BF36A59801C2BBF47E3342
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25279.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25280.jpg" />
 </div>
 
 

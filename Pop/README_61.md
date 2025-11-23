@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147335.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147386.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147414.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147454.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147457.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147468.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - I Love Retro Dance 90's (2010) [FLAC|Lossless|tracks + .cue] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147588.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:1DDD7D7071DBBAE6E3AAF8577A3C5A18253C5AEB
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147610.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147638.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147681.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147707.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Maxx - To The Maxximum (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Euro Hou
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147872.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:988AB4DBB046F65A8B70956C5B7340ED3B96FB47
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147963.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147976.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Adriano Celentano - 20 Greatest Hits (2005) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147978.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Glory of Love: Classic Love Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148098.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:B10166A282221458C683DD01C27FF9EDDD87F407
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148163.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ C.K.B. - New York City Women (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148222.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148566.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148709.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148738.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148751.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148754.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148885.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148910.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149071.jpg" />
 </div>
 
 

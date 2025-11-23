@@ -6,7 +6,7 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14348.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D5E49AAD4DC9BEABEC06611446D45502C90ACAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14349.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 10 [10.0.19045.5965], Version 22H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14350.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9E39CDA149C1AF29749A8880FF0E5B72C6EB8C81
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14351.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14352.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Dolby Reference Player 3.2.0 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14353.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14354.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:1E65BC402B0C6D6D12821F6DBE32E19DB2FCA57C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14355.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B2DE7D36D5101250E4A3D11A491F280766F9EC72
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14356.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CD80C768AC774EA7AC6D94B3532C07919B600D52
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14357.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14358.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:021463D76F541BFE90EF87E4F74799266D72E9C1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14359.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14360.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.524/dlc) Repack FitGirl [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14361.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14362.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:69FE0A0486CF0BA65F9647B461A3684014BA788D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14363.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:22402C7E753DD87CD3807DC7EAA7E6690F8CE375
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14364.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Indu
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14365.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14366.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14367.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14368.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:D6DDD369302BE97FAF91CC9285E131B018D293C6
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14369.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Windows Server 2025 LTSC [10.0.26100.4349], Version 24H2 (Updated June 2025) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14370.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AIMP 5.40.2683 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14371.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:E1404089AA433E972577DCA1AFFFB91FF4C21BFF
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Opera One 119.0.5497.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14373.jpg" />
 </div>
 
 

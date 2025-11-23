@@ -1,3 +1,82 @@
+###  Публикация: 1724129   (109330) от 18.05.2024
+
+Talking Heads - Stop Making Sense (1984) Deluxe Edition, 2023, Rhino - Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock, Art Punk, Dance Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Psycho Killer (Live) [2023 Remaster] (4:20)
+2. Heaven (Live) [2023 Remaster] (3:41)
+3. Thank You for Sending Me an Angel (Live) [2023 Remaster] (2:10)
+4. Found a Job (Live) [2023 Remaster] (3:15)(   Читать дальше...   )Жанр: Experimental Rock, Art Punk, Dance RockПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71A675BD280233F4425FBA83634463C38C70E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724204   (109331) от 18.05.2024
+
+Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
+2012 - Kobra And The Lotus
+2014 - High Priestess
+2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724055   (109332) от 18.05.2024
+
+Газета | Невыдуманные истории №18 (422) (май 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109332.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8882F6E573CE31FF491E95429EEB77B652ACE49C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724162   (109333) от 18.05.2024
 
 Те, которые прозрели / Янош вернется завтра (1930) WEBRip [H.264/720p]
@@ -6,7 +85,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109333.jpg" />
 </div>
 
 
@@ -31,7 +110,7 @@ magnet:?xt=urn:btih:50B230C9BFDDFA52C3AC0987EB3657A2284C6723
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109334.jpg" />
 </div>
 
 
@@ -56,7 +135,7 @@ magnet:?xt=urn:btih:F6919466B6066067715FC46E3A3259B63FF1ECD6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109335.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109336.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109337.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Makin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109338.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ Combichrist - Cmbcrst (2CD) (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109339.jpg" />
 </div>
 
 
@@ -186,7 +265,7 @@ A. G. Cook - Britpop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109340.jpg" />
 </div>
 
 
@@ -213,7 +292,7 @@ magnet:?xt=urn:btih:CDA1581F7075D4524771A6E56E7B549C76B4559E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109341.jpg" />
 </div>
 
 
@@ -239,7 +318,7 @@ Soul Button - Master Minds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109342.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Cocteau Twins - Treasure (1984) [FLAC 2.0|24/192|tracks|Vinyl-Rip|image + .cue] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109343.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ magnet:?xt=urn:btih:F88E39BD6C7A5C708763044BE006C15D8662A670
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109344.jpg" />
 </div>
 
 
@@ -317,7 +396,7 @@ Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačin
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109345.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ magnet:?xt=urn:btih:B970186E10B847F8466A7088BFA046D319B5EB83
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109346.jpg" />
 </div>
 
 
@@ -368,7 +447,7 @@ VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Makin
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109347.jpg" />
 </div>
 
 
@@ -395,7 +474,7 @@ magnet:?xt=urn:btih:AD83E7A78A510CEB192E5069DF5EF253A7832A4D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109348.jpg" />
 </div>
 
 
@@ -419,7 +498,7 @@ magnet:?xt=urn:btih:30A7A1199321BCB20030FF40FD12FAA1BD2C8217
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109349.jpg" />
 </div>
 
 
@@ -444,7 +523,7 @@ Halestorm - Live At Wembley (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109350.jpg" />
 </div>
 
 
@@ -471,7 +550,7 @@ magnet:?xt=urn:btih:86CF38BFAD5B46C774BC4DD649EC57AE998D0A3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109351.jpg" />
 </div>
 
 
@@ -495,7 +574,7 @@ Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109352.jpg" />
 </div>
 
 
@@ -522,7 +601,7 @@ Speedtest от Ookla 5.3.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109353.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [MP3|320 Kbps] <Alternative rock, Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109354.jpg" />
 </div>
 
 
@@ -573,7 +652,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [MP3|320 Kbps] <Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109355.jpg" />
 </div>
 
 
@@ -587,82 +666,6 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [MP3|320 Kbps] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738C74A6B9C5B3CFAC4A0289C0E20384C4342E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723929   (109356) от 18.05.2024
-
-Воображаемые друзья / IF (2024) Telecine [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беа заводит знакомства с воображаемыми друзьями, которых бросили их хозяева.Производство: США, Канада / Paramount Pictures, Maximum Effort, Platinum DunesЖанр: фэнтези, мультфильм, драма, комедия, семейныйРежиссер: Джон КрасинскиАктеры: Кэйли Флеминг, Райан Рейнольдс, Джон Красински, Фиона Шоу, Стив Карелл, Фиби Уоллер-Бридж, Луис Госсет мл., Алан С. Ким, Лиза Колон-Зайас, Бобби МойнаханПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:56Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723865   (109357) от 18.05.2024
-
-Halestorm - Live At Wembley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Miss the Misery (5:23)
-02. Love Bites (So Do I) (3:15)
-03. I Get Off (8:20)
-04. Wicked Ways (3:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8AB2D3360585434F88429D68EF83E5CA72D9D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724004   (109358) от 18.05.2024
-
-Эльмира Батаева | Прими себя и свою жизнь без остатка! (2024) [MP3, Ирина Булекова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найдите своё предназначение, обратите боль во внутреннюю силу и искренне полюбите себя вместе с эффективной книгой-тренингом!
-Способна ли боль стать толчком к переменам, а не погрузить человека во мрак, откуда нет выхода? Может ли расставание с некогда любимым человеком открыть новые дороги, ведущие к людям, которые нас ждут? В силах ли мы сохранить из детства лишь (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 09:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323AFA7F52F179E8C6369F94B820D815B2B316E6
 ```
 
 

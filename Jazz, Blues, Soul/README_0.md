@@ -6,7 +6,7 @@ Willie Phoenix - Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2740.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rick Keller - Heroes (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2741.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2749.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2750.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2753.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2755.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2756.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zoot Sims - Live In Philly (1973) 1998, Jazz Heritage [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2903.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Willie Phoenix - Happy Vibrations (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2910.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Michele Biondi - World Traveler (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2911.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Antonio Vergara - Vergara Street (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2914.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mikey Junior - Tribute to Aleck "Rice" Miller (Sonny Boy Williamson) (2025) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2915.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Monster Mike Welch - Keep Living Til I Die (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2919.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paris Kis - BLUES 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2928.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ RG1 Project - Bourbon & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2937.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kyle Culkin - Shades of Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2938.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Knightmare-Ds - Twisted Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2941.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7673E7EBDDC1DDD669CBB020AD77930FDBDECE61
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2965.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Anton Ryazanov Project - Collection 4 Albums (2024-2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3109.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Julie London - Five Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3432.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Connor Helm - They Call Me Copperhead (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3692.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kirk Fletcher - Keep On Pushing (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3705.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Denise Gordon & R&B Caravan - A Night in Vienna (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3706.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Erick Willis - Day & Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3708.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jesse Dayton, Ian Moore, Johnny Moeller - Texas Headhunters (2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3709.jpg" />
 </div>
 
 

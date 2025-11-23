@@ -1,3 +1,81 @@
+###  Публикация: 1705615   (113828) от 09.03.2024
+
+ВИА «Поющие сердца» - Поющие сердца (1975) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Зима любви. (Р.Майоров - И.Кохановский)
+02 - Где найти любовь. (В.Векштейн - И.Кохановский)
+03 - Всё, что было. (Я.Кукульский, Я.Славинский - русский текст И.Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3CC16E2E427D43CB4E5CEFA83924231691034A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705685   (113829) от 09.03.2024
+
+Военная тайна с Игорем Прокопенко (09.03.2024) WEB-DL [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113829.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F948F9F755DCB3C08575CFE490F02C3D7B109A2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705688   (113830) от 09.03.2024
+
+Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy Obsession: Jazzy Erotic Sensual (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sax for My Darling (4:34)
+02. Never Forget Our Love (3:40)
+03. Straight to His Arms (3:39)
+04. Brave Game (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C55E3D0FB857EED6B40B5F5C8C5121A425920D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705729   (113831) от 09.03.2024
 
 Photo Studio PRO v2.7.3.2372 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ Photo Studio PRO v2.7.3.2372 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113831.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:E72AE3E6C25B7B8446D6017929BF878826DB0621
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113832.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Jason Derulo - Nu King (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Swing, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113833.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:F50C517853177E121A15CD27B787109886EFF009
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113834.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Madder Mortem - Mercury (1999) [FLAC|Lossless|image + .cue] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113835.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Screen Wonders 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113836.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113837.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113838.jpg" />
 </div>
 
 
@@ -209,7 +287,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113839.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113840.jpg" />
 </div>
 
 
@@ -260,7 +338,7 @@ magnet:?xt=urn:btih:A216CE99AAA552E0CC0E2E19F0430BBAAA05A93B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113841.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113842.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ magnet:?xt=urn:btih:B8425EB7D76BA6A125BBA1666F9156708826F885
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113843.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ Rudiger (Rüdiger) Krause - Parallel Real (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113844.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113845.jpg" />
 </div>
 
 
@@ -388,7 +466,7 @@ V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113846.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113847.jpg" />
 </div>
 
 
@@ -442,7 +520,7 @@ magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113848.jpg" />
 </div>
 
 
@@ -469,7 +547,7 @@ Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113849.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113850.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113851.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113852.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113853.jpg" />
 </div>
 
 
@@ -587,85 +665,6 @@ magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2245E258F748109EAFD99CB1EE2789B53FB76CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705319   (113854) от 08.03.2024
-
-EagleFiler 1.9.13 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113854.jpg" />
-</div>
-
-
-###  Подробнее
-
-EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
-EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2002–2022 C-Command Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02C94C02A594FCAEFF5805AD8EA3AD7A459A798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705387   (113855) от 08.03.2024
-
-Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Земле) (1985) 1987 [FLAC 24/192|Lossless|tracks] <Jazz, Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Звуки над водой. Sound Over All Waters.
-02 - Колыбельная матушки Китихи маленьким тюленям. Lullaby From The Great Mother Whale For The Baby Seal Pups.
-03 - Песня Земле. Song For The Earth. (Джим Скотт, вокал)(   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705293   (113856) от 08.03.2024
-
-Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake It (3:13)
-02. Breakdown (3:11)
-03. Nothing Could Come Between Us (3:35)
-04. Leader of Men (3:36)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E45570109618A907C283EFDDB3527A2BB3E4FC6
 ```
 
 

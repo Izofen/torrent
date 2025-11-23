@@ -1,3 +1,155 @@
+###  Публикация: 1435023   (144806) от 27.12.2020
+
+Еще по одной / Druk (2020) WEB-DLRip [H.265] [10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заходят как-то в бар профессор истории, психолог, музыкант и физрук. И решают проверить научную теорию о том, что c самого рождения человек страдает от нехватки алкоголя в крови. Чтобы стать по-настоящему счастливым, нужно быть немного нетрезвым. Бокал вина утром, пинта пива в обед, стакан виски вечером. Казалось бы, что может пойти не так?Производство: Дания, Швеция, Нидерланды / Zentropa Entertainments, Film i Väst, Zentropa International SwedenЖанр: Драма, комедияРежиссер: Томас ВинтербергАктеры: Мадс Миккельсен, Томас Бо Ларсен, Магнус Милланг, Ларс Ранте, Мария Бонневи, Хелена Рейнгор Нойманн, Суссе Вольд, Магнус Шёруп, Сайлас Корнелиус Ван, Альберт Рудбек ЛиндхардтПеревод: Дублированный (iTunes), многоголосый профессиональный (AMS)Субтитры: Русские (SDH), английские (SDH)Продолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CEF48ED37ECE7B0F512FE3484901F7299DA2C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590099   (144807) от 16.12.2012
+
+Клубничный рай (4 серии из 4) (2012) DVB
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын городских интеллигентов и дочь городских «выходцев из деревни» подали заявление в ЗАГС. Родители молодых счастливы. Пока идут приготовления к свадьбе и ремонт в квартире, будущие родственники решают пожить некоторое время на даче, чтобы «притереться» и лучше узнать друг друга. Но, оказывается, жить под одной крышей далеко не так приятно, как казалось со стороны. Каждый день между сватами возникают конфликты «на пустом месте», и едва одну ссору удается погасить, тут же разгорается другая.
+Но все-таки настоящая любовь примиряет «слишком разных людей». Оказывается, обе семьи хотят видеть своих детей счастливыми, но каждый по-своему. И, наконец, на враждующие семейства сходит благодатьЖанр: мелодрама, комедияРежиссер: Сергей ГиргельАктеры: Борис Щербаков, Эвелина Сакуро, Ольга Тумайкина, Виктор Тереля, Денис Паршин, Анастасия Баланчук, Владимир Божков, Кирилл Новицкий, Виктор Богушевич, Анатолий Голуб, Константин Воронов, Ольга Бурлакова, Анастасия Боброва, Тамара Миронова, Наталья ОнищенкоПродолжительность: серия ~ 00:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087312   (144808) от 28.12.2016
+
+VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144808.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
+002.Evelina - Ei Filtterii 3:08
+003.Mans Zelmerlow - Primal 3:32
+004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272450   (144809) от 27.12.2018
+
+Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetario (07:28)
+ 02. Ultra Follow Up (07:29)
+ 03. Level On (06:25)
+ 04. The Love of Ocean (07:21)(   Читать дальше...   )Жанр: Techno, Tech House, Progressive HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E878B2AF0028F04704E524F5BD6046A015198CFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969930   (144810) от 28.12.2015
+
+Проекты - VideoHive - DESCENT [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568140C06D4D4A38AD8418DE8498592C00117181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348227   (144811) от 27.12.2019
+
+О.В. Узорова, Е.А. Нефедова | Новый год шагает по планете (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144811.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Новый год шагает по планете» - настоящая энциклопедия Нового года, из которой и взрослые и дети узнают массу новой информации о празднике и обычаях его встречи и проведения в странах мира. Книга ориентирована на детей в возрасте от 5 лет, которые могут читать ее самостоятельно или изучать совместно с родителями. И еще одно преимущество книги, помимо увлекательной (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F86267DEFEC76B948632C78E949DBDDEF455DAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519896   (144813) от 26.12.2021
 
 Фантазии для взрослых / Fantasies / Les fantasmes (2021) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
@@ -6,7 +158,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144813.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ SafeInCloud v20.8.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144814.jpg" />
 </div>
 
 
@@ -54,7 +206,7 @@ magnet:?xt=urn:btih:3A2F84F16D927B13BEC82BAD0917F0C4E676F0BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144815.jpg" />
 </div>
 
 
@@ -80,7 +232,7 @@ magnet:?xt=urn:btih:D06F20AEBD721D9434AA56D567AAA66B1EB0A0CD
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144817.jpg" />
 </div>
 
 
@@ -104,7 +256,7 @@ Postico 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144818.jpg" />
 </div>
 
 
@@ -131,7 +283,7 @@ FrontendMasters, Scott Moss | Build Full-Stack Apps from Scratch (2021) WEB-DL [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144819.jpg" />
 </div>
 
 
@@ -158,7 +310,7 @@ FrontendMasters, Scott Moss | Build Full-Stack Apps from Scratch (2021) WEB-DL [
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144820.jpg" />
 </div>
 
 
@@ -184,7 +336,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144821.jpg" />
 </div>
 
 
@@ -208,7 +360,7 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144823.jpg" />
 </div>
 
 
@@ -235,7 +387,7 @@ magnet:?xt=urn:btih:80AF234AE9664736B3559A07CA8E9C3C5B8C33EE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144824.jpg" />
 </div>
 
 
@@ -261,7 +413,7 @@ VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144825.jpg" />
 </div>
 
 
@@ -288,7 +440,7 @@ Librera PRO: Читалка для книг v8.4.25 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144826.jpg" />
 </div>
 
 
@@ -312,7 +464,7 @@ magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144827.jpg" />
 </div>
 
 
@@ -337,7 +489,7 @@ magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144829.jpg" />
 </div>
 
 
@@ -363,7 +515,7 @@ magnet:?xt=urn:btih:D2B7E6A93B49EF633529463AA09F5E51FB73EE8E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144830.jpg" />
 </div>
 
 
@@ -387,7 +539,7 @@ Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144831.jpg" />
 </div>
 
 
@@ -414,7 +566,7 @@ Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144832.jpg" />
 </div>
 
 
@@ -441,7 +593,7 @@ magnet:?xt=urn:btih:1221B4779CACE273632E38AFF9CB8F8C3BEA247E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144833.jpg" />
 </div>
 
 
@@ -465,7 +617,7 @@ magnet:?xt=urn:btih:39ACA88D2875F06027242277AF74B7DEA04EB543
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144834.jpg" />
 </div>
 
 
@@ -481,177 +633,25 @@ magnet:?xt=urn:btih:AAFBC4BEB0F37E52A2187C89B6AA950E4E9C9570
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520011   (144836) от 26.12.2021
+###  Публикация: 589989   (144835) от 16.12.2012
 
-Разлучённые души / Разлука / Separation (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мама маленькой Дженни требует развод и единоличную опеку над ребёнком — муж Джефф, в прошлом автор популярного комикса, уже давно сидит без идей и работы, а она сама вынуждена до ночи пропадать в офисе. Когда женщина внезапно гибнет под колёсами автомобиля, Дженни начинает странно себя вести, а Джефф подозревает, что в их доме активизировалось нечто потустороннее.Производство: США / Yale Productions, Post Film, RainMaker FilmsЖанр: Ужасы, драмаРежиссер: Уильям Брент БеллАктеры: Руперт Френд, Виолет Макгроу, Мадлен Брюэр, Мэми Гаммер, Брайан Кокс, Эрик Миллер, Саймон Куотерман, Мэнни Перес, Лорри Одом, Лайла ШривПеревод: Профессиональный (дублированный) (Кинопоиск HD)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2A9D26EC30D3042F8920DFEC3732CAADC2BA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969741   (144837) от 28.12.2015
-
-Роберт Джордан | Корона мечей (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вращается, крутится Колесо Времени...
-Со страхом ждет мир Последней Битвы – Битвы, в коей надлежит и предстоит Дракону Возрожденному схватиться с Темным – во всем его могуществе. Разобщены, охвачены смутой страны мира. Одна лишь надежда остается Ранду ал'Тору – любой ценой объединить людей, готовых вступить в кровавый междоусобный бой. И плывут, плывут из-за океанского (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 39:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE087023D2048B784BAB1F4489F286ED115B09DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272381   (144838) от 27.12.2018
-
-Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144838.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Romeo's Gone Now [6:30]
-02. Over the Rainbow [11:09]
-03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335187   (144839) от 21.11.2023
-
-Джордж Гордон Байрон | Манфред (Аудиоспектакль) (2009) [MP3, Михаил Поздняков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокородный граф – и анахорет-чернокнижник; властный сеньор – и наделенный таинственным знанием повелитель духов... Таков Манфред. Одинокий герой романтической философской драмы Байрона с неукротимой гордыней ощущает в себе «Прометееву искру» и не соглашается «купить» душевный покой...
-В музыкальном оформлении использована увертюра Роберта Шумана «Манфред»Жанр: Классика, поэзияИздательство: МедиаКнигаПродолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C6D87AE7CAD939302A88C6E5A90EB83895A771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434826   (144840) от 27.12.2020
-
-MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
+LeaderTask 7.6.0.0 [Multi/Rus] RePack & Portable by KGS
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144840.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_144835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед Вами обновленный 25 Декабря 2020 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+LeaderTask - это Планировщик + ПИМ + Календарь + Адресная книга + Ежедневник! LeaderTask - умный органайзер для Лидеров! Интеллектуальная система управления проектами, событиями, задачами, контактами, освободит вас от рутины и даст больше времени для творчества! Наш органайзер поможет вам избавиться от различных поглотителей времени, поможет вам увидеть четкую перспективу жизни, иметь подробный обзор дел, задач, вы будете ставить более высокие цели и достигать их. Планировать и выполнять. Думать и находить решения. Измерять и управлять любыми ресурсами вашей жизни! Языки: English, Русский, Francais, Italian, Spanish, Deutsche,Bulgarian, Greek, Serbian, Korean и Chinese, включая Help.Язык интерфейса: Multi/Rus
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE7C40E71A749818DBEA2BEA5BF6E2591E00E4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272264   (144842) от 27.12.2018
-
-The Yashin - Miles Away But Getting Closer (2008) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, Emo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Rule of Fight Club (3:39)
- 02. Heroes (Alive in Us Yet) (4:36)
- 03. Mr Hyde (3:43)
- 04. Dirty Slut (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, EmoПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EC346085EE0050812DA59492DD08224CE1BB67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519958   (144843) от 26.12.2021
-
-Гринч / The Grinch (2018) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Франция, Япония, США / Universal Pictures, Universal Animation Studios, Illumination EntertainmentЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Ярроу Чейни, Скотт МоужерПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 01:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AC7AEFC36F9AA5D4C1871532E67D22EE0B0E65
+нет
 ```
 
 

@@ -6,7 +6,7 @@ Pat O'Bryan and Friends - Boomer's Last Stand (2020) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166202.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166233.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166352.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166506.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166682.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Starlite Campbell Band - The Language of Curiosity (2021) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166689.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jazz At Lincoln Center Orchestra - The Abyssinian Mass (2016) 2CD, Blue Engine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166718.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166736.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bix Beiderbecke - 1924 - 1927 (1994) Classics [FLAC|Lossless|tracks + .cue] <Ear
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166767.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Marlon Jordan - The Undaunted (1993) Columbia [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166775.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Driving Licence & Country Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166791.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Women In Country (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166798.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Women in Country 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166805.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Uplifting Country Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166811.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Paul Candow - Mechanics of Manipulation (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166821.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ely Bruna & Papik - In Sweet Harmony (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166853.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Louise Phelan - Octavio Herrero - Azules (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166872.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Serge Chaloff - The Complete Serge Chaloff Sessions (1946 - 1956) 4CD, 1993, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166895.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Claudia Robbens - Make a Difference (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166899.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Rod Levitt - The Dynamic Sound Patterns of The Rod Levitt Orchestra (1963) 2003,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166902.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Die Blues Buam - Broken World (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166907.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Charlie Parker - The Complete Savoy & Dial Master Takes (1940-e) 3CD, 2002, Savo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166979.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Black Pumas - Chronicles of a Diamond (2023) [MP3|320 Kbps] <neo-soul, psychedel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167021.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167058.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Laid-Back Groovy Romantic Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167128.jpg" />
 </div>
 
 

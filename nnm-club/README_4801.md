@@ -1,3 +1,177 @@
+###  Публикация: 969242   (148818) от 26.12.2015
+
+Пол Долан | Счастье по расчету. Как управлять своей жизнью, чтобы быть счастливым каждый день (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все стремимся к счастью, но мало кто понимает, что на самом деле сделает нас счастливее. Может, надо сменить работу? Выйти замуж? Или развестись? Поехать в кругосветное путешествие? Или купить новую одежду? В погоне за счастьем мы пускаемся в безумные авантюры или скупаем горы ненужных вещей, но счастье все дальше ускользает от нас. Между тем к счастью зачастую (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C53265F8DFFA2552E457AACBCB72B9C0B8B2DF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519596   (148819) от 24.12.2021
+
+Diagrams 2.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D253DC02470B1372181DBDAE9FDBD19330BED4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434645   (148820) от 25.12.2020
+
+Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля до первого проекта (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для тех, кто впервые открыл редактор Unreal Engine, либо работает в нем недавно. Уроки познакомят вас с материалами, ландшафтом, работой с Blueprint и ассетами из маркета, освещением и многими другими необходимыми для создания проекта вещами.
+
+Распространенные вопросы по курсу:
+1. Что нужно уже уметь, чтобы пройти этот курс? Этот курс не (   Читать дальше...   )Производство: UdemyЖанр: Программирование, создание игрПродолжительность: 12:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA54C6527F9CE2B04242FE840994299751386CA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271508   (148822) от 24.12.2018
+
+Б. Кун (ред.) | Коммунистический Интернационал в документах 1919-1932 (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее издание вошли тезисы и решения шести конгрессов Коммунистического Интернационала, двенадцати пленумов ИККИ и одного расширенного заседания президиума Коминтерна, состоявшихся в период 1919—1932 гг. Все документы расположены по конгрессам и пленумам в хронологическом порядке. Исключение представляют лишь программа и устав Коминтерна, которые помещены отдельно (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8373757A3DFCAEC7AF6B4208210717B7D88C4C87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519614   (148823) от 24.12.2021
+
+Timer RH PRO  2.10 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © 2021 Pavlo LiashenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C6A55D1CEC984EF7506084DDA68D01DE4C681B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271609   (148824) от 24.12.2018
+
+Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Care
+02. Just Too Very
+03. Still Love You So
+04. Out Lee(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434545   (148826) от 25.12.2020
+
+Видеоредактор Movavi Clips v4.4.5 Premium [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание видео профессионального качества теперь не проблема, ведь с бесплатным мобильным приложением Movavi Clips так легко делать видеомонтаж: склеивать или обрезать видео, добавлять переходы, музыку, текст, стикеры на фото и видео и многое другое! Даже дополнительные эффекты не нужны, чтобы получить хороший результат. Теперь ваши фильмы и видеоролики о путешествиях, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 18 декабря 2020 г.Разработчик: MovaviПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F470F77AF3531891059E15245A460AD5419B75EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969130   (148827) от 26.12.2015
 
 В.В.Гуров | Архитектура микропроцессоров (2016) [PDF]
@@ -6,7 +180,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148827.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:4E035E7C6E52AB40AAB0D4D0650AE7D0B136DFB6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148829.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ mirethMusic 4.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148830.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148831.jpg" />
 </div>
 
 
@@ -105,7 +279,7 @@ magnet:?xt=urn:btih:354D6177B619A8D72482862CE5EBDA46C14A6BD6
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148832.jpg" />
 </div>
 
 
@@ -129,7 +303,7 @@ Slidepad 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148833.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ magnet:?xt=urn:btih:6274330DF170D3B6BA6A4AD7E3E2FA5F87B460DC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148834.jpg" />
 </div>
 
 
@@ -182,7 +356,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -212,7 +386,7 @@ Apeaksoft Android Toolkit 1.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148836.jpg" />
 </div>
 
 
@@ -236,7 +410,7 @@ magnet:?xt=urn:btih:D94D8D57E48A3F56D4D177FA07D79065945CE890
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148837.jpg" />
 </div>
 
 
@@ -261,7 +435,7 @@ ScreenFloat-Better Screenshots 1.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148838.jpg" />
 </div>
 
 
@@ -287,7 +461,7 @@ J.J.Johnson - The Columbia Albums Collection 1956-1961 (2017) 4CD, Enlightenment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148839.jpg" />
 </div>
 
 
@@ -314,7 +488,7 @@ Curio Professional 13.1.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148840.jpg" />
 </div>
 
 
@@ -340,7 +514,7 @@ magnet:?xt=urn:btih:2CE1E7C8AA4F432BD94FA46D15B9D7BB638639CE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148841.jpg" />
 </div>
 
 
@@ -365,7 +539,7 @@ magnet:?xt=urn:btih:CA510346204C0CD175F7179D906C64D37FB4E6EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148842.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148843.jpg" />
 </div>
 
 
@@ -416,7 +590,7 @@ magnet:?xt=urn:btih:C1BD25F1AFA5F99888827A30B3D1B55CFF32C694
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148844.jpg" />
 </div>
 
 
@@ -440,7 +614,7 @@ Next Launcher 3.01 [Программа] (Android 2.3.3+) /обновлено 24.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148845.jpg" />
 </div>
 
 
@@ -467,7 +641,7 @@ magnet:?xt=urn:btih:95C37030D8A1D9333ECB8D12504A5729A04221B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148846.jpg" />
 </div>
 
 
@@ -478,180 +652,6 @@ magnet:?xt=urn:btih:95C37030D8A1D9333ECB8D12504A5729A04221B1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30604187FDAD4438EA94B9D479893FF6C1780F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347609   (148847) от 24.12.2019
-
-Adguard 2.4.1.708 nightly (CL - 1.5.163) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD933B5BEC4B671178329CF389469833E0403C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086876   (148848) от 25.12.2016
-
-Под покровом ночи / Nocturnal Animals (2016) HDTVRip [H.264/1080p-LQ] [Line] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148848.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: США, Fade to Black Productions, Focus Features, Universal PicturesЖанр: Триллер, ДрамаРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (Line)Язык субтитров: КорейскийПродолжительность: 01:52:29Реклама: Присутствуют только
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678004   (148849) от 19.11.2023
-
-VA - Music News vol.317 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dina Vladi - Голубые Глаза (03:52)
- 002. 2 Chainz & Lil Wayne feat. Usher - Transparency (03:15)
- 003. Сергей Владимир - Anna Oanna (03:07)
- 004. Alexander Stewart - He Never Will (02:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B3D0D79F41461870FA2EAACE6D1826E20243E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049102   (148851) от 25.12.2016
-
-Diablo Dilogy (1996-2001) [Ru/Multi] (3.0.0.0/1.14d) Repack R.G.Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диабло, повелитель Ужаса, пал от руки бесстрашного героя в подземельях тристрамской церкви. Однако героя сегодня не узнать: он превратился в Темного Странника, который бродит по миру Санктуария, сея смерть и опустошение на своем пути. Вы — последняя надежда человечества. Именно вам надлежит сойтись в бою с прислужниками братьев Диабло и остановить Темного Странника (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard NorthЖанр: RPG (Rogue, Action), Hack & SlashЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4353632AA156E76848842DAA280557B5F20F41B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271589   (148852) от 24.12.2018
-
-Desaster - Stormbringer (1997) Reissued 2003 [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Stormbringer 			06:06
-02. 	The Swords will Never Sink 	03:35
-03. 	Sacrilege 			02:31
-04. 	Face of Darkness 		03:26(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8375E3C3A1D47954AC734F4CBBB76BF2D42B0D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347795   (148853) от 24.12.2019
-
-Мариам Петросян | Сказка про собаку, которая умела летать (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148853.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном маленьком и ничем не примечательном городке однажды произошло удивительное событие — там откуда ни возьмись появился щенок, который умел летать. Ведь у него были самые настоящие крылья, прозрачные, похожие на крылья гигантской стрекозы. В городок валом повалили туристы, чтобы посмотреть на такое чудо. Местные жители стали зарабатывать деньги, продавая сувениры (   Читать дальше...   )Жанр: Сказки для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA094FEA8D57C6CE883CB93CF8ED44D3EDF73DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969249   (148854) от 26.12.2015
-
-Проекты - Проект ProShow Producer - Царица праздника зимы [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний проект от нашей одноклубницы Hivatusya. Красочный и весёлый новогодний ролик. Проект отредактирован и пересохранён в PSP-6 в связи с переименованием файлов содержащих рекламу сторонних ресурсов. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. (   Читать дальше...   )Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7AC507A3B15095B51F800E02F335ECBF77344C
 ```
 
 

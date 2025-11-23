@@ -1,3 +1,149 @@
+###  Публикация: 739624   (143365) от 29.12.2013
+
+Курьерский особой важности (2013) HDTVRip [720p] [4 серии из 4]
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия, 1916 год. Идет Первая мировая война. Капитан русской контрразведки Василий Щепкин со своей группой занимается выявлением вражеской агентуры в столице Российской империи. В состав группы входят, кроме него, еще трое: ротмистр Гоглидзе, прапорщик Белкин и вольнонаемный сотрудник Диана Холодова. Из здания Русского Генерального штаба похищаются важные документы, (   Читать дальше...   )Жанр: БоевикРежиссер: Олег ФоминАктеры: Семен Шкаликов, Алексей Фаддеев, Гурам Баблишвили, Виктория Полторак, Константин Демидов, Александр Бобров, Владимир Яворский, Леонид Тимцуник, Вадим Астафьев, Михаил Водзуми, Павел Абдалов, Олег Фомин, Кирилл Козаков, Алик Гульханов, Ведат Меметов, Фатих Шафиков, Олег Доброван, Дмитрий Горевой, Юрий МаслакПродолжительность: 4х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2333310C9898861A055850463EA7D136C1D49472
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435517   (143366) от 28.12.2020
+
+Проекты - VideoHive - Gold Christmas Slideshow - 29742218 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143366.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Gold Christmas Slideshow» - это элегантный шаблон After Effects, с красивыми реальными кадрами 4K в Рождественском стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C597BAF47AFC91552EE606FB430D7DE4C11F2CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348581   (143367) от 28.12.2019
+
+Boom 2 v1.6.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom 2 является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение разработано только для OS X Yosemite и более поздних версий. Оно автоматически калибруется в соответствии с типом компьютера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2019Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5A1C1E3EE78C99501FF22A28DE77BAE4C0A6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678634   (143368) от 22.11.2023
+
+Котики / Cat Daddies (2022) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории о домашних питомцах не только смешные и веселые, они рассказывают об ответственности, любви и тепле, которые дарят друг другу пушистые «дети» и их «папы». В частности, зрители познакомятся с бездомным Дэвидом и его котиком Счастливчиком, пожарным котом Флеймом, любимцем профессионального каскадера Туддлсом, а также хвостатыми любимцами учителя, актера, инженера, (   Читать дальше...   )Производство: США | «Gray Hat Productions»Жанр: Документальный, фильм о животныхРежиссер: Май ХоанАктеры: Нэйтан Кен, Райан Робертсон, Дэвид Дерст, Уилл Цвайгарт, Джордан Лайд, Питер МаресПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE0CDFE3CBB01D1A543905A22473270ACADB46E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590378   (143369) от 17.12.2012
+
+Arty - Together We Are 026 (Maor Levi Guest Mix) (15.12.2012) [MP3|224 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143369.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: Trance, Progressive HouseПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2E8ED3C6B9EBA5B3FABFDFB2D5F8E155F487F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195375   (143371) от 28.12.2017
+
+Проекты - Проект ProShow Producer - Silver Frames [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект выполнен в PSP-9. Просто слайдшоу.
+Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC48455CF9349466FA9FCC225525E9A4685A0D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087927   (143372) от 29.12.2016
 
 Биатлон. Live. Новый сезон (22.12.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +152,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143372.jpg" />
 </div>
 
 
@@ -31,7 +177,7 @@ BioShock™ 2 Remastered (2016) [Multi] (1.0.122864) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143373.jpg" />
 </div>
 
 
@@ -55,7 +201,7 @@ Gilrs Wallpaper Collection (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143374.jpg" />
 </div>
 
 
@@ -79,7 +225,7 @@ magnet:?xt=urn:btih:A97AF54128AC64D6D9F36FA78D846CD5C8157D02
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143375.jpg" />
 </div>
 
 
@@ -104,7 +250,7 @@ magnet:?xt=urn:btih:EC6FB29F30AF7CAFF4C5D7F1FF1E86A3431BB752
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143376.jpg" />
 </div>
 
 
@@ -128,7 +274,7 @@ magnet:?xt=urn:btih:9EA9FC5FF7D65E6E81F7E5C678FBFDEDB478E43A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143377.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ magnet:?xt=urn:btih:F0C04125B29F1B89141F077FD2392E115BB93EC7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143380.jpg" />
 </div>
 
 
@@ -176,7 +322,7 @@ magnet:?xt=urn:btih:C3C1F2851B314F5F9062991182D1DD4B2263DB9E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143381.jpg" />
 </div>
 
 
@@ -200,7 +346,7 @@ magnet:?xt=urn:btih:C3C1F2851B314F5F9062991182D1DD4B2263DB9E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143382.jpg" />
 </div>
 
 
@@ -225,7 +371,7 @@ magnet:?xt=urn:btih:657D5C58E5776A850CC2F7F0793F1166B5F66557
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143383.jpg" />
 </div>
 
 
@@ -249,7 +395,7 @@ Sexy Girls Wallpapers (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143384.jpg" />
 </div>
 
 
@@ -273,7 +419,7 @@ Dark Mode for Safari 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143385.jpg" />
 </div>
 
 
@@ -297,7 +443,7 @@ Townscaper v1.0 (49525) (2021) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143386.jpg" />
 </div>
 
 
@@ -322,7 +468,7 @@ Soft Organizer Pro 7.51 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143387.jpg" />
 </div>
 
 
@@ -346,7 +492,7 @@ magnet:?xt=urn:btih:65B39030246975CB4B9E011B4759F88F6F8B6945
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143390.jpg" />
 </div>
 
 
@@ -370,7 +516,7 @@ magnet:?xt=urn:btih:D32421E4586E11B313E98F0CFF6C6099FC199B21
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143391.jpg" />
 </div>
 
 
@@ -395,7 +541,7 @@ magnet:?xt=urn:btih:6805E4B6334419EDC84B14FA692FD858CD97B899
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143392.jpg" />
 </div>
 
 
@@ -420,7 +566,7 @@ magnet:?xt=urn:btih:A4145E38C4358BD35CE526B64C81ABA3DF9982F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143393.jpg" />
 </div>
 
 
@@ -444,7 +590,7 @@ magnet:?xt=urn:btih:49E16A30390ECEFB9A0D3F78F80168AAF1104FEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143394.jpg" />
 </div>
 
 
@@ -468,7 +614,7 @@ magnet:?xt=urn:btih:F5B3BCD93B571124AC63672734D58124B24061F3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143395.jpg" />
 </div>
 
 
@@ -481,151 +627,6 @@ magnet:?xt=urn:btih:F5B3BCD93B571124AC63672734D58124B24061F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6903AFBF5FEF89337921B9338523584A228E6D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195399   (143396) от 28.12.2017
-
-Дем Михайлов | Господство кланов (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143396.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Господство кланов» – первая книга одноимённого цикла по «Миру Вальдиры». Главный герой Ростислав Грохотов работает в частной компании, а всё свободное время проводит, погружаясь в виртуальную реальность – игровое пространство мира Вальдиры. Виртуальные приключения кажутся герою гораздо интереснее реальной повседневности. Меж тем фирма терпит банкротство, и Ростислав (   Читать дальше...   )Жанр: Боевая фантастика, боевое фэнтези, LitRPGПродолжительность: 10:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9921C4B58FFB1DDCD9524A08741A1FA28B57C4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589431   (143397) от 17.12.2012
-
-Erik De Koning Mix - Greece 2000 (2008) [FLAC|Lossless]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Drives - Greece 2000 (Erik De Koning Remix) [07:25]Жанр: TranceПродолжительность: 00:07:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272168   (143398) от 27.12.2018
-
-Wondershare Recoverit 7.4.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (был Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BC05BA66B93DD3DC4AE950EE166D957AC4080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195048   (143400) от 28.12.2017
-
-AIMP 4.50 Build 2058 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143400.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0921E00B5D02539BD1699AE500769172DDB69936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678671   (143401) от 22.11.2023
-
-Прокол / Blow Out (1981) BDRip [H.264/720p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда звукорежиссёр Джек записывал звуковые эффекты для нового фильма, он стал свидетелем падения в реку потерявшего управление автомобиля и спас из затонувшей машины девушку по имени Салли. Ехавший с ней мужчина погиб. Джек тщетно пытается убедить полицию, что одновременно со звуком лопнувшей покрышки слышал звук выстрела. Помощник погибшего, оказавшегося известным (   Читать дальше...   )Производство: США, Filmways PicturesЖанр: драма, криминал, детектив, триллерРежиссер: Брайан Де ПальмаАктеры: Джон Траволта, Нэнси Аллен, Джон Литгоу, Дэннис Франц, Питер Бойден, Курт Мэй, Джон Акино, Джон МакМартин, Дебора Эвертон, Дж. Патрик МакНамара, Мисси Кливлэнд, Роджер Уилсон, Лори-Нэн Энглер, Синди Мэнион, Мисси О’ШиПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163039D515B26FC4643021CA25A3D7CD5AD85F12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520200   (143402) от 27.12.2021
-
-WizTree 4.07 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143402.jpg" />
-</div>
-
-
-###  Подробнее
-
-WizTree - небольшая и полезная утилита для определения файлов и папок, которые занимают много пространства на жестком диске. Особенностью данного приложения является его высокая производительность анализа дискового пространства благодаря прямому взаимодействию с главной файловой таблицей, которая содержит подробную информацию о содержимом носителя.Интерфейс программы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D1357A968C4F8376386FD04243F9203513FF09
 ```
 
 

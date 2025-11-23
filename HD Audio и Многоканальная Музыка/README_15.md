@@ -6,7 +6,7 @@ Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11294.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11695.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11713.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11715.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11817.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jethro Tull - Still Living In The Past (1970-1971) Reissue, Remastered, Remix, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11909.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Steve Hackett - The Lamb Stands Up Live At The Royal Albert Hall (2024)(2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11911.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Double Vision - Double Vision (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11916.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eternal Idol - Behind A Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11919.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Front Row Warriors - Running Out Of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11920.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Madhouse - Plead The Fifth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11921.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stygian Fair - The Hidden Realm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11924.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chris Rea - New Light Through Old Windows (1988) Reissue, Remastered, 2025, Rhin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11932.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Laguna - The Ghost Of Katrina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11942.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ozzy Osbourne - Night Terrors (2024) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12033.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12047.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12066.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12111.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12118.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12236.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12418.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Sel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12438.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12519.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12546.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12565.jpg" />
 </div>
 
 

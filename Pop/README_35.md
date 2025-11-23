@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EA5134EACC5F9F8CD3A07E2CCD8E38213AA8D8A9
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103359.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:79E48449CCCC0DB1BB382913064F4E5AA8E4DC37
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103360.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:46C0EE7CEEDFEB4BB1C1860A69A784E6C2C34E94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103361.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:12443CCF70FEB8BD1C0EC607157D466A815CB32D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103374.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A161875E72C93F5E846C211419EBB5A8727BAF22
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103428.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bounce Enforcerz vs. DJ Oskar - Mr. Vain (2020) [FLAC|Lossless|tracks] <Scouse H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103545.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103564.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Pri
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103689.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103695.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103758.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Alison Moyet (Ex. Yazoo) - Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, SynthP
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103833.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Army Of Lovers - Massive Luxury Overdose  (1991) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103841.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104018.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104035.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104137.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104141.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104168.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - DJ Hits Of June'97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104177.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104180.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - DJ Hits Of October 1997 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104186.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - DJ Hits Vol. 5100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104246.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Jhene Aiko - Souled Out (2014) 10th Anniversary Edition, 2024, Def Jam Recording
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104270.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - DJ Hits Vol. 1000 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104331.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Barock Disco Band - Disco Classical Fever (1979) LP [MP3|320 Kbps] <Funk Soul, C
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104347.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104354.jpg" />
 </div>
 
 

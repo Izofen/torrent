@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83547.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Tie Deluxe - лучшая программа по завязыванию гал�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83549.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sothink SWF Easy 6.6.546 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83551.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Sothink SWF Easy - легкая в использовании программа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83555.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:1F5DCDBEE6769661511906ED96E5837D9B614400
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83557.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:1F5DCDBEE6769661511906ED96E5837D9B614400
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83562.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Counter-Strike: Source [Ru/Multi11] (RePack/34) 2004 | PyCc-TeaM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83570.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:C1A2A5C4B51583B3938AD188EA2D9884801AEBBD
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83571.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:C1A2A5C4B51583B3938AD188EA2D9884801AEBBD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83575.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Windows Live Essentials 2011 15.4.3555.308 (Offline-Installer) [Русский/�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83578.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ SkyMonk 1.71 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83582.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sony Picture Motion Browser update to 5.8 5.8.01 [русский, английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83584.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83598.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83601.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83604.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83605.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:34572B5350F23BA6EA131693EA50ECCFC4143DC6
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83610.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:52B9283C62302C6B6B3D689249DFEF30D1BC3D2A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83613.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A8285EE5F90BC3343818B8DF61A7B512A86378F1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83623.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A8285EE5F90BC3343818B8DF61A7B512A86378F1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83624.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Goa Power: Finest Full On & Trance Selection (2011) [MP3|320 кб/с]<Psytr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83627.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:66D35FE287D413E2D7AFD972C3E6219B92FBBECE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83634.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:9716A84AE0980B111F7A2A714F94940F4F24BF69
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83638.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mozilla Firefox 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83648.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83661.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83679.jpg" />
 </div>
 
 

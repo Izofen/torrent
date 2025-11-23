@@ -1,3 +1,180 @@
+###  Публикация: 1597498   (165984) от 15.12.2022
+
+Рекс Стаут | Ниро Вульф (Книга 49). Если бы смерть спала (2022) [MP3, Игорь Тарадайкин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниро Вулф, страстный коллекционер орхидей, большой гурман, любитель пива и великий сыщик, практически никогда не выходит из дому. Все преступления он распутывает на основе тех фактов, которые собирает Арчи Гудвин, его обаятельный, ироничный помощник с отличной памятью.
+Мультимиллионер Отис Джаррелл уверен, что его невестка продает секреты компании конкурентам, и, (   Читать дальше...   )Жанр: Классические детективыПродолжительность: 07:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0495C3ED014FB7F3EDB317460BDD50813632E690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345602   (165985) от 15.12.2019
+
+Код 8 / Code 8 (2019) WEB-DL [H.264/720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF9A141E1B6F0E3FE529609B457D19FEB937EF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345314   (165987) от 15.12.2019
+
+The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1979 году Адам, криптоаналитик, работающий на ЦРУ, переезжает из Бостона в загородный домик вместе со своей женой Эммой. Кураторы сомневаются, что там он будет в безопасности, тем не мене Адам считает, что расшифровать военный код ему удастся лишь находясь в тишине на природе. От его работы может зависеть исход Холодной войны. К сожалению, отыскать спокойствие (   Читать дальше...   )Тип издания: RepackРазработчик: Illusion Ray StudioЖанр: Adventure, Action (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B69BB2A1F2347C3306D61B25CA6807C234DA31A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597549   (165988) от 15.12.2022
+
+Till Bronner - Christmas (2021) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Contemporary Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Till Brönner is a German trumpeter born in Viersen, Germany, and raised in Rome, Italy. Brönner’s early musical life was consumed by the sounds of Louis Armstrong and Charlie Parker: “Hearing Bebop for the first time, Charlie Parker; that set the whole thing off for me. I was 13 years old, and it was an almost erotic sensation. I thought that it was indecent. (   Читать дальше...   )01. Jesus to a Child (3:38)
+02. Stille Nacht (4:06)
+03. It's Beginning to Look a Lot Like Christmas (4:25)
+04. Christmas Time Is Here (feat. Max Mutzke) (3:40)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, ChristmasПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68081EA7EC98D19D82C9C62BB7838947D2341F1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516525   (165989) от 11.12.2021
+
+Р. Дж. Баркер | «Дитя приливов» Книга 1. Костяные корабли (2021) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Сотню Островов, где идёт бесконечная война. Никто на огромном архипелаге уже не помнит, из-за чего она началась, но все знают, что только сильный флот может привести к победе. И это знание ещё больше разжигает боевые действия.
+
+В мире «Костяных кораблей» суда строятся из костей гигантских морских драконов — местные породы дерева слишком хрупки (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 18:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F54D5375776E3DB0C9ADF71BC24384F163FFB52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673164   (165990) от 31.10.2023
+
+Иван Бояринцев | Основы строительства "Живой Бани" (2016) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165990.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Живая Баня" это авторское понятие Ивана Бояринцева, обобщающее основные принципы строительства русской парной бани (не путать с сауной).
+Основные достоинства "Живой Бани":
+- Строится на 50-100 лет;
+- Обеспечена автономной системой вентиляции без внешнего энергопотребления;(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABEB1236CBFFFE19D90441E3C1F4F42AF656DA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344476   (165991) от 15.12.2019
+
+К черту любовь / Down with Love (2003) BDRemux [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барбара Новак взрывает весь Нью-Йорк своим бестселлером «К чёрту любовь!» и предлагает всем женщинам стать такими же, как мужчины — делать карьеру, заниматься сексом без обязательств. Кэтчер Блок — прожигатель жизни и дон-жуан. Он решает проучить ярую феминистку и полностью развенчать созданный ею мир женщин, отказавшихся от любви.Производство: США, Германия, Fox 2000 Pictures, Regency Enterprises, Jinks/Cohen CompanyЖанр: Мелодрама, комедия,Режиссер: Пейтон РидАктеры: Рене Зеллвегер, Эван МакГрегор, Сара Полсон, Дэвид Хайд Пирс, Рэйчел Дрэч, Джек Плотник, Тони Рэндалл, Джон Эйлуорд, Уоррен Мансон, Мэтт РоссПеревод: Дублированный, профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BAB0A8EB35C1FA20A874CE6BBB0CE287179EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516396   (165992) от 11.12.2021
 
 Кот / Le chat (1971) BDRemux [H.264/1080p]
@@ -6,7 +183,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165992.jpg" />
 </div>
 
 
@@ -32,7 +209,7 @@ magnet:?xt=urn:btih:7E6BF19907DE9447D59D7C6F4AEBF51B78175C3B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165993.jpg" />
 </div>
 
 
@@ -56,7 +233,7 @@ magnet:?xt=urn:btih:4EF8B9CD36454CCA0C761709D05F6F884A987841
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165994.jpg" />
 </div>
 
 
@@ -80,7 +257,7 @@ Rozen Maiden: Traumend + Ouverture| Девы Розена: Сновидение 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165995.jpg" />
 </div>
 
 
@@ -106,7 +283,7 @@ magnet:?xt=urn:btih:14FA1DFDAAF34E82A74F105669B41ABB34B75CA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165996.jpg" />
 </div>
 
 
@@ -130,7 +307,7 @@ magnet:?xt=urn:btih:BF5265CB6F072584474C405AE8829E366F88D93A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165997.jpg" />
 </div>
 
 
@@ -154,7 +331,7 @@ magnet:?xt=urn:btih:DFDF47E4436F43F10EA7DF9CC15C9F99F3BBF48D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165998.jpg" />
 </div>
 
 
@@ -178,7 +355,7 @@ Psiphon 3 build 180 (31.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165999.jpg" />
 </div>
 
 
@@ -202,7 +379,7 @@ magnet:?xt=urn:btih:CEB55FB7D2D926E15059C139A08354ADB392EB39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166000.jpg" />
 </div>
 
 
@@ -226,7 +403,7 @@ magnet:?xt=urn:btih:D925A78F638C7A188CE10C75C94A6BFAF8D908E4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166001.jpg" />
 </div>
 
 
@@ -250,7 +427,7 @@ magnet:?xt=urn:btih:C3470A78BB0DB92B5D7327F6663693F04034C0F4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166002.jpg" />
 </div>
 
 
@@ -274,7 +451,7 @@ VA - December Electro House Exclusive Megamixes (2019) [MP3|320 Kbps] <House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166005.jpg" />
 </div>
 
 
@@ -301,7 +478,7 @@ magnet:?xt=urn:btih:B68E284895826398178D954DCF5259B3B33447B2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166006.jpg" />
 </div>
 
 
@@ -325,7 +502,7 @@ magnet:?xt=urn:btih:0A8C4006B88D83055650CD1591E140F5D99136E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166007.jpg" />
 </div>
 
 
@@ -349,7 +526,7 @@ magnet:?xt=urn:btih:0ED2678157A49454A6821E01899EB7397C5DE29F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166008.jpg" />
 </div>
 
 
@@ -373,7 +550,7 @@ MKVToolNix 80.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166009.jpg" />
 </div>
 
 
@@ -397,7 +574,7 @@ magnet:?xt=urn:btih:F3FDB7B0A31C1CFBE590EDBC3F7E38FA284E9406
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166010.jpg" />
 </div>
 
 
@@ -421,7 +598,7 @@ magnet:?xt=urn:btih:B9F93D5ED7951B2AB3D0C1649534AB68AF8A8B1B
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166011.jpg" />
 </div>
 
 
@@ -445,7 +622,7 @@ Mylene Farmer - Monkey Me (2012) 2xCD, Reissue, 2021, Stuffed Monkey [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166012.jpg" />
 </div>
 
 
@@ -459,180 +636,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516580   (166013) от 11.12.2021
-
-Формула-2. Сезон 2021. 8-й Этап. Гран-при Абу-Даби. Гонка 2 (11.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166013.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2021, суббота. 17:45 МСК. Этап 8, ОАЭ, Абу-Даби. Вторая гонка (23 круга)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC96B6E82C6CDAE3F7AE2A21A9524D034C7BD03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345034   (166014) от 15.12.2019
-
-Госдума отменяет штрафы за превышение «средней скорости»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_166014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госдума в первом чтении приняла законопроект, запрещающий штрафовать за превышение «средней скорости» движения, передает корреспондент ИА REGNUM 11 декабря.Исключается возможность привлечения водителей к ответственности в случае, если превышение установленной скорости движения транспортного средства зафиксировано камерами по принципу измерения средней скорости движения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597527   (166015) от 15.12.2022
-
-Kansas Featuring The London Symphony Orchestra - Always Never The Same (1998) Reissue, 2017, Vivid Sound [FLAC|Lossless|image + .cue] <Sympho Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Always Never the Same - это тринадцатый студийный альбом американской рок-группы Kansas, выпущенный 19 мая 1998 года. Записывался с сентября 1997-го по февраль 1998 года в трёх американских студиях (Southern Tracks, Electric Landlady, Tree Sound Studios - все три в Атланте) и в одной лондонской - Abbey Road (тут записывался Лондонский симфонический оркестр). Вышел (   Читать дальше...   )01. Eleanor Rigby
-02. Dust In The Wind
-03. Preamble
-04. Song For America(   Читать дальше...   )Жанр: Sympho Progressive RockПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D831331AB068ACB91547B4A50CE5933EBC8AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673223   (166016) от 31.10.2023
-
-Крематорий - КТ-40 (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дракон (Коктейль _Дракон_) [00:04:12]
-02 - Бар _Под дулом револьвера_ [00:03:42]
-03 - Грибы-мухоморы [00:03:12]
-04 - ЗПХ [00:02:57](   Читать дальше...   )Жанр: RockПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF28649D55A19F2D65681BF1A31A5C792EC6C05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516497   (166017) от 11.12.2021
-
-Формула-2. Сезон 2021. 8-й Этап. Гран-при Абу-Даби. Гонка (11.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166017.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2021, суббота. 11:20 МСК. Этап 8, ОАЭ, Абу-Даби. Гонка (23 круга)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350A944F459A87B4C3E61DB5BF21DF4373F078FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345567   (166018) от 15.12.2019
-
-Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashen – это кооперативный экшн-RPG c открытым миром, игра о страннике, скитающемся в поисках места, которое стало бы ему домом. Странствуя по громадному открытому миру Ashen, вы будете время от времени встречать других игроков – примерно так же, как и в пассивно-многопользовательском Journey. Только вам решать, как себя вести, – сообща сразиться со злом, пригласить (   Читать дальше...   )Тип издания: RepackРазработчик: A44Жанр: Приключение, Ролевая игра, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46797F44210A6E39E3EFF7980DE56A5BE9856892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597610   (166019) от 15.12.2022
-
-Джон МакКрэй | Червь (Книга 4). Раковина (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 03:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9D2E71411F3D0DDC8B8DFC73AE236D2A62A936
 ```
 
 

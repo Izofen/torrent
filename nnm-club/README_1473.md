@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38654.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38655.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:70A7E86A01EA4E1F8603C082AA2A121C13F0FC5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38656.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Topaz Photo AI 3.3.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38657.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/Multi] (Build 10887/dlc) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38658.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:AC61222CADD212FECD63C3B71F1B8BED1E5F9BB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38659.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38660.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4279196E0F19C499B617ED1E5676043A57742369
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38661.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:B7F094C42D79BC4960E6F7DE2753196D4D1E1499
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38662.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:27E76D9E75BABFAAF69B5307C6BEF2CC0CD25E8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38663.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:88ECA97BA22E17B897AE9F70F4D11E817AA601B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38664.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:3BD72DCB11CC1ACC26F451C34DE70A7D7B06A26A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38665.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:D8AA57BCFAACEDA572D63720BC6CE35B6C470336
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38666.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D8AA57BCFAACEDA572D63720BC6CE35B6C470336
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38667.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ v2rayN 7.0.3 Portable Pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38668.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38669.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Windows Server 2025 LTSC [10.0.26100.1742], Version 24H2 - Оригинальн�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38670.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38671.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:064D824EB6C9F9DCC2E30F5462EB36D47E2F54BD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38672.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:D4826D91B601FA44D46C6F03E1190291F4457589
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38673.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:440755C7C4286CAC18D88589FE963EAF9F240F64
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38674.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38675.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:2D814A4704C894C6DD8CAC675A4BF6253A1B3CC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38676.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ GetWindowText 4.94 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61699.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61700.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Screen Studio for Mac ARM/iNTEL 2.22.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61701.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VueScan Pro 9.8.31 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61702.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:36B6C3B548454CAE3E032A27A452B5F4B5F8C689
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61703.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:416318C2452A6EDDF08C3D65BA027435D7DAF463
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61704.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Wise Registry Cleaner Pro 11.1.3.718 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61705.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8D7ADD1F99FA82943D486FAB3BB7FA7202978AB6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61706.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61707.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1C642BA9861F168E6617AF85C23E0627BA3AE3DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61708.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ActiveDock 2 for Mac v.2.601 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61709.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Money Pro - Personal Finance 2.10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61710.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Swinsian 3.0 Preview 15 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61711.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rectangle Pro 3.0.21 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61712.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AI Transcription 2.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61713.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:480023A018AE91A7953C2C77C5320BC5034F2320
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61714.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AOMEI Backupper Technician Plus 7.3.4 (21.03.2024) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61715.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9517B4131A30690780D7A14CB83EEE3235D1BF45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61716.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:065726AC9FC139F6F91DA4CEDC472868CD662017
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61717.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Office Installer & Office Installer+ 1.10 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61718.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4223405178A66B73F8CC4255F826734CB8F4BE41
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61719.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3CE5E5C234BC8B83EB4A0A25D30B8A8CBA4BA5CE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61720.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ AOMEI Backupper Pro 7.3.4 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61721.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ CrystalMark Retro 1.0.0 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61722.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:E4258CF2942E4126D8AB93E65EA7392876F2EB90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61723.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:E4258CF2942E4126D8AB93E65EA7392876F2EB90
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61724.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Telegram Desktop 1.2.6 RePack & Portable by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MultiTimer: МультиТаймер v1.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137684.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137697.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ reaConverter Pro 7.468 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137698.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Calibre 7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137708.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ XMind Pro 2023 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137728.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Armada Music - Armada Night Radio 001-085 (2014-2015) [MP3|128 кб/с]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137732.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Telegram Desktop 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137744.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ XYplorer 19.50.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137747.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Comedy Woman (31.12.2019) WEB-DLRip (сезон 9, выпуск 15)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137754.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:DFEBC29E74D51188D01BC886030F4B539D8E90C2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137758.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137772.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137778.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Trypogen 1.0 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137788.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:916FAAE168A1C7788B952718115AE1C7167C058F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137803.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:06285673298623E7B424E61F4C4627AA8C1E7725
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137814.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Reg Organizer 8.60 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137821.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note ~ Tokubetsu Hen | Lor
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137839.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:A0CC2A16137D52646CF0FCBDC1ECE4FC427D60F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137841.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Mozilla Thunderbird 45.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137848.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Plus Messenger (Telegram+) v10.2.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137852.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Reface v3.55.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137862.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wondershare Filmora 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137869.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Multi Commander Full Edition 9.5 Build 2570 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137879.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:31766E19C8825D1711BA9609041ABAA7F610B315
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137880.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:82865827A5BC690494CC934225CFFC90E3F0BE1C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137884.jpg" />
 </div>
 
 

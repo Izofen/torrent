@@ -6,7 +6,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16901.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FD9C8484219B756B07BDF287A97704D6CC3DC01F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16902.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D76AAF7D546C7D56E2631C3CA9316FE085AFB412
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16903.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16906.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Directory Opus 13.15.2 Beta [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16907.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FxSound 1.1.33.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16908.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:47643F04D88E69AAC81FBF499647C5954BEE0245
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16909.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F864CA08BFAC651E1642E4CBF9F34966DE19A005
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16910.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C693AEBB497E840A58155816D2C353445094ED36
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16911.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16912.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AOMEI Partition Assistant Technician Edition 10.8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16913.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16914.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16915.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16916.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16917.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16918.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Deliberalize - The Allure of Deceit (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16919.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Disembodiment - Spiral Crypts (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16920.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16921.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16922.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16923.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Democracy 4 (2020) [Ru/Multi] (1.67/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16924.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:5A7D8359B0E83FD0EA17447D576DFAA49DC520BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16925.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16926.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ The Killing Antidote (2023) [Ru/Multi] (0.5.3.2a) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16927.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16928.jpg" />
 </div>
 
 

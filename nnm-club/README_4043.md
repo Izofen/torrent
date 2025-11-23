@@ -1,3 +1,78 @@
+###  Публикация: 1689287   (124800) от 01.01.2024
+
+Ventusky: Прогноз погоды v30.3 Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.12.2023Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C677AB204DFA0FADB750E6AC0B68DEA713CCFBDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689278   (124801) от 01.01.2024
+
+Охотники на монстров / Monsterjaegerne / Monster Busters (2009) DVD9 [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дедушка 12-летнего Оливера любил рассказывать истории из своего прошлого о том, как он охотился на монстров, но внук не очень-то верил деду. Когда же родители Оливера резко меняются в своем поведении, мальчик вместе с младшим братом Лассе обнаруживает, что из подвала, где дед хранил все самое ценное, исчез разбуженный от долгой спячки грозный монстр. И именно этот (   Читать дальше...   )Производство: Дания / M&M ProductionsЖанр: семейныйРежиссер: Мартин ШмидтАктеры: Карл Уинтер, Токе Бьярке, Матиас Мандруп Ларсен, Сара Меринг, Lærke Janken, Петер Мюгинд, Метта Агнета Хорн, Кьельд Норгаард, Джошуа Берман, Роберт ХансенПеревод: одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, датскийСубтитры: русские, датские, финские, норвежские, шведские, английскиеПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2AF8CDBEDE99A2D93FE343E104F0AF61DAD245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689369   (124802) от 01.01.2024
+
+Оксана Авдеева | Марафон Погружение в цвет. Нейрографика с Оксаной Авдеевой (2021) HDRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марафон для тех, кто уже знаком с нейрографикой и проходил хотябы один полный курс
+
+–Как правильно выбрать цвет?
+–Что значит красный, желтый, оранжевый....?(   Читать дальше...   )Жанр: Саморазвитие, Психология, НейрографикаЯзык озвучки: РусскийПродолжительность: 05:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794D285EF02C86A91652D5701D730C7DEDC9CB93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689368   (124803) от 01.01.2024
 
 VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +81,7 @@ VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124803.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:4333B4E10C20F7E7B7B76CFA7D9BE970EC386AC3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124804.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ VA - Полигон Records. Лучшее 2023 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124805.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ magnet:?xt=urn:btih:E1EBD7719755D8580D0A3D7A96E2484343D37796
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124806.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ magnet:?xt=urn:btih:98848A48D18C521C8807979750F6A59D664C81E0
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124807.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ VA - Полный Отстой (2023) [MP3|320 Kbps] <Thrash, Metal, Hard>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124808.jpg" />
 </div>
 
 
@@ -163,7 +238,7 @@ magnet:?xt=urn:btih:30436F1F35297CC22E1BC36B88C2A0B06F1A3D16
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124809.jpg" />
 </div>
 
 
@@ -187,7 +262,7 @@ magnet:?xt=urn:btih:04FCE043EC5807B3DAD2F91F871A951ACC62F981
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124810.jpg" />
 </div>
 
 
@@ -211,7 +286,7 @@ magnet:?xt=urn:btih:FE18F606CC1A00C67797CB426F8645A107545E68
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124811.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:B1E991034FCD42AAA1E788311259D02DD4B0DEBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124812.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124813.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124814.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124815.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ magnet:?xt=urn:btih:A328C51436DAAEB0CE3216921726A49CF9D9F7F9
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124816.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ magnet:?xt=urn:btih:63871B977756FB6AB722342C5FD885D8C10073C8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124817.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ magnet:?xt=urn:btih:6F3ECB4F49421ECEB43F568493D1117034BD0C47
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124818.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -434,7 +509,7 @@ magnet:?xt=urn:btih:151C038C68AFF015AB3C9C8FF31C9AFD61684F43
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124820.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:BA258475D6BBB6192811C67D04F1FC96234107A0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124821.jpg" />
 </div>
 
 
@@ -485,7 +560,7 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124822.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ magnet:?xt=urn:btih:0100DD204C2960664A7DE89BF14BC39A59A93300
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124823.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ magnet:?xt=urn:btih:86282AC076656095BDEBC3B207EBB36D89D804A1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124824.jpg" />
 </div>
 
 
@@ -557,7 +632,7 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124825.jpg" />
 </div>
 
 
@@ -568,78 +643,6 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD43BFD2A627E544563F390B86445469C47189D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689373   (124826) от 01.01.2024
-
-Перекресток (1998) DVDRemux
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то, 20 лет назад, рок-группа «Дядя Алик» гремела на всю страну, а ее лидер по имени Алик (Леонид Ярмольник) купался в лучах славы. Теперь о них никто не вспоминает, и бывшие знаменитости выступают в переходах. Однажды Алик встречает своего старинного знакомого, и тот предлагает устроить ему бенефис в Америке, где можно заработать большие деньги. Правда, есть (   Читать дальше...   )Производство: Россия, Беларусь, СИВ, ОРТ ВидеоЖанр: Мелодрама, комедия, музыкальныйРежиссер: Дмитрий АстраханАктеры: Леонид Ярмольник, Анна Легчилова, Александр Ефремов (I), Ольга Самошина, Ольга Беляева (I), Геннадий Свирь, Виктория Ершова, Алексей Колокольцев, Олег Корчиков, Александр Коваленко, Леонид Клунный, Людмила Былинская, Евгений Альшиц, Людмила Мацкевич, Алексей ТуровичПродолжительность: 01:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7AB152DCA37317EFE002D7C50C057DFF5C9F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688446   (124827) от 01.01.2024
-
-Эрнест и Селестина: Новые приключения / Ernest et Celestine, le voyage en Charabie (2022) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрнест и Селестина - лучшие друзья. И пусть один из них медведь, а вторая - мышка, они всегда вместе шагают навстречу приключениям. На этот раз они отправляются в родной город Эрнеста - именно здесь обитают самые талантливые музыканты в мире. Однако по прибытии герои обнаруживают, что там уже много лет запрещена музыка. Вместе со своими новыми друзьями и таинственным (   Читать дальше...   )Производство: Франция, ЛюксембургЖанр: Мультфильм, приключения, семейный, экранизация, полнометражныйРежиссер: Жюльен Шен, Жан-Кристоф РожеАктеры: Ламбер Вильсон, Полин Брюннер, Мишель Леруссо, Селин Ронте, Леванах Соломон, Жан-Марк Паннетье, Кристоф Лемуан, Жорж Кодрон, Жан-Филипп Пюмартин, Шарлотта ЭннекенПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3449BF13AE1E40948BD54F2C38AA2FA66D6183D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689349   (124828) от 01.01.2024
-
-Большая вода / Golemata voda / The Great Water (2004) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый коммунист вспоминает перед смертью свое детство, проведенное в специальном лагере для сирот в послевоенной Югославии.Производство: Македония, Чехия, США, Германия / Artis 3, Castor Productions, Kaval Film, Lara Entertainment, World Circle FoundationЖанр: драма, военныйРежиссер: Иво ТрайковАктеры: Saso Kekenovski, Maja Stankovska, Митко Апостоловски, Верика Недеска, Ристо Гоговский, Николина Куяка, Мето Йовановски, Александр Рибак, Vladimir Svetiev, Петар МирчевскиПеревод: одноголосый любительский (den904)Язык озвучки: русский, английский, македонскийСубтитры: русские, английские, французскиеПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9102CBC019C9091B114A03DDCC42A28329C036
 ```
 
 

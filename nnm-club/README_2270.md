@@ -6,7 +6,7 @@ Zoner Photo Studio X 19.2403.2.533 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5D0E12D0D2B5BF0F2E0BB92A463C79F822C12E55
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59386.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59387.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ NetLimiter 5.3.9.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59388.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ WinSCP 6.3.3 Build 14916 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59389.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Firefox Browser 125.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59390.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:363D48B16DA7F5FE51550E05E7C6C6399212DD04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59391.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ NetLimiter 5.3.9.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59392.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C14F7B33191EC15E6827AD2E8666E805AD0E4646
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59393.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Firefox Browser ESR 115.10.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59394.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Broken Videos - Memories of Tomorrow (2024) [MP3|320 Kbps] <Synthwave, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59395.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:483F9A092C14A50484C3A67FCFA2A471C43DADB7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59396.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0E7C54D8EE4215B5E4802BD8035A23EF2DAE6139
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59397.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0EE0779D4115018B0B8542F5532BA79302FD67F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59398.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F40469BCB2FA7B7F044D297F978D1156644A8A8E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59399.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:09CBCBF7986CEAF12CCE635F2A2D8C077D94CD5D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59400.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Emerson, Lake & Powell - Complete Collection (1986, 2003, 2020) 3CD Remaster, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59401.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ StaxRip 2.38.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59402.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ HWiNFO 8.01 Build 5420 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59403.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7A470DDE06CB403598C7D887D5B45307CA863FB2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59404.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ NVIDIA GeForce Desktop Game Ready 552.22 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59405.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:D8E55EB828404880C5F76BFEB8ADA4BDF915BD28
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59406.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7C5EE2D88F527123AEFB0584A614A87BC61C9469
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59407.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Topaz Video AI 5.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59408.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59409.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BAFC663BEDC983FA50D122F38F09B7FDBB0C7543
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59410.jpg" />
 </div>
 
 

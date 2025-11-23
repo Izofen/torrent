@@ -1,3 +1,78 @@
+###  Публикация: 1640906   (247492) от 19.06.2023
+
+Р.В. Сеттер | Изучаем Java на примерах и задачах (+CD) (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247492.jpg" />
+</div>
+
+
+###  Подробнее
+
+озникновение языка Java приходится на драматичное время, когда бурно развивался Интернет и началась так называемая «война браузеров». Первоначально он предназначался для программирования бытовой техники, например холодильников, микроволновых печей, стиральных машин, электронных записных книжек, видеомагнитофонов и т. п.
+Программное обеспечение для бытовой электроники (   Читать дальше...   )Жанр: Компьютерная литература
+b]Формат:
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640222   (247506) от 18.06.2023
+
+Джордж Хайнеман | Алгоритмы. С примерами на Python (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда нужно, чтобы программа работала быстро и занимала поменьше памяти, профессионального программиста выручают знание алгоритмов и практика их применения. Эта книга - как раз про практику. Ее автор, Джордж Хайнеман, предлагает краткое, но четкое и последовательное описание основных алгоритмов, которые можно эффективно использовать в большинстве языков программирования. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640120   (247550) от 16.06.2023
+
+Джон Мэннинг, Пэрис Баттфилд-Эддисон | Head First. Изучаем Swift (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swift известен как язык разработки приложений, выбранный компанией Apple для iOS, iPadOS, macOS, watchOS и tvOS. Но этим его применение не ограничивается. Swift с открытым кодом набирает популярность как язык системного программирования и программирования на стороне сервера, его используют и в Linux, и в Windows. С чего же начать?
+«Head First. Изучаем Swift» охватывает (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е. МатвеевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640108   (247555) от 16.06.2023
 
 Дэвид Хеффельфингер | Java EE 7 и сервер приложений GlassFish 4 (+code) (2016) [PDF]
@@ -6,7 +81,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247555.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247555.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247565.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247614.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247614.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247616.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247616.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247680.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247680.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247708.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247708.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249573.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249573.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249922.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249922.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249927.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249927.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ Dane Hillard | Publishing Python Packages (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250220.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250220.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250300.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250300.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250418.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250418.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250423.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250423.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250427.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250427.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250611.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250611.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:DD38CC09B981B80B25F328DCAF97DB4ABF2B300B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250941.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251838.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251838.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251922.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251922.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251938.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251938.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251940.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251940.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251944.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251944.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251949.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251949.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252201.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252201.jpg" />
 </div>
 
 
@@ -560,82 +635,6 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633854   (252206) от 17.05.2023
-
-Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы начнете с изучения основ и внутренних компонентов Node.js, а затем узнаете, как разделить свой код на модули и пакеты. Далее вы познакомитесь с наиболее популярными менеджерами пакетов и их применением, а также узнаете, как использовать TypeScript и другие варианты JavaScript в Node.js. Знание того, какой инструмент когда использовать, имеет решающее значение, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246   (252211) от 16.05.2023
-
-Руководства и Книги. Часть 1 [RU]
-
->>След.
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю вашему вниманию 1 часть руководств и книг.101 Oracle Настройка производительности.pdf		39 609 737
-	Adobe Photoshop CS за 24 часа. Карла Роуз.pdf		46 349 026
-	AlexWebKnacKer.Bistro_i_legko.Hacking_i_antihaking.Zaschita_i_napadenie.pdf		44 439 218
-	Alpha_-_The.Complete.Idiot's.Guide.to.Digital.Photography.3rd.Edition.RUS.pdf		21 561 971(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633278   (252262) от 14.05.2023
-
-В.В. Кангин и др. | Разработка SCADA-систем (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны рекомендации по проектированию SCADA-системы с использованием среды визуального программирования Delphi. Приведен обзор существующих SCADA-систем с анализом принципов их работы. Рассмотрены возможности SCADA-системы как инструмента для просмотра тегов. Освещены вопросы организации распределенных систем управления с развитым диспетчерским уровнем.
-Для программистов, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 ```
 
 

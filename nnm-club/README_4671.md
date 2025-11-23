@@ -1,3 +1,153 @@
+###  Публикация: 1434548   (144775) от 27.12.2020
+
+Еще по одной / Druk (2020) WEB-DL [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заходят как-то в бар профессор истории, психолог, музыкант и физрук. И решают проверить научную теорию о том, что c самого рождения человек страдает от нехватки алкоголя в крови. Чтобы стать по-настоящему счастливым, нужно быть немного нетрезвым. Бокал вина утром, пинта пива в обед, стакан виски вечером. Казалось бы, что может пойти не так?Производство: Дания, Швеция, Нидерланды / Zentropa Entertainments, Film i Väst, Zentropa International SwedenЖанр: Драма, комедияРежиссер: Томас ВинтербергАктеры: Мадс Миккельсен, Томас Бо Ларсен, Магнус Милланг, Ларс Ранте, Мария Бонневи, Хелена Рейнгор Нойманн, Суссе Вольд, Магнус Шёруп, Сайлас Корнелиус Ван, Альберт Рудбек ЛиндхардтПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F9DC0AECCB63B721DA3AD5A4C4A02AB00A4F28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969882   (144776) от 28.12.2015
+
+Holes / Клад (2003) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стэнли арестован по ложному обвинению в краже кроссовок и отправлен в трудовой лагерь, расположенный в техасской пустыне. Воспитатели «закаляют характер» подростков странным наказанием. Ребята копают ямы в иссушенной земле, но не знают, что их на самом деле используют для раскопок таинственного клада. Однако Стэнли удается раскрыть загадочную связь между сокровищами (   Читать дальше...   )Производство: США / Chicago Pacific Entertainment, Phoenix Pictures, Walden Media, Walt Disney PicturesЖанр: Драма, Комедия, Приключения, ДетективРежиссер: Эндрю ДэвисАктеры: Сигурни Уивер, Джон Войт, Тим Блэйк Нельсон, Шайа ЛаБаф, Хлео Томас, Джэйк М. Смит, Байрон Коттон, Бренден Джеффресон, Мигель Кастро, Макс Кэш, Рома Маффиа, Генри УинклерПеревод: Дублированный, Двуголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF5CE2B133E07BD228B0866BECB9E9B945E7C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348390   (144777) от 27.12.2019
+
+Сергей Бакшеев | Цикл «Петля» [7 книг] (2016-2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144777.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В квартире бизнесмена Дмитрия Мальцева найден труп мужчины в домашнем халате, с проломленной головой. Рядом — жена Дмитрия Инна, вся в крови и на грани обморока. По словам соседей, супруги часто ссорились. Очередное убийство из ревности… Кажется, его вот-вот раскроют по горячим следам, а женщина даст признательные показания. Однако с каждой минутой дело становится (   Читать дальше...   )Жанр: ДетективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA3027396B2D68CCB2583C77918E05ACFA473D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272315   (144779) от 27.12.2018
+
+Andy Griggs - The Good Life (2008) [FLAC|Lossless|image + .cue] <Country, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tattoo Rose (3:17)
+02. What If It's Me (3:23)
+03. It's All About The Money (3:37)
+04. Tears And Time (4:05)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E09BB19099815DCD2EC1F71FD4A3D84139B3B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596437   (144780) от 21.11.2023
+
+Meditative Mind v2.96  [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобный клиент для доступа к обширного каталогу медитативной музыки с возможность скачивания оной. Красочный и понятный интерфейс позволит вам быстрее достичь слияния со своей душой. В каталоге предоставлено множество категорий для медитаций разного типа. Поддерживается функционал отключения воспроизводения по таймеру. Meditative Mind - лучшее музыкальное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.10.2023Разработчик: Meditative MindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087596   (144781) от 28.12.2016
+
+Кот-Баюн - Сильнее зла (2016) [FLAC|lossless|image + .cue] <Folk-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Was A Time (04:05)
+02. Prayer Before The Battle (02:08)
+03. Memory (03:20)
+04. On the Kulikov Field (02:48)(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482138   (144782) от 26.12.2021
 
 PowerRun v1.5 [Multi/Ru]
@@ -6,7 +156,7 @@ PowerRun v1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144782.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:AE0E67C4162471036BB7B2A2DF67CB31F182FA7C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144783.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144784.jpg" />
 </div>
 
 
@@ -81,7 +231,7 @@ magnet:?xt=urn:btih:C4E41C1575026D2BEADDE52AF3D9C3BC9AED860B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144785.jpg" />
 </div>
 
 
@@ -105,7 +255,7 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144786.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ magnet:?xt=urn:btih:4D6DDC7ED32D8F80249038E233C5F2F57E7A2001
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144787.jpg" />
 </div>
 
 
@@ -153,7 +303,7 @@ magnet:?xt=urn:btih:97D4F32FD61EEADA89E02E5EEBEB6395658AE9D2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144788.jpg" />
 </div>
 
 
@@ -177,7 +327,7 @@ Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144790.jpg" />
 </div>
 
 
@@ -204,7 +354,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0upd4/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144791.jpg" />
 </div>
 
 
@@ -228,7 +378,7 @@ Xliff Editor 2.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144792.jpg" />
 </div>
 
 
@@ -254,7 +404,7 @@ magnet:?xt=urn:btih:86CD9E8C9204A235799FDCD8D93A841DD754F14C
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144793.jpg" />
 </div>
 
 
@@ -279,7 +429,7 @@ magnet:?xt=urn:btih:1156A1239F1E8066E93C6FEFFFD410FEE9B984B1
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144795.jpg" />
 </div>
 
 
@@ -303,7 +453,7 @@ magnet:?xt=urn:btih:9931B5638A45A1E4A39D1131B5147BAB9F57F92F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144796.jpg" />
 </div>
 
 
@@ -327,7 +477,7 @@ VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144797.jpg" />
 </div>
 
 
@@ -354,7 +504,7 @@ magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144798.jpg" />
 </div>
 
 
@@ -378,7 +528,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144800.jpg" />
 </div>
 
 
@@ -405,7 +555,7 @@ magnet:?xt=urn:btih:74AF5C46C2805C32070500B7DA7676A284ECB5A8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144801.jpg" />
 </div>
 
 
@@ -429,7 +579,7 @@ magnet:?xt=urn:btih:5444B54BB0099C6CB0AB6A6115E684531949ACEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144802.jpg" />
 </div>
 
 
@@ -454,7 +604,7 @@ magnet:?xt=urn:btih:747DFB90B1B336D19A707282E460ECE1D11F484E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144804.jpg" />
 </div>
 
 
@@ -479,7 +629,7 @@ magnet:?xt=urn:btih:E9BAC451CD07ECE78D253B010C5A7D08C1F98F76
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144805.jpg" />
 </div>
 
 
@@ -493,158 +643,6 @@ magnet:?xt=urn:btih:E9BAC451CD07ECE78D253B010C5A7D08C1F98F76
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435023   (144806) от 27.12.2020
-
-Еще по одной / Druk (2020) WEB-DLRip [H.265] [10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заходят как-то в бар профессор истории, психолог, музыкант и физрук. И решают проверить научную теорию о том, что c самого рождения человек страдает от нехватки алкоголя в крови. Чтобы стать по-настоящему счастливым, нужно быть немного нетрезвым. Бокал вина утром, пинта пива в обед, стакан виски вечером. Казалось бы, что может пойти не так?Производство: Дания, Швеция, Нидерланды / Zentropa Entertainments, Film i Väst, Zentropa International SwedenЖанр: Драма, комедияРежиссер: Томас ВинтербергАктеры: Мадс Миккельсен, Томас Бо Ларсен, Магнус Милланг, Ларс Ранте, Мария Бонневи, Хелена Рейнгор Нойманн, Суссе Вольд, Магнус Шёруп, Сайлас Корнелиус Ван, Альберт Рудбек ЛиндхардтПеревод: Дублированный (iTunes), многоголосый профессиональный (AMS)Субтитры: Русские (SDH), английские (SDH)Продолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CEF48ED37ECE7B0F512FE3484901F7299DA2C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590099   (144807) от 16.12.2012
-
-Клубничный рай (4 серии из 4) (2012) DVB
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын городских интеллигентов и дочь городских «выходцев из деревни» подали заявление в ЗАГС. Родители молодых счастливы. Пока идут приготовления к свадьбе и ремонт в квартире, будущие родственники решают пожить некоторое время на даче, чтобы «притереться» и лучше узнать друг друга. Но, оказывается, жить под одной крышей далеко не так приятно, как казалось со стороны. Каждый день между сватами возникают конфликты «на пустом месте», и едва одну ссору удается погасить, тут же разгорается другая.
-Но все-таки настоящая любовь примиряет «слишком разных людей». Оказывается, обе семьи хотят видеть своих детей счастливыми, но каждый по-своему. И, наконец, на враждующие семейства сходит благодатьЖанр: мелодрама, комедияРежиссер: Сергей ГиргельАктеры: Борис Щербаков, Эвелина Сакуро, Ольга Тумайкина, Виктор Тереля, Денис Паршин, Анастасия Баланчук, Владимир Божков, Кирилл Новицкий, Виктор Богушевич, Анатолий Голуб, Константин Воронов, Ольга Бурлакова, Анастасия Боброва, Тамара Миронова, Наталья ОнищенкоПродолжительность: серия ~ 00:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087312   (144808) от 28.12.2016
-
-VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Evelina - Ei Filtterii 3:08
-003.Mans Zelmerlow - Primal 3:32
-004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272450   (144809) от 27.12.2018
-
-Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planetario (07:28)
- 02. Ultra Follow Up (07:29)
- 03. Level On (06:25)
- 04. The Love of Ocean (07:21)(   Читать дальше...   )Жанр: Techno, Tech House, Progressive HouseПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E878B2AF0028F04704E524F5BD6046A015198CFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969930   (144810) от 28.12.2015
-
-Проекты - VideoHive - DESCENT [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568140C06D4D4A38AD8418DE8498592C00117181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348227   (144811) от 27.12.2019
-
-О.В. Узорова, Е.А. Нефедова | Новый год шагает по планете (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144811.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Новый год шагает по планете» - настоящая энциклопедия Нового года, из которой и взрослые и дети узнают массу новой информации о празднике и обычаях его встречи и проведения в странах мира. Книга ориентирована на детей в возрасте от 5 лет, которые могут читать ее самостоятельно или изучать совместно с родителями. И еще одно преимущество книги, помимо увлекательной (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F86267DEFEC76B948632C78E949DBDDEF455DAB
 ```
 
 

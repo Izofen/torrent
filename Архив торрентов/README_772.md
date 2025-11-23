@@ -1,3 +1,75 @@
+###  Публикация: 1651641   (158778) от 12.11.2023
+
+Харли Квинн / Harley Quinn (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) NewStation  [AD]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: русские (сообщество UGN SUBZ Translators), английские, испанские, португальскиеПродолжительность: ~00:23:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449B1A7B9E2DF87F23E6FDBC551C952E44CC28F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600114   (158801) от 26.12.2022
+
+foobar2000 1.6.11 DarkOne + DUIFoon Portable by MC Web (04.12.2022) (Облегченный вариант сборки - без YouTube)  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158801.jpg" />
+</div>
+
+
+###  Подробнее
+
+foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: русский, украинский, белорусский, киргизский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65A689D3963BC8BEA24153E55D0AD2107397F5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600248   (158817) от 26.12.2022
+
+Maxon ZBrush 2022.0.6 (x64) RePack by OctaneS [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158817.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка (называемая пиксель) содержит информацию не только (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6B4BF67E47CAB76EC4D58367FC54DF9A815CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651642   (158827) от 12.11.2023
 
 Харли Квинн / Harley Quinn (2023) WEB-DLRip (сезон 4, серии 1-10 из 10) NewStation  [AD]
@@ -6,7 +78,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158827.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4972 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158831.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158843.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra (x86/x64) Standard [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158852.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ IObit Smart Defrag Pro 9.2.0.323 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158859.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Rainmeter 4.5.17 Build 3700 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158861.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ PotPlayer 221215 (1.7.21862) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158863.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Nitro PDF 14.17.2.29 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158864.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Melon VPN - Secure Proxy VPN 7.9.546 Mod By Derrin [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158869.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158897.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158922.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ RSS Guard 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158931.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ One Commander Pro 3.28.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158938.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158944.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ KORG - Wavestate Native 1.1.1 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158948.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ TweakNow WinSecret Plus! 4.9.14 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158951.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Radiant Photo 1.1.2.341 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158953.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Perfectly Clear WorkBench 4.6.0.2614 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158955.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Dynamic Wallpaper Engine 16.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158960.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158966.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Infuse PRO 7.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158968.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ n-Track Studio Suite 10.0.0.8209 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158979.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ MouseBoost pro for Mac 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158981.jpg" />
 </div>
 
 
@@ -555,79 +627,6 @@ MouseBoost pro for Mac 3.3.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62FE652120B99E628D7746433B3D655C732114B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600209   (158986) от 26.12.2022
-
-Wondershare UniConverter 14.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBF58C48B5F54531B37600BB9E0144C7679DA0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600281   (159000) от 26.12.2022
-
-Apeaksoft iPhone Transfer 2.0.60 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676233   (159007) от 12.11.2023
-
-OmniReader Pro for Mac 2.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159007.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04403E6DD5CE3E386E84658C842F765B54856C71
 ```
 
 

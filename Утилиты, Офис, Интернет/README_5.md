@@ -6,7 +6,7 @@ VueScan Pro 9.8.47 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3360.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Glary Utilities Pro 6.31.0.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AnyBurn 6.5 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ iTubeGo YouTube Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3377.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3383.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ AnyDesk 9.6.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3400.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AE84F23458042158D081B9AEA2D042AB098D1103
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3418.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Wise Force Deleter 1.5.7.59 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3651.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Auslogics Registry Defrag 15.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3743.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ priPrinter Professional 7.0.0.2608 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3753.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Balabolka 2.15.0.905 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3759.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3760.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3774.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NirLauncher Package 1.30.20 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3776.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Auslogics Windows Slimmer 5.1.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3803.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3805.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Telegram Desktop 6.1.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3931.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ RustDesk 1.4.2 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3949.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3960.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Auslogics File Recovery 12.1.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4166.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4174.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Auslogics Duplicate File Finder 11.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4179.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Auslogics SSD Optimizer 2.1.0.0 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4196.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Auslogics Windows Slimmer 5.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4205.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4227.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Auslogics BoostSpeed 14.1.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4278.jpg" />
 </div>
 
 

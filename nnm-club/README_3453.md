@@ -1,3 +1,82 @@
+###  Публикация: 1723561   (109460) от 16.05.2024
+
+Kris Baha - Cyber Body Music Vol.1 (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Shadows [00:05:58]
+02. Idorus Grid [00:05:38]
+03. Double Helix Overdrive [00:06:31]
+04. Hypercortex [00:04:51](   Читать дальше...   )Жанр: EBM, TechnoПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF016A4589666144D361E41B42CB4A30BCC1BD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723703   (109461) от 16.05.2024
+
+Враг на пути (1930) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Годы индустриализации и коллективизации. Однако враги внутри страны продолжают вести подрывную работу. В стане врагов — специалисты, выходцы из старой интеллигенции, саботирующие планы строительства, кулаки и подкулачники, уничтожающие колхозное добро.
+Безопасности СССР угрожают и внешние враги — капиталисты, покровительствующие белоэмигрантам. Воспитывая в своих (   Читать дальше...   )Производство: СССР / Государственный техникум кинематографии (ГТК)Жанр: агитфильм, драма, немое киноРежиссер: А. СинявскийАктеры: нет сведенийСубтитры: русские (интертитры)Продолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC5DEE2BDC5FA7926C36EC56F173A2130885E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723781   (109462) от 16.05.2024
+
+Ayreon - 01011001 - Live Beneath The Waves (2024) 2 x CD [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109462.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01 - March Of The Machines (Live) (02:46)
+ 02 - Age of Shadows (Live) (10:27)
+ 03 - Comatose (Live) (04:23)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 02:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18FA5FF4B5D7FF3186142BD10217C73706C44D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723504   (109463) от 16.05.2024
 
 Журнал | Садовод и огородник №9 (524) (май 2024) [PDF]
@@ -6,7 +85,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109463.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109464.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ VA - EDC Las Vegas 2024 (2024) [MP3|320 Kbps] <Trance, House, Melodic House & Te
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109465.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109466.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Waterfox Current G6.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109467.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ RJ TextEd 16.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109468.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109469.jpg" />
 </div>
 
 
@@ -183,7 +262,7 @@ magnet:?xt=urn:btih:8A93DEC880011A4BDCEE1F94681BD036502E5819
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109470.jpg" />
 </div>
 
 
@@ -210,7 +289,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Maximoff [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109471.jpg" />
 </div>
 
 
@@ -234,7 +313,7 @@ PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109472.jpg" />
 </div>
 
 
@@ -258,7 +337,7 @@ magnet:?xt=urn:btih:16EE3FEE85FBDDF44C8A1FDAB8DC553FF78FC67F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109473.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ Castle Rat - Into The Realm (2024) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109474.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ Planeta Vina - Космический Mусорг (2024) [MP3|320kbps] <Post-Gru
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109475.jpg" />
 </div>
 
 
@@ -339,7 +418,7 @@ magnet:?xt=urn:btih:41A3346F5062A7264B0BDB6749F6991FD4FDC16F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109476.jpg" />
 </div>
 
 
@@ -363,7 +442,7 @@ magnet:?xt=urn:btih:F977A93B6844F00F48A8CCF27FF85E00DAFA11E9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109477.jpg" />
 </div>
 
 
@@ -387,7 +466,7 @@ DesktopOK 11.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109478.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ magnet:?xt=urn:btih:4F97FAF172619E1DC59B7D0FBCE41932758043CC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109479.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ HomeBank 5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109480.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ Knif Audio & Plugin Alliance - Soma 1.3.1 VST, VST 3, AAX (x64) RePack by TCD [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109481.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ Vivaldi 6.7.3329.31 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109482.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ Retouch - Technocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109483.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ Google Chrome 125.0.6422.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109484.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ Smokie - Rock Away Your Teardrops (1996) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109485.jpg" />
 </div>
 
 
@@ -575,82 +654,6 @@ Smokie - Rock Away Your Teardrops (1996) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECFE6340CE224C9EB1B10CB52F933708CAF06F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723724   (109486) от 16.05.2024
-
-Клаус и Баррузу / Klaus and Barroso (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрязнув в долгах, румынский бармен Клаус придумывает, как раздобыть денег. Он на ночь сдаёт в аренду бар, не поставив хозяина в известность. В эту свою «хитрую» схему он втягивает и своего брата, добродушного вышибалу Баррузу. В арендованном баре они устраивают мальчишник для наивного юноши, собравшегося жениться на зрелой тётке. И, разумеется, попойка по случаю (   Читать дальше...   )Производство: Румыния / Bold Film Studio, Grupa B, Tangaj ProductionЖанр: комедияРежиссер: Cosmin Nedelcu, Адриан НиколаеАктеры: Cosmin Nedelcu, Адриан Николае, Шербан Павлу, Виктория Раилеану, Мадалина Край, Александру Ион, Чезар Анталь, Codrin Boldea, Влад Брумару, Vlad Dragulin и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:52Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BB2D4F75E13BA40579397803F04070DC9817EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723398   (109487) от 16.05.2024
-
-VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shympulz - Bionic Brain (Short Cut) (5:15)
-02. Dj Sheep & Luici Galconi - Feel the Same (Nightcore Remix) (2:27)
-03. Fantasy Project - Don't Know Why (C.Y.T. Nightcore Edit) (3:09)
-04. A19 - Beijing (4:24)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9D38C9B29DA13406752AC316B04868655E8D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723520   (109488) от 16.05.2024
-
-Wave Arts - FinalPlug 7 7.01 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109488.jpg" />
-</div>
-
-
-###  Подробнее
-
-FinalPlug сочетает в себе предварительный пиковый лимитер и систему измерения громкости ITU BS.1770.
-FinalPlug можно использовать в качестве инсерт-эффекта, обеспечивая ограничение усиления или максимизацию громкости, или его можно поместить в конец цепочки мастеринга, чтобы гарантировать, что ваш звук соответствует требованиям по громкости и истинной пиковой производительности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206BF2DB335944695D2389C753B262A80138AA53
 ```
 
 

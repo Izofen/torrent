@@ -6,7 +6,7 @@ ShareX 16.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63301.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OCCT 12.1.16 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63305.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DE71A86E1BB9138C2647995D7E1BA830458D3669
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63306.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63307.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63308.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ashampoo Driver Updater 1.6.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63313.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Maplesoft Maple 2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63314.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Capture One 23 Enterprise 16.3.7.1979 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63318.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WinRAR 7.00 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63319.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FxSound Pro 1.1.22.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63338.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CrossOver Linux 24.0.0 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63339.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) Portable by conservator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63353.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VMware Workstation 17 Pro 17.5.1-23298084 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63356.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4046 x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63359.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63365.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63367.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HiBit Uninstaller 3.1.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63374.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.7.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63378.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Music Collection 3.6.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63384.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Telegram Desktop 4.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63387.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Supermium 122.0.6261.85 Hotfix (R2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63396.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0309) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63397.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ OneCommander Pro 3.71.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63407.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ TrustViewer 2.11.2.5136 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63411.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Defender Remover Portable 12.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63435.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63442.jpg" />
 </div>
 
 

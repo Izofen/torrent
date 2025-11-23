@@ -1,3 +1,77 @@
+###  Публикация: 1689550   (124670) от 02.01.2024
+
+Святитель Иоанн Златоуст | Толкование на Евангелия от Матфея и Иоанна [3 тома] (2010) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Иоанн Златоуст – один из величайших отцов Вселенской Церкви. Он оставил нам огромное литературное и литургическое наследия. В своем изъяснении Священного Писания святитель показывал, как Библия может стать подлинной наставницей человека. Объясняя священные книги, он часто делал отступления на современные ему общественные и моральные темы, постоянно подчеркивая (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E7007AFFE1B4C1F2A2ECC47FE614BC7E5A7F46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689481   (124671) от 02.01.2024
+
+Непонятый / Misunderstood (1984) HDTV [H.264/1080i] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два маленьких брата живут во "дворце" на берегу моря. Их жизнь что-то вроде сказки, пока их мама внезапно не умирает...Производство: Италия, США / Accent Films B.V., Producers Sales Organization (PSO), Vides CinematograficaЖанр: драмаРежиссер: Джерри ШацбергАктеры: Джин Хэкмен, Генри Томас, Рип Торн, Хаклберри Фокс, Морин Кервин, Сьюзен Энспак, Джун Браун, Хелен Райан, Надим Савалха, Nidal Al-AskharПеревод: авторский (Антон Алексеев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BF79FF62876EEDF387EB9DF0DA9AADF43D217D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689466   (124672) от 02.01.2024
+
+Елена Новосёлова | Лекция «Мифы о браке в современном мире. Руководство к устранению» (2017) [MP3, Елена Новосёлова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парадоксально, но часто препятствием к нашему собственному счастью становимся мы сами, точнее, наши страхи и стереотипы. Каждый из нас, ещё до вступления в брак, знает, что хорошо и что плохо, чего нужно опасаться, а чего – нет.
+
+Но в современном мире модель семьи поменялась, сегодня нам просто жизненно необходимо поменять стереотипы и модели поведения в браке. На (   Читать дальше...   )Жанр: социальная психология, сексологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD137C239E938706A2F90731883BA35F2FFF963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689509   (124673) от 02.01.2024
 
 Эрих Мария Ремарк | Тени в раю (2013) [MP3, Геннадий Смирнов]
@@ -6,7 +80,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124673.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:64448190E5453DBB86D9E1AB1372B65609A3F83E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124674.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:9C3C8EC0B9B488EADDA7D34EB8135555114F8AC1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124675.jpg" />
 </div>
 
 
@@ -84,7 +158,7 @@ Stray - About Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124676.jpg" />
 </div>
 
 
@@ -111,7 +185,7 @@ Sakis Tolis (Χ Ξ Σ) - The Seven Seals Of The Apocalypse ​-​ (​Revelatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124677.jpg" />
 </div>
 
 
@@ -138,7 +212,7 @@ magnet:?xt=urn:btih:6A320B10C065B08942584864888F104918A89D68
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124678.jpg" />
 </div>
 
 
@@ -162,7 +236,7 @@ magnet:?xt=urn:btih:219CC37A17B8638D7BEB2F8B65BE10E3C38F5C81
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124679.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ magnet:?xt=urn:btih:1C0E6B71C81AFDCB02CD6449215A7951FA658305
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124680.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ VA - DOWN LOW 5 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124681.jpg" />
 </div>
 
 
@@ -237,7 +311,7 @@ magnet:?xt=urn:btih:E5D229871443BD722AF94DD98EAD708B8469A64B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124682.jpg" />
 </div>
 
 
@@ -261,7 +335,7 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124683.jpg" />
 </div>
 
 
@@ -286,7 +360,7 @@ PrivaZer 4.0.81 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124684.jpg" />
 </div>
 
 
@@ -310,7 +384,7 @@ magnet:?xt=urn:btih:1471B5CF8D84236339027BD346F4398417FF135F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124685.jpg" />
 </div>
 
 
@@ -334,7 +408,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.11 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124686.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ magnet:?xt=urn:btih:E6CCF7E95827286EA9F3C69D40BF47C74303423A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124687.jpg" />
 </div>
 
 
@@ -383,7 +457,7 @@ magnet:?xt=urn:btih:00AA5F62B8D340703712B99EF98B6C18A563A788
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124688.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ magnet:?xt=urn:btih:B6AFC9D12DFDD6AB7171F7882834253895E288B9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124689.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ magnet:?xt=urn:btih:343242843D1E8C4120C61C0297A57D6FC35EB74F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124690.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ magnet:?xt=urn:btih:87023A84539BD576FA7F75D1CD2BB4488E5E7358
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124691.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ magnet:?xt=urn:btih:837E729D1ED830E40C2F7E0CA552E24622B5CF7C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124692.jpg" />
 </div>
 
 
@@ -503,7 +577,7 @@ Sense V2 Flip Clock & Weather v6.50.0 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124693.jpg" />
 </div>
 
 
@@ -528,7 +602,7 @@ magnet:?xt=urn:btih:15CB265074AEC5F07A404087B0849A5AC3A3CBBE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124694.jpg" />
 </div>
 
 
@@ -552,7 +626,7 @@ Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124695.jpg" />
 </div>
 
 
@@ -566,81 +640,6 @@ Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52BD1E23992DED2065F114285F8FDA599169F65C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689517   (124696) от 02.01.2024
-
-Bruce Springsteen - Japanese Singles Collection - Greatest Hits (2023) 2xCD, Japanese Edition, Compilation, Remastered, Sony Records Int'l [FLAC|Lossless|tracks + .cue] <Classic Rock, Arena Rock ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124696.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 - Born To Run (04:31)
-02 - Tenth Avenue Freeze-Out (03:12)
-03 - Prove It All Night (03:59)(   Читать дальше...   )Жанр: Classic Rock, Arena RockПродолжительность: 02:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECBA5F79C70F5381B6545697A2C20C2879AE6D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689167   (124697) от 02.01.2024
-
-Токийская повесть / Tokyo monogatari (1953) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилая супружеская пара едет из провинции в Токио навестить детей: сына, ставшего доктором, и дочь, открывшую салон красоты. Дети слишком заняты, поэтому отсылают родителей на курорт. После бессонной ночи на шумном курорте родители возвращаются в Токио. Перед тем как уехать, мать проводит ночь со вдовой другого, погибшего, сына, а отец встречается со своими старыми (   Читать дальше...   )Производство: Япония / Shochiku Kinema Kenkyu-joЖанр: драмаРежиссер: Ясудзиро ОдзуАктеры: Тисю Рю, Тиэко Хигасияма, Сэцуко Хара, Харуко Сугимура, Со Ямамура, Кунико Миякэ, Кёко Кагава, Эйдзиро Тоно, Нобуо Накамура, Широ Осака, Хисао Тоакэ, Тэруко Нагаока, Мицуко Сакура, Тоёко Такахаси, Тору АбеПеревод: профессиональный многоголосыйЯзык озвучки: русский, японскийСубтитры: русские (fix, bonifakula, Yule, lil-kodomo), английские (Criterion)Продолжительность: 02:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D8CF0AD7815D405655963E5D032B5475D351F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689411   (124698) от 02.01.2024
-
-Василиса Микулишна (1975) WEBRip [H.264/1080p] [Handmade Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как Василиса Микулишна умом да хитростью своего мужа Ставра Годиновича из темницы Киевского князя вытащила.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказка, короткометражныйРежиссер: Роман ДавыдовАктеры: Анна Каменкова, Анатолий Васильев, Владимир БасовСубтитры: нетПродолжительность: 00:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B712F463BD6C875C6161155FF9C64C9E6BCE8BF6
 ```
 
 

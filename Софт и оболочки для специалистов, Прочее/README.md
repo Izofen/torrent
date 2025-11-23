@@ -6,7 +6,7 @@ Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Red Cad App 3.24.3.0 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Microsoft  Visual C++ Runtimes AIO v0.101.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_456.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ GraphPad Prism 10.2.3.403 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_568.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.16 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1183.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Open Server Panel 6.4.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1511.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Microsoft Visual Studio 2022 Professional 17.14.15 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2330.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.0 RePack (& Portable) by Dodaka
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2399.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SolarWinds Platform 2025.2.1 [Multi]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2650.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ NVIDIA GeForce Desktop Studio 581.29 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2826.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D7014B428F12CFD2D8AD1F7EFC4D7C5F4A0DF025
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2877.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MSActBackUp 1.2.9 Portable by Ratiborus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3052.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3378.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VirtualBox 7.2.2 Build 170484 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3386.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Archicad 28.3.0 Build 6003 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3526.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Silent Installer Builder 6.4.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3770.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Lively Wallpaper 2.2.0.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4354.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ WinToUSB Technician 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4464.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4957.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Adobe Dreamweaver 2021 21.6.0.15711 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4994.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Snappy Driver Installer Origin R817 | Драйверпаки 25.08.3 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5091.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ProfiCAD 13.1.7 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5266.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5372.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ JetBrains RubyMine 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7268.jpg" />
 </div>
 
 

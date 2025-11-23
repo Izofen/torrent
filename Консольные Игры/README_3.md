@@ -6,7 +6,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127288.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F25553CD1CFB98293D1CA07E1D4DDF1C026C755
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127511.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127922.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129824.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130077.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EAA8D5D708C7B812E41DBF9D83657036DA12924A
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130112.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130204.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130613.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130660.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131258.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131680.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132420.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wipeout 3 [Wii] [ENG] [NTSC] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132444.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ultimate Band [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132528.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132551.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133982.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134341.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Borderlands 3 Ultimate edition (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134679.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135140.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mega Man Powered Up [PSP] [ENG] (2006)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136311.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136569.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Saints Row: The Third Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136604.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ LEGO Star Wars: The Force Awakens (2016) [PSVita] [EUR] 3.60 [NoNpDRM] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137341.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ninja Gaiden Sigma 2 Plus (2013) [PSVita] [USA] [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137563.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137705.jpg" />
 </div>
 
 

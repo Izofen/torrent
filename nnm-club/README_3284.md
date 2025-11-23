@@ -1,3 +1,82 @@
+###  Публикация: 1745602   (105066) от 26.08.2024
+
+Budderside - Good For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Good For Nothing
+2. Joker
+3. The Truth
+4. Never Worth It(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593131104AEE768E4A65918DF8540AACDE24BFB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745298   (105067) от 26.08.2024
+
+Silvera - World Behind Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Behind Doors [00:03:41]
+02. Sane [00:03:59]
+03. Utopian [00:03:44]
+04. Death Of Me [00:03:44](   Читать дальше...   )Жанр: Modern Rock, Post-GrungeПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1922DDB419BF6095D75F40C2A07866194AF2DB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745532   (105068) от 26.08.2024
+
+TweakNow WinSecret Plus! 5.6.0 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105068.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5C27C744F3E752FF7F6522C7E9C0D56194805A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745458   (105069) от 26.08.2024
 
 Смурфики: Затерянная деревня / Smurfs: The Lost Village (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105069.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ VA - Golden Sound Of Panflute (2007) 3CD [WavPack|Lossless|image + .cue] <Romant
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105070.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ XYplorer 26.30.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105071.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ Radiant Photo 1.4.1.504 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105072.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ VA - Classical Music Inspired by Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105073.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ magnet:?xt=urn:btih:C08777EC3CA447DEE73A883F66FB782F378DD1F6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105074.jpg" />
 </div>
 
 
@@ -156,7 +235,7 @@ Warlord - From the Ashes to the Archives - The Hot Pursuit Continues (2024) Comp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105075.jpg" />
 </div>
 
 
@@ -183,7 +262,7 @@ ExamDiff Pro 15.0.1.11 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105076.jpg" />
 </div>
 
 
@@ -207,7 +286,7 @@ Ant Download Manager Pro 2.14.0 Build 88304 (x32) / Build 88305 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105077.jpg" />
 </div>
 
 
@@ -231,7 +310,7 @@ Glary Utilities Pro 6.14.0.18 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105078.jpg" />
 </div>
 
 
@@ -255,7 +334,7 @@ magnet:?xt=urn:btih:84A1190539D9D31F8973733979E785E376C4A95A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105079.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ VA - DJ Hits Vol. 2 New '97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105080.jpg" />
 </div>
 
 
@@ -306,7 +385,7 @@ magnet:?xt=urn:btih:C43B01E1C2B278112BD0DE7C6B189C66C5BFAC82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105081.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ Simone Simons - Vermillion (feat. Ayreon) (2024) [MP3|320 Kbps] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105082.jpg" />
 </div>
 
 
@@ -358,7 +437,7 @@ Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105083.jpg" />
 </div>
 
 
@@ -385,7 +464,7 @@ PrivaZer Pro 4.0.92 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105084.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ Markus Schulz - Global DJ Broadcast (End of Summer Mix) (2024-08-22) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105085.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ Geneva Jacuzzi - Triple Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <dance-pop, da
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105086.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105087.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ magnet:?xt=urn:btih:54A71A6137A7146C521815CEF2C474D57DF9FBAC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105088.jpg" />
 </div>
 
 
@@ -514,7 +593,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ VA - Perfecto Black: The Sound of the Underground (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105090.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105091.jpg" />
 </div>
 
 
@@ -580,84 +659,6 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26B1868826C0E9F4121449D309745482B47E807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745338   (105092) от 25.08.2024
-
-Process Lasso Pro 14.3.0.58 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0419120F1FCDCEB9712657FE95106C5FD2AEEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745242   (105093) от 25.08.2024
-
-Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock/AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Autumn's Dream — хард-рок-группа, образованная в 2002 году вокалистом и клавишником Микаэлем Эрландссоном из Швеции и гитаристом Энди Малечеком из немецкой хард-рок-группы Fair Warning.2003 - Last Autumn's Dream
-2004 - Last Autumn's Dream II
-2005 - Winter In Paradise
-2006 - Saturn SkylineЖанр: Melodic Hard Rock, AORПродолжительность: 13:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745251   (105094) от 25.08.2024
-
-Paul Carrack - How Long (Has This Been Going On?) [Greatest Hits 50th Anniversary Collection, 1974-2024] (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Long (2024 Version)
-02. Groovin’ (2014 Remaster)
-03. Eyes of Blue (2014 Remaster)
-04. Satisfy My Soul (2014 Remaster)(   Читать дальше...   )Жанр: Blues, Soul, Pop RockПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFE63CB5D9F3F1DCEFD6F0B4D48D56D79A83CE0
 ```
 
 

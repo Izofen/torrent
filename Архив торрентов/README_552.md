@@ -6,7 +6,7 @@ Soul Browser 1.4.03 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119823.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HWiNFO 7.70 Build 5350 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PrivaZer Pro 4.0.82 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119830.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shotcut 24.01.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119832.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Pale Moon 33.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119833.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119838.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 10 Debloater 2.6.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119839.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ JetBrains PyCharm Professional for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119850.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ CPU Temp 1.4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119852.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ JetBrains PhpStorm 2023.3.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119854.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topaz Video AI 4.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119855.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33135.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119862.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1E0EF2A02352BA2B1DE41AFB75E2C1D6743E0367
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119865.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Stardock Start 2.0.5.4 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119867.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Windows 11 Debloater 2.0.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119873.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Smart Driver Manager Pro 7.1.1170 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119874.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ AnyDesk 8.0.8 Portable 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119883.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Steinberg - Cubase Pro 13 13.0.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119890.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Microsoft  Visual C++ Runtimes AIO v0.78.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119895.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dato 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119919.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sound Siphon 3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119920.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ EdgeView 4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119921.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119928.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ SponsorBlock for YouTube 5.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119940.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dropshare 5 v.5.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119941.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Emurasoft EmEditor Professional 23.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119947.jpg" />
 </div>
 
 

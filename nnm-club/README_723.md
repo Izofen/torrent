@@ -6,7 +6,7 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19122.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96CD7088E4B48FA8F608CBC0DC4E1E65C0C4AD7A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19123.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19124.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4316DC132A46D729CA532ABB99783DCBC3C30125
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19125.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0493F2641EFBD2CADEC5FDFDD661EA04FBD34E4E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19126.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19127.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:71701D4FD4D7EBA1E26751B455986A502C18D69E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19128.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:13EABA24725CA23067C208FBB62ACFC4E5617E37
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19129.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E09F1E226FA1B52514D887D7DF3F381E74295237
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19130.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Beach Lounge 2025 (Deep Strips Records ) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19131.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F014EFCD5E33D9D0C11FE69B32483BF7ED4B49DA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19132.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EFFAD3BACA1EE4CFDACFABE75B9BCE32D3A2776B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19133.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AAE08519F978F310BBAD70877F3CD75243DCE743
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19134.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:29DBC96D62FCAF632C1AC54F14468A335D24F3EC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19135.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:295F15D214D535312F6CF805BF6CB794E88C0F23
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19136.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:2F952DC17E1B6110CFBF55070290172572831A52
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19137.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C6D568B60138FA9649E27B14B307ECAE719BFF85
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19138.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FE0C3A2387A1826897D6556D509E454C3DF5132D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19139.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C4EDA00181802796DF4C8F833E4E380C88EAC03C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19140.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2639D064BDCACFF5CCD8E8E60BFE7ACCC0303C4A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19141.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:92B42D61A91733DA37223CA8E10B0524751DDA90
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19142.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Be Bop Deluxe - Modern Music (1976) Japanese Edition, Limited Edition, Reissue, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19143.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:DFCCB142FEF3F8FE9FB72F6EA676EF6593A5299A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19144.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:369934CC3270FC280B6FE9550B365CB4FAE94B1A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19145.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ HomeBank 5.9.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19146.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Mirillis Action! 4.45.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19147.jpg" />
 </div>
 
 

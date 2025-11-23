@@ -6,7 +6,7 @@ VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9745.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9747.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9748.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9749.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A746F16A375DBEA5A585C0EFCB1976C335B14474
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9750.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Yello - Baby (1991) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9751.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B77152F3CC1FAC7AD84624004BED20118C715159
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9752.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:B2CD2DCCA7934D2DB09556836F3DE3191DEAAB6D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9753.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:6050E58B81485F5D0FA57744D17E530DF0F69DF3
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9754.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E644330E6F5A33CE178CCDDC9195E27C4BEA5256
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9755.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:1B98081575115E276CA30DDCCD9DD1C0221ADC49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9756.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4F556DE98C0653E47BE6ABA46DB200B45657AC3B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9757.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:D9DE58BAFD2B595DA5CC158B90DEB73CB19336B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9758.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:C720EAF14B1AF06ABB2AD0CB2C87F8649C5C57AB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9759.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Depeche Mode - Black Celebration (1986) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9760.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1A77CEF7BDE4DAF551F8A4B64EBACFB853E7CB9A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9761.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9762.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:B2D77E261211C3E0FEF41A2BFE878EEA38B82052
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9763.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F5D51C85071734F7EBE95FC1131A6AB14C45E1EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9764.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:986785F058FD31702FC82D0DF79E9F64D18082EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9765.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:1F95D529DECA02BC46FD03B5D62407BD0A33B62B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9766.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9767.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9768.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:BFE7F4917A40685D02CBFFF70AF9A3A9E4C6086B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9769.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:2929889D24B9CC3606A2936AB54BA89C0E291E54
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9770.jpg" />
 </div>
 
 

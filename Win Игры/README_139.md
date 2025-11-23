@@ -6,7 +6,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Combat Mission: Shock Force 2 (2020) [Multi] (02.06.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40221.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40229.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.0.1) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40248.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40249.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40253.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40295.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40311.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40314.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kitten Burst (2024) [En] (4.04c) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40319.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40324.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40326.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40334.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40345.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40412.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40417.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40428.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40446.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shogun Showdown (2023) [Ru/Multi] (1.0.2.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40447.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40453.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40460.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Neckbreak (2019) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40484.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40505.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40508.jpg" />
 </div>
 
 

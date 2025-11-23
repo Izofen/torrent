@@ -1,3 +1,80 @@
+###  Публикация: 1405800   (127613) от 16.12.2023
+
+Мария Бершадская | Как приручить город (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя – большая маленькая девочка. С одной стороны, она младше всех, даже своей любимой таксы Ветки, а с другой – чтобы заплести ей косички, маме каждое утро приходится вставать на табуретку.
+
+Вообще Женя точно такая же, как все другие семилетние девочки. Она терпеть не может, когда её разглядывают или считают какой-то особенной. Она умеет чистить картошку так, чтобы (   Читать дальше...   )Жанр: Детская проза, Детские приключенияИздательство: КомпасГидФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EC62107F929FB61112BEB1A5544C82C27F8B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684482   (127614) от 16.12.2023
+
+VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Schilder - Shatterproof (Original Mix) [2:29]
+02. Tensnake & DRAMA - Rooftop (Extended Mix) [4:58]
+03. Andrea Oliva & Black Circle - Resonance (Extended Mix) [6:41]
+04. AMÉMÉ feat. Notre Dame - Runaway (Club Mix) [5:49](   Читать дальше...   )Жанр: House, Progressive House, Dance, ElectronicПродолжительность: 06:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575E121A6D13C4935B0A7AEEC9BB4DBA8225E055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684577   (127615) от 16.12.2023
+
+Кирилл Неумытов | КРОНД (Книга 2). Джокер преступного мира (2023) [MP3, Сергей Фатеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127615.jpg" />
+</div>
+
+
+###  Подробнее
+
+В преступном мире Токио появляется новая серьёзная сила. За короткое время Джокер стал врагом для всех трёх банд якудза, и каждый из боссов назначил солидную награду за голову тёмного мага или же информацию о нём. В то же время крайне накаляется обстановка в клановом регионе. Храм Накадзима укрепил свои позиции, но их положение всё ещё остаётся шатким. Враги в любой (   Читать дальше...   )Жанр: Боевая фантастика, Городское фэнтези, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 07:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048B376D74CD40F1D326C9F912335298A82C4369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684648   (127616) от 16.12.2023
 
 YouCut - Video Editor v1.603.1181 Mod by Mixroot [Ru/Multi]
@@ -6,7 +83,7 @@ YouCut - Video Editor v1.603.1181 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127616.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127617.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127618.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ VA - Christmas Party 2023-2024 (Best of Dance, EDM, House & Electro) (2023) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127619.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:5194605E7B8E7363CA8BA0206843F224C6111C12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127620.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ FBackup 9.9.846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127621.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ magnet:?xt=urn:btih:8ECAC409B662CF02D2D1F5285674C7A602404B64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127622.jpg" />
 </div>
 
 
@@ -185,7 +262,7 @@ magnet:?xt=urn:btih:9974AE91EA4D170E2A55EC94538B398A69D95ACF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127623.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ magnet:?xt=urn:btih:F8C0AED88841B71DCF2348D3CDC02AE347E047BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127624.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:BDE8FFE1857FF2C9837A65170303DE2BEDCBB446
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127625.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ magnet:?xt=urn:btih:CD3F1EB8A75DE9380801C10B6DAE32E31BA216AA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127626.jpg" />
 </div>
 
 
@@ -281,7 +358,7 @@ Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127627.jpg" />
 </div>
 
 
@@ -306,7 +383,7 @@ magnet:?xt=urn:btih:26646ABFEEB937A971DEFD9385C8106E2556FDA7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127628.jpg" />
 </div>
 
 
@@ -330,7 +407,7 @@ magnet:?xt=urn:btih:B8C0CE0DD603E304B8DD94A90E72B305831D17FD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127629.jpg" />
 </div>
 
 
@@ -354,7 +431,7 @@ magnet:?xt=urn:btih:3203B4BE96FBC08F1B6B96A1DD708A9F7B5F985C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127630.jpg" />
 </div>
 
 
@@ -381,7 +458,7 @@ magnet:?xt=urn:btih:1F49D441BCCA0454D32B46E54496FAF9E83CB1CE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127631.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ magnet:?xt=urn:btih:ED72A3A8E32C85344206B9F7FEF8657553C619DA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127632.jpg" />
 </div>
 
 
@@ -433,7 +510,7 @@ magnet:?xt=urn:btih:E57A9B24213A1E29818010F78F4E0A9B0812DD28
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127633.jpg" />
 </div>
 
 
@@ -459,7 +536,7 @@ magnet:?xt=urn:btih:BE504530B0601A15279A94B4021FBA69A570B17E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127634.jpg" />
 </div>
 
 
@@ -483,7 +560,7 @@ Brave Browser 1.61.104 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127635.jpg" />
 </div>
 
 
@@ -507,7 +584,7 @@ magnet:?xt=urn:btih:149597791474C2395A74A60BF182E1B461480FBE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127636.jpg" />
 </div>
 
 
@@ -531,7 +608,7 @@ magnet:?xt=urn:btih:8D232A0F27DE29372946E472559EE782DBB0FC64
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127637.jpg" />
 </div>
 
 
@@ -555,7 +632,7 @@ magnet:?xt=urn:btih:AEA9446E4ECF088199F5AB320FC3C35715C8D859
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127638.jpg" />
 </div>
 
 
@@ -566,81 +643,6 @@ magnet:?xt=urn:btih:AEA9446E4ECF088199F5AB320FC3C35715C8D859
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F199862E3F5479308C8C598AA0185151AF57FBD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520521   (127639) от 16.12.2023
-
-Морган де Кадье, Жюльет Лагранж | Лучший подарок для мамы (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем скоро у мамы день рождения, а кабанчик Хьюго до сих пор не приготовил ей подарок. Но он не отчаивается. В лесу наверняка найдётся лучший и самый красивый подарок для мамы. Ведь там столько всего интересного! К тому же лесные жители тоже пытаются помочь кабанчику. Но подарки, которые они предлагают, совсем не нравятся Хьюго. Найдёт ли кабанчик подарок для мамы? (   Читать дальше...   )Жанр: Зарубежные детские книги, СказкиПеревод: Анастасия СтрокинаИздательство: Манн, Иванов и ФерберФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9F055C0FAE40C582EA8C7586C89739FB402605
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684324   (127640) от 16.12.2023
-
-VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - My Way (3:39)
-02. Rema - Calm Down (3:39)
-03. Hamza - Nocif (3:49)
-04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684694   (127641) от 16.12.2023
-
-Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие по синтезу многоуровневого параллакса изображения AE Motion Science – Rock and Roll Parallax. Используйте изображения без авторских прав в Интернете для создания эффектов push-pull камеры с многослойными изображениями и добавления текстовых субтитров. Всего будет объяснено 7 различных методов создания эффекта параллакса. . Rock & Roll Parallax (   Читать дальше...   )Производство: Motion ScienceЖанр: Моушен дизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7487A7228B42D6042B3B9AC19EC3122A8E99F0C5
 ```
 
 

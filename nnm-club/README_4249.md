@@ -1,3 +1,75 @@
+###  Публикация: 596785   (130572) от 31.12.2012
+
+Облачный атлас / Cloud Atlas (2012) [720p] BDRip
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть историй — пять реинкарнаций, происходящих в разное время, тесно переплетаются между собой… Многослойный сюжет начинается с истории американского нотариуса из 19 века, за ним следом идёт бедный музыкант-англичанин из 1930. Далее — издатель гламурных журналов, герой нашего времени. В ближайшем будущем центральным персонажем станет клон-бунтарь, и всё закончится (   Читать дальше...   )Жанр: фантастика, драма, детективРежиссер: Лана Вачовски, Том Тыквер, Энди ВачовскиПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:52:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596699   (130573) от 31.12.2012
+
+Bishoujo Senshi Sailor Moon Super S Sailor 9 Senshi Shuuketsu! Black-Dream-Hole no Kiseki / Sailor Moon SuperS: The Movie - Black Dream Hole / Красавица-воин Сейлор Мун Супер Эс - Фильм (1995, 1 из ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё начинается с того, что в три часа ночи дети, зачарованные флейтой, покидают свои дома и исчезают. Ничего не подозревая, Усаги и её подруги готовят сладости, восхищаясь кулинарным искусством своих мам, которые их когда-то всему научили, и рассуждая о том, почему же третий час называют волшебным. Чиби Уса в тот же день знакомится со странным мальчиком по имени Перуру, который умеет с помощью своей флейты заставить сладости танцевать. Злодейкой, похищающей детей, оказывается некая мадам Вадиан, с которой Сейлор-воинам придётся сразиться, а заодно узнать, что сладости могут оказаться о-о-очень опасными...Жанр: Махо-сёдзё, приключения, драма, сёдзёРежиссер: Сибата ХирокиПродолжительность: 59мин 57сек
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1232EEB4AD75CE457DD869CC1E38BF211DE20B88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596784   (130574) от 31.12.2012
+
+Облачный атлас / Cloud Atlas (2012) [1080p] BDRip
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть историй — пять реинкарнаций, происходящих в разное время, тесно переплетаются между собой… Многослойный сюжет начинается с истории американского нотариуса из 19 века, за ним следом идёт бедный музыкант-англичанин из 1930. Далее — издатель гламурных журналов, герой нашего времени. В ближайшем будущем центральным персонажем станет клон-бунтарь, и всё закончится (   Читать дальше...   )Жанр: фантастика, драма, детективРежиссер: Лана Вачовски, Том Тыквер, Энди ВачовскиПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:52:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547158   (130575) от 31.12.2012
 
 Тайные связи / Covert Affairs (2012) WEB-DLRip (Сезон 3 полный (16 серий)) (Fox Life)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130575.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Wolfram Mathematica 9.0.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130576.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Wolfram Mathematica 9.0.0 [English]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130579.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Wolfram Mathematica 9.0.0 [English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130580.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Simple Port Forwarding Pro 3.6.0 [Multi/Rus]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130581.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Simple Port Forwarding – утилита для переназначения п
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130584.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ VideoSmile, Артём Слаква | Супер Blender (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130585.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ magnet:?xt=urn:btih:9E9CBB50E4DF05F45FDC22128B7BBC387BD2E3B9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130586.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:4E4B788E38CB0319DCBB09C4D0A5D44B49E25BAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130587.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130588.jpg" />
 </div>
 
 
@@ -262,7 +334,7 @@ magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130589.jpg" />
 </div>
 
 
@@ -286,7 +358,7 @@ Thief: Deadly Shadows [Ru] [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130590.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ Thief: Deadly Shadows [Ru] [WineSkin]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130591.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ magnet:?xt=urn:btih:005ABDD3C3E9ED205310088D63881AA38519F552
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130592.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:005ABDD3C3E9ED205310088D63881AA38519F552
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130593.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:655F1EB0451B6E3495DA13F1CD1986A68E219CED
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130594.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:A8B5A08A666299224E4E65D7B297BE994A985660
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130595.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:A8B5A08A666299224E4E65D7B297BE994A985660
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130596.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ magnet:?xt=urn:btih:A8B5A08A666299224E4E65D7B297BE994A985660
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130597.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ magnet:?xt=urn:btih:E5A87FE0BC6F0F386371FFD99AF55AA48E36CEA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130598.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ Cutcode, Данил Щуцкий | Интернет-магазин на Laravel 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130599.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:D8E76A76CCE1535A2D25DF35210AA3CB3E6FD789
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130600.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ magnet:?xt=urn:btih:3C645788D2F26450F0BFFF3AD63E76C60D517151
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130601.jpg" />
 </div>
 
 
@@ -574,79 +646,6 @@ magnet:?xt=urn:btih:3C645788D2F26450F0BFFF3AD63E76C60D517151
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221B6802BCB5EEFBE9E5F194ABAA97CCBD8B143C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231928   (130602) от 09.12.2023
-
-Девочка со спичками / The Little Matchgirl (2006) BDRip [H.264/720p]
-
->>След.
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130602.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Девочка со спичками» Роджера Аллерса — еще одна мультипликационная экранизация знаменитой одноименной сказки Ганса Христиана Андерсена, написанной им в 1848 году. В ней рассказывается о маленькой бедной девочке, которая в канун Нового года пытается продать безразличным прохожим коробки со спичками. Чтобы хоть как-то согреться, девочка начинает чиркать спичками, (   Читать дальше...   )Производство: США, Walt Disney Feature AnimationЖанр: детский, драмаРежиссер: Роджер АллерсПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F877EBA0E6C61A72A8A02A5EE7A9C1033A87F00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682661   (130603) от 09.12.2023
-
-ИИ-поиск, 3D-обои и новая версия каждый год. Что говорят инсайдеры о Windows 12?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист Windows Central Зак Боуден опубликовал любопытный отчёт о ключевых особенностях будущей ОС Microsoft. Со ссылкой на инсайдерские источники он перечислил главные нововведения Windows 12, которые станут её эксклюзивами за счёт использования возможностей искусственного интеллекта.По данным источника, одним из наиболее заметных нововведений в новой ОС станет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300463   (130604) от 09.12.2023
-
-Весь Незнайка (Приключения Незнайки и его друзей, Незнайка в Солнечном городе, Незнайка на Луне) (1971-1999) DVDRip [H.264] (32 серии)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130604.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Цветочном городе живут коротышки — маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие.
-Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: Кукольная анимация, Компьютерная анимация, Приключения, МинисериалРежиссер: Юрий Трофимов, В. Голиков, Александр Боголюбов и др.Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7F9D4B4D0ACB2D04761CC01ACC08A3BB898549
 ```
 
 

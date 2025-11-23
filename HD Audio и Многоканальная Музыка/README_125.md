@@ -6,7 +6,7 @@ Tommy Vext - Antarctica (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107020.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107057.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kasabian - Happenings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107072.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107075.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107079.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107080.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107081.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107082.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107083.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107084.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107085.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107086.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107088.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107089.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107091.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107101.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107102.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107121.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107164.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107196.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melanchol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107198.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107203.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107213.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107219.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107220.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107221.jpg" />
 </div>
 
 

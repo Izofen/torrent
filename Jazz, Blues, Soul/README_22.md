@@ -6,7 +6,7 @@ Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65529.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bo Diddley, Ron Terry - Have A Good Time Tonight (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65530.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chrissie Pavlovic - Heartland (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65532.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65541.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65542.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65543.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65547.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65548.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65556.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65561.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65562.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Cool Jazz Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65574.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65577.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65580.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Funk Windows - Funk Tape (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65584.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65619.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - A Tribute to the King of Zydeco (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhyth
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65686.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65692.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65701.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:29E6708CA09C1688008D18A74FC98A8F7FD75A59
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65712.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chillaxing Jazz Kollektion - Groove Jazz N Chill #10 (2025) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65717.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65721.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pasquale Grasso - Fervency (2025) Sony Music [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65726.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65731.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Anthony Krizan - Dust and Bone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65745.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Emanuel Kiriakou - Instrumental Blues (1998) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65765.jpg" />
 </div>
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1659102   (186191) от 24.09.2023
+
+Случай с Полыниным (1970) WEBRip [VP9/2160p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первые дни войны молодая московская актриса Галина Прокофьева вместе с фронтовой актерской бригадой была направлена на Карельский фронт. Именно там впервые услышал ее песни командир авиационного полка Полынин. Вскоре она уехала, а Полынин продолжал воевать, думать о Галине и писать короткие письма женщине, на которой решил жениться...Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Алексей СахаровАктеры: Георгий Бурков, Анастасия Вертинская, Лев Дуров, Олег Ефремов, Нонна Мордюкова, Александр Пороховщиков, Олег Табаков, Виктор Шульгин, Евгения Мельникова, Виктор Колпаков и др.Субтитры: отсутствуютПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F86E08AAA83881D94B96BD711B4D9A951A28CAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656896   (187924) от 17.09.2023
 
 Сватовство гусара (1979) HDTV [H.264/1080i]
@@ -6,7 +30,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187924.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187924.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:2F3F5817BDBE871D05414B3B268066A2D0395F0E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188181.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188181.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:4DC320C8006FEED3039CB39420598773C86C6131
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189952.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189952.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:027CC9C3F66C1A8753397D4300B8F94679EACE7E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190301.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190301.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:1F2914294987E5567708BF813FD1BCB0B6648868
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190950.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_190950.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:10BAA9A1432F685DB1E4FB0448C4520B5541B7E5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191239.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191239.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:813E7C548799E7560A78BCC6688C228529593A89
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193332.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193332.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:460A2E3620B92AF22B5CBAB6F22E8B509A0D0A0A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193401.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193401.jpg" />
 </div>
 
 
@@ -199,7 +223,7 @@ magnet:?xt=urn:btih:952FC2A84A101D9E001E58278304B1CDA4371D62
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193449.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193449.jpg" />
 </div>
 
 
@@ -223,7 +247,7 @@ magnet:?xt=urn:btih:BBE0C8F8C5505AFCD49BE07BD1F95DC7C0C2223B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194333.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194333.jpg" />
 </div>
 
 
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:1590928DCC76346F2077C3DDBFF9FCFC092FBDB8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194337.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194337.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ magnet:?xt=urn:btih:1C3EF5C6552FC75AFABA4146DDBC9A5E996A1EC4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194437.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194437.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:07F50B109DA2AC90D4725B451837414F714BF7E4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194438.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:E58B89A6AE25E978B4648FF2A110F25A0B1B0402
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195026.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195026.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ magnet:?xt=urn:btih:C498DFF6EDD44D1E9FA4B4C8EE5D4DD13EE07F56
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196161.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:73782BD245E99E8E2B341F40C1C1645FAEDE3B9A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197485.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197485.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:FDCB9E76F445AEA29BBA020161E88AD1B15C8396
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198840.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198840.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:B8CD98B9BB53AF7E5CE14C56C28FD44A63CFE97A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199359.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199359.jpg" />
 </div>
 
 
@@ -440,7 +464,7 @@ magnet:?xt=urn:btih:5AC816EE90C2EACE2A45F9B79BABA3EA21D79BD2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200165.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200165.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:01D1B707380B49CD23A784C976613BEB72B57F1D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204002.jpg" />
 </div>
 
 
@@ -490,7 +514,7 @@ magnet:?xt=urn:btih:88C31C54D651B77FEFAA74D8BF34692A644DA088
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204025.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204025.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ magnet:?xt=urn:btih:0A29E346BE82416CCEA51A20CB720356253BBDF4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204194.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204194.jpg" />
 </div>
 
 
@@ -540,7 +564,7 @@ magnet:?xt=urn:btih:3F0EE027CEA459D36D61E1C585AFE6C2D6C22B97
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205175.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205175.jpg" />
 </div>
 
 
@@ -564,7 +588,7 @@ magnet:?xt=urn:btih:4EE28CFD241648432189B7B730FD86F06D2D7326
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205666.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205666.jpg" />
 </div>
 
 
@@ -588,7 +612,7 @@ magnet:?xt=urn:btih:15B7BD3078618C20CCDFAC1D3FE9CF532B3624A5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206557.jpg" />
 </div>
 
 
@@ -599,30 +623,6 @@ magnet:?xt=urn:btih:15B7BD3078618C20CCDFAC1D3FE9CF532B3624A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD916114BA6518DED13C580D9650FB17AD1A4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580457   (206784) от 01.10.2022
-
-Ирония судьбы, или С легким паром! (1975) WEBRip [H.264/1080p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для многих зрителей эта картина уже не одно десятилетие является олицетворением самого прекрасного зимнего праздника, наполненного запахами свежей хвои и апельсинов, а также звуками вылетающей из бутылки шампанского пробки, откупоренной по-гусарски. Ирония судьбы стала для нас символом новогодней ночи, в которой всегда есть место волшебству. Именно волшебству, потому (   Читать дальше...   )Производство: СССР / МосфильмЖанр: мелодрама, комедияРежиссер: Эльдар РязановАктеры: Андрей Мягков, Барбара Брыльска, Юрий Яковлев, Ольга Науменко, Любовь Добржанская, Георгий Бурков, Александр Ширвиндт, Александр Белявский, Лия Ахеджакова, Валентина Талызина, Любовь СоколоваСубтитры: отсутствуютПродолжительность: 01:39:48 + 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE5B3FC14D44F48513E599EC67F5F194C2A3E23
 ```
 
 

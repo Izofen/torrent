@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49964.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49965.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ AnyBurn 6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49966.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MCS Drivers Disk 24.5.13.2157 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49967.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F44B8A0869A14FCA38D0F495B7AF5573EA6E97B9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49968.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49969.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6C7D0063F4F4448F8DCED224D16E809FFFDBFB0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49970.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D583E33126882963E1B49A09C8CB00A20977E587
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49971.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D583E33126882963E1B49A09C8CB00A20977E587
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49972.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9C860361D5B1C4EBA186114FB64A38FB98EEAAD4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49973.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49974.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49975.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49976.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CA0C3DF4FE6E6F8007D6FD537BC050535A88BFDB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49977.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C39EA0E215483B798A0FC4824A83EC072512CEC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49978.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:03F43BC9582181901E80C18EF609D87DFA5DC62B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49979.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:16DACE5A689EC98BC79C0223E92E4FBF2502969C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49980.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:04CF04E1794D8CC0510A8B3ABED8A636F8510A57
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49981.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9B332FA80EC13B22E180101AF1E8CC15E504438B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49982.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:9B332FA80EC13B22E180101AF1E8CC15E504438B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49983.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:244BB2133E2DB7919A8210DF74715FCF9DE2AA19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49984.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:74F2E74A7D073A1D026C3C503B5D627F9F224129
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49985.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:085FE2849F4B53CFD285F371C45CB31734B026F6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49986.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Microsoft Flight Simulator (2020) [Ru/Multi] (1.12.13.0u10) Repack xatab
 >>22
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49987.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49988.jpg" />
 </div>
 
 

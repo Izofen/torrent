@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80200.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Depth Hunter [Multi5/-] (Lossless RePack/1.10) 2011 | R.G. Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80224.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2D6CADDEE4D7FDC99BC1765BAD4097C1FBD1B02A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80230.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Oracle Linux 5.8 (Server) [i386 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80238.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:63D347C092D4A4D7E1D151CE621071C903AC52EA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80243.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C1645E50CF718C8B22D74D2D7BD0A46774221AC8
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80262.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80268.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80288.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:FB3A213D3B8FE232852801070E52FC565C1D73A8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80292.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:FB3A213D3B8FE232852801070E52FC565C1D73A8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80297.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Adrenaline Mob - Omerta (2012) [FLAC|Lossless]<Heavy Metal / Progressive / Nu-Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80331.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80333.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80337.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:733AB194CB81A1137501702D2DE4E818FAD77A4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80343.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:85C115E2D3DA2098CB43C82D2C8547415D9D94BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80344.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:CD2D6B9E86DFCDFF2BE2EC4EDDA9B3B87ED1064D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80367.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80408.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80416.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80444.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80450.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Double Commander 0.5.3 + Portable x86-x64 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80454.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Double Commander является unicode-совместимым приложе�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80456.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:CFA5878BF1D1CE448C7DCB3681ED94B5CE1F79E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80472.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:CFA5878BF1D1CE448C7DCB3681ED94B5CE1F79E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80480.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:FC43AD0D614FFCE1044EAFD52AC10A7862C0B8A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80483.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:2730FF12F302FA42FFDC81B75139CDCC6F7BEA7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80485.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Criminal Archives 4: Blade of Deceit / Криминальные архивы 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22621.3880], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:665C2E083CC3805D766AF011A85A8E4B444AE89B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49835.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B2D025645E862DD56AE7FF4BC0BBA3CA5CEF6E33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49836.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chaos Vantage 2.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49837.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4744A8D1152DCCB98B8C96E80B963156B11D503C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49838.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:70A183D5795B122FDEF2E9D92740DA033DA71061
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49839.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49840.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D7ECC51E78AF0177D34F146A4564C14435548702
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49841.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D7ECC51E78AF0177D34F146A4564C14435548702
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49842.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C4D9ED96E440D9FCAC28FF308854C05F66C46C39
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49843.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:02A2BB0DD16DEE1AE49AD791A5441B625DF537D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49844.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:4F94111B081417A5B53BC08C540FBAB94C6A1026
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49845.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Guitar Pro 8.1.3 Build 67 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49846.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:AF809035D8B4FDC5FFD24E3215D05085E2A1BAA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49847.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Microsoft Windows 11 [10.0.22621.3880], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49848.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:BAF10B8844477DBF2504AE478B4D0BE731EE2469
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49849.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ DxO PhotoLab Elite 7.8.0 build 254 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49850.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:27AFBAFB3C80FD08ABA39F06335BABFF15B3A0D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49851.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A657334F719C014FB109D53351D0CA7F35937DBD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49852.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49853.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8DA59948F6FBBE4C520F3D1D1B3F0F4CD7631AA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49854.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ AIMP 5.30 Build 2560 RePack (& Portable) by elchupacabra (Extended + Standard) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49855.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49856.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:0451D952D2F43EA51923024E4117CE3458ED1432
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49857.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:959EEC7FF297F6EA9A979A008C84B89291152DA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49858.jpg" />
 </div>
 
 

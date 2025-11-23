@@ -6,7 +6,7 @@ VA - Настоящий блюз (2010) [FLAC|Lossless]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81814.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81824.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81972.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81990.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Al Di Meola - Original Album Classics [5 CD Boxset] (2010) [MP3|320 kbps]<Jazz, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82193.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Beegie Adair and David Davidson - Parisian Cafe (2009) [MP3|320 кб/с]<Jazz,In
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82380.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82382.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Club Des Belugas - Forward (2012) [MP3|~245 кб/с (V0)]<Electronic, Nu Jazz, N
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82386.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82414.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82482.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Gary Moore - Ballads & Blues 1982-1994 (1994) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82690.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Contino - Back Porch Dogma (2012) [WavPack|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82808.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82810.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Lazlo - Lazlo (2012) [MP3|320 кб/с]<Electronic, Nu Jazz, Nu Swing, Nu Blues>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83429.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83677.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83835.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - We Got The Funk (2002) [FLAC|Lossless]<Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83850.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Charlie Parker, Dizzy Gillespie - 17 альбомов (1945-1994) [MP3|192 кб/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83913.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84029.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84063.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84093.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84489.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85253.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85269.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ Macy Gray - Covered (2012) [MP3|320 кб/с]<Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85299.jpg" />
 </div>
 
 
@@ -804,7 +804,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85463.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42170.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42574.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42756.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42858.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frostpunk 2 (2024) [Ru/Multi] (5.2.1-391109/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42900.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Frostpunk 2 (2024) [Ru/Multi] (Build 15731711) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43199.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43475.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43833.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43837.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44898.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44910.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45185.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45207.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45211.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45406.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45602.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45729.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45730.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45916.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46245.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.34f/dlc) Scene Tenoke [Anniversary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46850.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Highrise City (2022) [Multi] (2.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47504.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47837.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48143.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48151.jpg" />
 </div>
 
 

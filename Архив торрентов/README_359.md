@@ -6,7 +6,7 @@ Toontrack - EZkeys Player v1.0.1 UNLOCKED x86 x64 by ASSiGN [английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85816.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Toontrack - EZkeys Player v1.0.1 UNLOCKED x86 x64 by ASSiGN [английски�
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85822.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WPI for Windows 7 v27.03.2012 by UZEF (2012/Rus) v27.03.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WPI for Windows 7 v27.03.2012 by UZEF (2012/Rus) v27.03.2012 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85850.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WPI for Windows 7 v27.03.2012 by UZEF (2012/Rus) v27.03.2012 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85866.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tokyo Ska Paradise Orchestra - Walkin’ (2012) [MP3|320 кб/с]<Ska>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85872.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2888523CF2EFF71D527AEBEA618A9BC935483B6E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85875.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:8264D2A958123E0CAF22F0D75ED912ABE0B6D05F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85876.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tito Rodriguez - Indian Spirit Meditation. Only Instrumental (2008) [MP3|320 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85881.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 Final[Best]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85885.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85886.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85887.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:712C77AACA50A40FA5959C47957EF30BB08F244B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85888.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6F5D1C50A04AADB673CA3574D71066E8947C5213
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85889.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A76E32000E17FA5513DE406E938801010C3258F4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85894.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ DJ Boomer - DA BASS 9 (2005) [FLAC|Lossless]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85900.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ N/A2005Жанр: Drum & BassПродолжительность: 01:16:54
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85909.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:E6DB7713CA88518DE6E7BEC6DFE88C88CFC13BCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85915.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ MVP Loops - Fret: Pro RnB & Pop Guitar Loops (Wav, Aiff, RX2)[английски
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85917.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Fret Pro RnB & Pop Guitar Loops - Петли акустических, элек�
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85918.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0660C64D55A4C928DB20069F3E5B0331A376BC02
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85925.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B487E7E05A832ADDEAD72F382F4212BED9C58914
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85929.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:B487E7E05A832ADDEAD72F382F4212BED9C58914
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85934.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:B487E7E05A832ADDEAD72F382F4212BED9C58914
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85936.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:EA1273E33A4D8F9715E0E430B805B6963A8B7378
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85939.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:CCE394CCFC69E99AF80D3BFA657068DB8779EFFD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85941.jpg" />
 </div>
 
 

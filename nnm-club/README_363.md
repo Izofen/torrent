@@ -6,7 +6,7 @@ Digital Juice - Canvases Banners & Ribbons [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9583.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinRAR 7.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9584.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Digital Juice - Canvases Collection 01: Stretched Bounds [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9586.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F507D22875B3A31634C4300E11FBE62334BA85BB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9587.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:993D1ECFBF02EC364610630FA2C994FCAF41DDD8
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9588.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0B70F0C239F97361447D2E15504F41EED0171011
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9589.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D4D27FAFE5B1D349842D7044DAAB6764DF603342
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9590.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:1876D4212AF832907FB4E199825180E41AAFFC31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9591.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:1876D4212AF832907FB4E199825180E41AAFFC31
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9592.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:8981CE6BB6F9107C3CD5D425B3B062334661519C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9593.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:6F8D455222FB7EF0125AA410FD24514A3D21ED5F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9594.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9595.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:68BFC8E8A9FF51F623F9B70ED549EF55AFE7F38B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9596.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Let'sРlay [Del
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9597.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Myst (2021) [Ru/Multi] (3.0.5 HotFix) License GOG [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9598.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9599.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:77A018071E943FB4E857EE4EFB00DB4AD3D8E926
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9600.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0C1B86754375113C6DF292F29B827D1651DB7421
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9601.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D566805F2CF602D183A775B19EA313EBD3E30811
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9603.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:BBBFAF90FE6A04D6F6CCC4B4227C02F8990B5F80
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9604.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:465734E25FA6F94A44A0C0CD7277647541CE139F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9605.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9608.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9610.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9611.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9612.jpg" />
 </div>
 
 

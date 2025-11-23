@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58943.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0C62CAEFC940639341D15BEEB3DC2EB3A6281ED0
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58944.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1734369DC01694436C3A72E99F323821D2873CBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58945.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58946.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:325792F2A96FD0BCF9C014DA28C80EFB9E566F3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58947.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6C86B353934608395469DA78C2F7C13006F09877
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58948.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D2E37A3A96AC9A40FB9B851D3A4E5337F08B2FF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58949.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7641FB6AA8197201EE23E110C73F53F932E894C9
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58950.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58951.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A256C4265FE7E644C94DC74D8D8CD68C38FD49C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58952.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:37FB0821F67F4AB822347939052DBA86CBDD724D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58953.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58954.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58955.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58956.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:482C891817ED276D2739B45C6668280F40A3A7C5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58957.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C33210C2C662E0313CD23F65191A4423B39FDF0C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58958.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Duolingo: изучай языки 5.147.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58959.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58960.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Easy Notes 1.2.33.0409 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58961.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:233B3A7654F30F35A5E65501BBD27524BB4640DA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58962.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EBB2E077F07130C5852CA56CEA1ACF791A09BCE9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58963.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B6218D56703F9BFA79DE337F3FFAA128F7E0FE11
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58964.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7C6BD50929841B553D8174184F2A78D7C6A80B9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58965.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Pencil Photo Sketch : Drawing v2.0.78 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58966.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4DAC49DB57917D33CB5FB1A28248439D82CD7CF1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58967.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:2219749D63B07A018468778479ABE2BA5A454634
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58968.jpg" />
 </div>
 
 

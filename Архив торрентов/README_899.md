@@ -1,3 +1,102 @@
+###  Публикация: 1429350   (176524) от 06.12.2020
+
+TrueArtSchool, Светлана Курако | Иллюстратор ПРО (2020) PCRec
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_176524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный четырёхнедельный онлайн-курс по созданию трендовых иллюстраций в Adobe Illustrator с нуля.
+Что входит в онлайн-курс «Иллюстратор ПРО»:
+Часть 01
+• На старт! Ставим ошеломительные цели на курс(   Читать дальше...   )Производство: TrueArtSchoolЖанр: Дизайн, рисованиеПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD72E8F87FC9B7E281D3E82EB9E49989E8DE6DE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594999   (176527) от 03.12.2022
+
+W10Privacy 4.1.1.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176527.jpg" />
+</div>
+
+
+###  Подробнее
+
+W10Privacy - программа для изменения настроек системы Windows и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить/отключить.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003523A97CDABD55759FFAE42380FC8464B6C2B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595048   (176550) от 03.12.2022
+
+Google Chrome 108.0.5359.95 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F99169BA7424B8C4CE0E9B2704C0CFECA5B7549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595087   (176567) от 03.12.2022
+
+DP Animation Maker 3.5.13 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90AA63ABED5ABF18BFB54C5F11B5A8190E4295E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667445   (176579) от 08.10.2023
 
 PortScan & Stuff 1.96 Portable [Multi/Ru]
@@ -6,7 +105,7 @@ PortScan & Stuff 1.96 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176579.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ Double Commander 1.0.9  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176583.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176583.jpg" />
 </div>
 
 
@@ -54,7 +153,7 @@ HiBit Uninstaller 2.5.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176584.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176584.jpg" />
 </div>
 
 
@@ -79,7 +178,7 @@ Internet Download Manager 6.41 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176586.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176586.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ DP Animation Maker 3.5.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176595.jpg" />
 </div>
 
 
@@ -127,7 +226,7 @@ OCCT 12.1.9 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176602.jpg" />
 </div>
 
 
@@ -151,7 +250,7 @@ YT Downloader 7.18.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176606.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176606.jpg" />
 </div>
 
 
@@ -175,7 +274,7 @@ RSS Guard 4.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176607.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176607.jpg" />
 </div>
 
 
@@ -200,7 +299,7 @@ Wondershare Filmora 11 v.11.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176611.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176611.jpg" />
 </div>
 
 
@@ -224,7 +323,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176619.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176619.jpg" />
 </div>
 
 
@@ -248,7 +347,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0512) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176622.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176622.jpg" />
 </div>
 
 
@@ -272,7 +371,7 @@ ACDSee Photo Studio 9 v.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176628.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176628.jpg" />
 </div>
 
 
@@ -297,7 +396,7 @@ Google Chrome 108.0.5359.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176635.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176635.jpg" />
 </div>
 
 
@@ -321,7 +420,7 @@ Aiseesoft Video Converter Ultimate 10.7.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176639.jpg" />
 </div>
 
 
@@ -345,7 +444,7 @@ FreeFileSync 11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176648.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176648.jpg" />
 </div>
 
 
@@ -369,7 +468,7 @@ Auslogics Disk Defrag Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176656.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176656.jpg" />
 </div>
 
 
@@ -393,7 +492,7 @@ Imagine 1.3.1 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176660.jpg" />
 </div>
 
 
@@ -417,7 +516,7 @@ Lacey Free Music & Video Downloader 2.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176662.jpg" />
 </div>
 
 
@@ -441,7 +540,7 @@ QOwnNotes 22.12.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176663.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176663.jpg" />
 </div>
 
 
@@ -465,7 +564,7 @@ Luminar Neo 1.5.1 Intl [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176669.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176669.jpg" />
 </div>
 
 
@@ -489,7 +588,7 @@ PrivaZer 4.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176684.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176684.jpg" />
 </div>
 
 
@@ -513,7 +612,7 @@ Chromium 108.0.5359.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177134.jpg" />
 </div>
 
 
@@ -524,102 +623,6 @@ Chromium – веб-браузер с открытым исходным кодо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F30BABFC4C59652771DBA7F352D00D00A36E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594783   (177140) от 02.12.2022
-
-Mozilla Thunderbird 102.5.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E9003E8D40B90B3C71D793F266515829B80C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594767   (177149) от 02.12.2022
-
-EarthView 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177149.jpg" />
-</div>
-
-
-###  Подробнее
-
-EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA287812D1354CE10257B7C0F1D800896E62872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594822   (177152) от 02.12.2022
-
-VIP Notes 9.9.67 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет хранить отформатированные текст и вложенные в заметки файлы в зашифрованном виде, располагая их в иерархическом виде внутри папок подобно файловой системе, но при этом все данные и файлы хранятся в одном файле базы данных, а размер вложенных файлов ограничен только возможностями вашего устройства. Имеет встроенные средства просмотра изображений, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 01.03.2022Разработчик: OgromanПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDFAEF97B51C19845C12BDA327FD93BF1A41217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594730   (177157) от 02.12.2022
-
-Macrorit Partition Expert 7.0.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD2722D85396F114307D26E9C458A2B964561A3
 ```
 
 

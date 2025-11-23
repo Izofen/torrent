@@ -1,3 +1,175 @@
+###  Публикация: 1677656   (150339) от 18.11.2023
+
+Кибербункер: Даркнет в Германии / Cyberbunker: The Criminal Underworld (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150339.jpg" />
+</div>
+
+
+###  Подробнее
+
+В идиллическом туристическом городке Германии сталкиваются два мира: Группа таинственных голландцев и их эксцентричный лидер Ксеннт хотят захватить огромный бункер НАТО, расположенный под городом. Ксеннт обещает деревне процветающее будущее, но жители сомневаются. По мере того как под улицами причудливого городка Трабен-Трарбах проявляется преступный мир, его жители (   Читать дальше...   )Производство: Великобритания / BildundtonfabrikЖанр: документальный, криминалРежиссер: Kilian Lieb, Max RainerАктеры: Sven Olaf Kamphuis, George Mitchell, Herman-Johan XenntПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: НетПродолжительность: 01:43:27Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE00FF46A5A3420D9199014180CD11B1D7B3949F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968909   (150340) от 25.12.2015
+
+Comedy Woman. Лучшее  (2015.12.25) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуПродолжительность: ~ 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131A2A46D5E0F470FA325A47C6394212E79FA6A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677435   (150341) от 18.11.2023
+
+Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firehouse — самая любимая команда, ещё юности. Первые 2 альбома невероятно сильные. Все песни хитовые. Вокалист улётный, очень круто валит. Гитарные партии просто чума. Энергетика бешеная. Впервые услышал альбом 92 года, Hold Your Fire, в середине 90х, у друга на бобине. И на следующий день купил кассету SONY HF и побежал в звукозапись. У нас в студиях был только (   Читать дальше...   )01. Reach For The Sky
+02. Rock You Tonight
+03. Sleeping With You
+04. You're Too Bad(   Читать дальше...   )Жанр: RockПродолжительность: 05:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271374   (150342) от 23.12.2018
+
+Лев Давыдычев | Друзья мои, приятели и др. (1976) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три повести и роман для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE03C13ECD3C90463905A6729AA42039FBCF648C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434298   (150343) от 24.12.2020
+
+Альбер Торш | Чужой мир (Книга 1) (2020) [MP3, Евгений Лебедев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думал ли наш герой, заходя в шикарный особняк очень влиятельной в городе семьи Пилсудских, что не сможет больше оттуда выйти? Вряд ли! А еще он даже не надеялся, что под прицелом направленного на него дочкой банкира пистолета удастся остаться в живых. Однако медальон, случайно приведший его в логово нелюдей, оказался слишком непрост и сумел сохранить жизнь полицейскому. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 18:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2112AA8AE043A1BFCE1B1D8F93C04186ED6CF856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086864   (150344) от 25.12.2016
+
+Майкл Бакли | Тайна Алой Руки (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сабрина и Дафна Гримм постепенно привыкают к необычной жизни в небольшом городке, где бок о бок с людьми живут сказочные герои. Сестры пошли в школу, директором которой является сам знаменитый крысолов из Гамельна, а Дафна учится в классе у Белоснежки. Девочка в полном восторге — ей все ужасно нравится в Феррипорт-Лэндинге. А вот Сабрина не доверяет вечножителям (   Читать дальше...   )Жанр: СказкаПродолжительность: 07:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00C112C0E2E8F21501C08D324EE1E524E283C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968818   (150345) от 25.12.2015
+
+Артем Рыбаков | 1000 рентген в час (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150345.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Здесь птицы не поют, деревья не растут». Здесь зашкаливают и сходят с ума дозиметры, радиоактивные развалины мерцают мертвенным призрачным светом под мёртвым небом, каждый вдох сокращает жизнь на день, а от лучевой болезни не спасают ни защитные костюмы, ни бомбоубежища, ни подземелья метро.
+1000 РЕНТГЕН В ЧАС – даже через 30 лет после атомной войны 2012 года и (   Читать дальше...   )Жанр: Фантастический боевикПродолжительность: 08:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CFD46CFF93C5126EED40EA6A393E65CC347815
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434362   (150347) от 24.12.2020
 
 Оверлеи - InkyDeals - The Ginormous Collection of 9000+ Overlays And Design Elements [PNG, PSD]
@@ -6,7 +178,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150347.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ VA - Steyoyoke Gems Nocturnal 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150348.jpg" />
 </div>
 
 
@@ -57,7 +229,7 @@ magnet:?xt=urn:btih:EC6DE866610FD2FC75809BA4622485E4334AAFC1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150349.jpg" />
 </div>
 
 
@@ -83,7 +255,7 @@ Adobe Systems Incorporated | Руководство пользователя Ado
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150350.jpg" />
 </div>
 
 
@@ -107,7 +279,7 @@ Marked 2 v2.5.9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150351.jpg" />
 </div>
 
 
@@ -132,7 +304,7 @@ MudRunner Mobile v1.3.0.8633 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150352.jpg" />
 </div>
 
 
@@ -156,7 +328,7 @@ magnet:?xt=urn:btih:55081B8931B1D82F80F9266DB351BD11C431C9C8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150354.jpg" />
 </div>
 
 
@@ -180,7 +352,7 @@ VA - The Soundplate 2016 Collection (2016) [MP3|320 Kbps] <Electronic, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150357.jpg" />
 </div>
 
 
@@ -207,7 +379,7 @@ Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150358.jpg" />
 </div>
 
 
@@ -231,7 +403,7 @@ magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150359.jpg" />
 </div>
 
 
@@ -258,7 +430,7 @@ VA - Steyoyoke Gems Solar 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150360.jpg" />
 </div>
 
 
@@ -285,7 +457,7 @@ magnet:?xt=urn:btih:372A902CC1F89EA25154EE606C7F44B737CC1426
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150361.jpg" />
 </div>
 
 
@@ -309,7 +481,7 @@ iShowU Studio 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150364.jpg" />
 </div>
 
 
@@ -335,7 +507,7 @@ magnet:?xt=urn:btih:BD67F46F759A2739CE6292E061A8983B489302F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150365.jpg" />
 </div>
 
 
@@ -359,7 +531,7 @@ magnet:?xt=urn:btih:7795A28963956CDB93D224D680A41DD6FEB2B026
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150367.jpg" />
 </div>
 
 
@@ -383,7 +555,7 @@ Moon+ Reader Pro v8.6 (build 806000) Mod by Balatan, derrin,  Lucky Las [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150369.jpg" />
 </div>
 
 
@@ -407,7 +579,7 @@ magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150370.jpg" />
 </div>
 
 
@@ -432,7 +604,7 @@ Habaka - Heritage Blue (2016) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150371.jpg" />
 </div>
 
 
@@ -459,7 +631,7 @@ Azusa Plane - America Is Dreaming Of Universal String Theory (1998) 2CD [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150372.jpg" />
 </div>
 
 
@@ -474,180 +646,6 @@ CD2 - 01:01:06
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D470E76D7E83931138015666F8CD1E5CB7CC1690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587776   (150374) от 14.12.2012
-
-Пакетная установка msu-обновлений 1.5 [Русский] (Авторская раздача)
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита представляет собой модуль для пакетной установки msu-обновлений (обновления для Windows 7/8, Internet Explorer 9/10). Сами обновления в раздачу не входят, они есть в свободном доступе на сайте Microsoft
-Скопируйте программу в папку с обновлениями, которые необходимо установить. Все найденные обновления сортируются по имени и устанавливаются при помощи автономного установщика обновлений Windows (wusa.exe) с параметрами </quiet /norestart>Название программы: Пакетная установка msu-обновленийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518913   (150375) от 22.12.2021
-
-Microsoft Windows 10.0.19044.1415, Version 21H2 (Updated December 2021)  - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1415.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B8DCAA1D9E3282708A2AE4F4B91682655E75C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086575   (150376) от 25.12.2016
-
-JunkBelly - On the Inside (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Appleblossom 4:25
-02 - One Less Thing to Carry 4:13
-03 - Put My Moves on You 5:03
-04 - Rainin 4:46(   Читать дальше...   )Жанр: Rock, Blues-RockПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE0DB069850D343602124F3C3497B85ABD61BFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589435   (150377) от 14.12.2012
-
-ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] RePack by D!akov
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение просканирует вашу систему на предмет устаревших драйверов и предложит их обновить. Программа имеет одну из крупнейших баз данных драйверов в сравнении с другими программами и легко найдет новые, нужные только вашему компьютеру драйвера на все комплектующие. Она имеет более 10 миллионов файлов драйверов на более чем 56 000 производителей устройств. Программа может предоставить драйверы, совместимые со всеми операционными системами. После сканирования, программа покажет вам, какие версии драйверов у вас были установлены и дату установки, а также предложит новые версии драйверов.Название программы: ReviverSoft Driver ReviverЯзык интерфейса: Rus/Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968877   (150378) от 25.12.2015
-
-Настя Понедельник | Домашнее мороженое (2013) [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена одному из любимейших десертов и детей, и взрослых и включает в себя 74 рецепта мороженого, сорбета и граниты.
-Потрясающее многообразие цвета и вкуса, от классического пломбира "из детства", крем-брюле и простого ягодного сорбета до изысканных ингредиентов и необычных сочетаний: фиалка и лаванда, соленая карамель, дыня с тимьяном, клубника (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150C2869AC4AC3DED444083CABB2C39A20D06D4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519012   (150379) от 22.12.2021
-
-Movavi Video Suite 22.1.0 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Suite - пакет программ на русском языке, предназначенный для создания клипа, фильма или слайд-шоу. Даже если вы новичок в создании собственных видеороликов, не беда, с Movavi Video Suite вы сможете произвольно, не имея особых навыков создать шедевр, по своей душе и желанию. Добавляйте текст, переходы, стильные и современные эффекты, творите что душе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4799A9F06B1E8DD48FFB0396167FDE2820F0A478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677609   (150380) от 18.11.2023
-
-Radiant Photo 1.1.2.346 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F9E62BCBAAA0E7809A11F54BC991A0D8A01A76
 ```
 
 

@@ -6,7 +6,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158473.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2A3C44A9604DA7B55B1B9AF569EC99F40DA506AE
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159130.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9EFCAA26F28E1D30F74C11143332ADD62A5CA397
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160981.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B6B1F8F34D4689081F7C28EE8DE87B45C39CB4E4
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162090.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:97D83889433FCFD9F3C648D14FC2D1EC24D16A2E
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162645.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0A30843C779F41B2056EA43B4ED9CFEE7048389B
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163415.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F73D13FC2D825A239612F7B8FF0327E13812A2A9
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168585.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:39FA364990569A8A9385124DDDF27B05A64D548A
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168769.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5562976B81FCA5F3B81FC33ED33136E6F88361FD
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169100.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:533EF7F494E5DC63BDB2507BA76227941F68B1FD
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169232.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:18FEF63737F8B7158CD0D80F76DBF840F9D73677
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169327.jpg" />
 </div>
 
 
@@ -264,6 +264,30 @@ magnet:?xt=urn:btih:D57A2BB5C606362FE430250B4A9A2E393F5A512C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660821   (177887) от 04.12.2020
+
+Броня России (2009) DVDRip [10 серий из 10]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал «Броня России» посвящен истории отечественных боевых бронированных машин: от первых броневиков начала двадцатого века до современных танков. В десяти фильмах подробно рассказывается о большинстве видов бронетанкового вооружения и техники, созданных в Советском Союзе и России. Среди них: танки, бронеавтомобили, боевые машины пехоты, боевые машины десантные, (   Читать дальше...   )Жанр: ВоенныйРежиссер: Андрей КулясовПродолжительность: 10 x ~ 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF8EF42FB862FCD415CCFBD537753902042CFAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662913   (187360) от 19.09.2023
 
 Мужская работа (2023) WEBRip [H.264/720p]
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:D57A2BB5C606362FE430250B4A9A2E393F5A512C
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187360.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187360.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ RTG. Центральный музей бронетанкового вооруж
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197233.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197233.jpg" />
 </div>
 
 
@@ -322,7 +346,7 @@ magnet:?xt=urn:btih:E9293E0390BF50AD7E5500258CD46C9730DE9B21
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202420.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202420.jpg" />
 </div>
 
 
@@ -347,7 +371,7 @@ magnet:?xt=urn:btih:F6A689D8B248799CBB04FB40E4663B64329F416F
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204472.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204472.jpg" />
 </div>
 
 
@@ -372,7 +396,7 @@ magnet:?xt=urn:btih:5980C8E0BA886AD7D7D0BBB213084CDE17942A31
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207552.jpg" />
 </div>
 
 
@@ -396,7 +420,7 @@ magnet:?xt=urn:btih:5257EB79537516E97CECDA0D0288143924C90588
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214172.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ magnet:?xt=urn:btih:E9D7560F3363F556902BEDE33847466B85424C28
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214596.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214596.jpg" />
 </div>
 
 
@@ -444,7 +468,7 @@ magnet:?xt=urn:btih:01F03CF347896555A27725A6732DF500F92183BE
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222113.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222113.jpg" />
 </div>
 
 
@@ -468,7 +492,7 @@ magnet:?xt=urn:btih:42ED56DBC044670C8A067DC6528BDD90575EA150
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223619.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ magnet:?xt=urn:btih:67E8D3642934DA3993C3DFD737255DE819771D86
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224584.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224584.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ magnet:?xt=urn:btih:5A493A7A738175D87F90913F8C46C35740B6F933
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226163.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226163.jpg" />
 </div>
 
 
@@ -540,7 +564,7 @@ magnet:?xt=urn:btih:257FDA5842A369B1FC3AB2897C33B2AB2556A1EB
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229572.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229572.jpg" />
 </div>
 
 
@@ -565,7 +589,7 @@ magnet:?xt=urn:btih:A3870F854DA40EB26F70643AE00AE61AC600067D
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232473.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232473.jpg" />
 </div>
 
 
@@ -591,7 +615,7 @@ magnet:?xt=urn:btih:8CA23ED9BFB8B05DE7FCBBE8C98DF9D29AE66E58
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247869.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247869.jpg" />
 </div>
 
 
@@ -602,30 +626,6 @@ magnet:?xt=urn:btih:8CA23ED9BFB8B05DE7FCBBE8C98DF9D29AE66E58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9E47BBC20BF1BE5308F229090F0C5929816768E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836214   (252461) от 
-
-Военная приемка. Рособоронэкспорт (09.11.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расскажем как эта организация спасала отечественное оружейное производство и налаживала торговые связи между Россией и зарубежными странами, зрители программы увидят главных покупателей нашего вооружения, а также познакомятся с людьми, которые работают в этой структуре.Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8394796C9D0ACC5DC27A10BCD9B9FAE680E423B
 ```
 
 

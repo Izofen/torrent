@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109473.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Castle Rat - Into The Realm (2024) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109474.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Planeta Vina - Космический Mусорг (2024) [MP3|320kbps] <Post-Gru
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109475.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Smokie - Rock Away Your Teardrops (1996) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109485.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pain - I Am (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109491.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Kraftsport Mix 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109493.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109501.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pain - I Am (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109502.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Riot V - Mean Streets (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109523.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ U2 - Last Night On Earth (1997) Remastered, 2024, UMC [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109528.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Couch Slut - You Could Do It Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109554.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Take Offense - T.O.tality (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109556.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Higher - Hidden Places (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109561.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109563.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ ManDoki Soulmates - A Memory Of Our Future (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109568.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rossometile - Gehenna (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109569.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Maragda - Tyrants (2024) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109575.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Haunting Ghosts - Shadow Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109580.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0AB6FA3AB62E9C8A9DDBAF3FA302240E8FB639A7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109614.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109618.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ El Moono - The Waking Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109619.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bal-Sagoth - The Chthonic Chronicles (2006) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109621.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sails of Serenity - Eternal Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109622.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109627.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109631.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109633.jpg" />
 </div>
 
 

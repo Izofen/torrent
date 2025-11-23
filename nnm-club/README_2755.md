@@ -1,3 +1,87 @@
+###  Публикация: 449633   (75187) от 09.02.2012
+
+Американская история ужасов / American Horror Story (Сезон 1, полный (12)) (2011) [720p] WEB-DLRip [LostFilm]
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологический триллер, в центре сюжета которого терапевт и его жена, которые переживают не самый лучший этап в их супружеской жизни. Вместе с ребенком они переезжают в новый дом, который, как кажется, знает все их страхи и играет на них.
+ По сюжету терапевт Бен Хармон (Дилан Макдермотт) и его жена Вивьен (Конни Бриттон) переезжают в Сан-Франциско, чтобы начать новую (   Читать дальше...   )Жанр: Ужасы, Драма, ТриллерРежиссер: Брэдли Букер, Альфонсо Гомез-Рейон, Дэвид СемелАктеры: Конни Бриттон, Дилан МакДермотт, Таисса Фармига, Дэнис О’Хара, Джессика Лэнг, Фрэнсис Конрой, Александра Брекенридж, Ивэн Питерс, Кейт МараПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Студия "Кравец"Формат: mkvПродолжительность: 1 серия - 00:51:37, 2-11 серии ~00:42:00, 12 серия 00:52:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449684   (75194) от 09.02.2012
+
+[xbox360] Batman : Arkham City + DLC [ Region Free / RUS / GOD / Repack ] [Русский] (2011)
+
+>>След.
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем.
+
+ В зрелищных схватках Бэтмен будет использовать как уже оточенные до совершенства, так и новые приемы и способности. Жизнь в Аркхем Сити — это яростные битвы на улицах, напряженные шпионские миссии, захватывающие расследования, эпические сражения с суперзлодеями, в которых личность Бэтмена может раскрыться с неожиданной стороны.
+ Еще одним игровым персонажем «Batman: Аркхем Сити» станет очаровательная Кошка. У прекрасной супергероини будет собственная история, тесно переплетающаяся с похождениями Бэтмена, а ее умения, боевые приемы и экипировка подарят каждому совершенно новые ощущения (   Читать дальше...   )2011Жанр: Fantasy Action AdventureЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9178F994ABB98E0DE7A1DDD5224BBB14C53FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449287   (75196) от 09.02.2012
+
+[PS3] Flower [PSN] [RUS] (2009)
+
+>>След.
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75196.jpg" />
+</div>
+
+
+###  Подробнее
+
+PlayStation Network представляет новую концепцию, которая существенно отличается от традиционных взглядов на компьютерные игры.
+
+thatgamecompany - создатели жанра, бросающего вызов flOw, - представляют вашему вниманию Flower. Эта игра продолжает добрую традицию: простой сюжет, доступное управление и возможность испытать эмоции, не столь и привычные для мира компьютерных игр.
+
+В игре Flower природа, обычно служащая лишь фоном для развития сюжета, выступает на первый план, становясь, в некотором роде, главным героем игры. Игроку дается возможность уйти от стрессов и волнений повседневной жизни и отправиться в странствия по красочному и живописному миру, любоваться красотами природы и разгадывать ее тайны.
+
+Игрок может стать ветром и играть лепестками цветов. Цели и маршрут путешествия меняются с каждым этапом, но все они связаны с полетом и взаимодействием с природой. Используя беспроводной контроллер SIXAXIS, игрок направляет полет лепестков и привносит перемены в пейзаж.
+
+Flower позволяет игрокам испытать различные (   Читать дальше...   )2009Жанр: Poetic AdventureЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 140676   (75204) от 09.02.2012
 
 Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискография [FLAC|lossless]<JPop,JUrban,R&B,Soul,Electropop,Eurodance,Techno,House>
@@ -6,7 +90,7 @@ Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискогр
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75204.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ SimplyMEPIS 11.0.12 [i586 + x86_64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75207.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75211.jpg" />
 </div>
 
 
@@ -92,7 +176,7 @@ The Cranberries - Tomorrow [Single] (2012) [MP3|256 kbps]<Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75213.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ Damian Marley - Mr. Marley (1996) [MP3|192-320 kbps]<Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75229.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ Epica - Design Your Universe (2009) (Japanese Edition) [FLAC|Lossless]<Symphonic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75241.jpg" />
 </div>
 
 
@@ -168,7 +252,7 @@ Epica - Design Your Universe (2009) (Japanese Edition) [FLAC|Lossless]<Symphonic
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75244.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ magnet:?xt=urn:btih:BB3F1D27C284FFA210A7E1C54CBE44C23E775D75
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75251.jpg" />
 </div>
 
 
@@ -220,7 +304,7 @@ magnet:?xt=urn:btih:54D52809C01953C41FA7DACCBD9A799998F848E1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75253.jpg" />
 </div>
 
 
@@ -244,7 +328,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75259.jpg" />
 </div>
 
 
@@ -277,7 +361,7 @@ Fleetwood Mac - The Dance (1997) [FLAC|Lossless]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75260.jpg" />
 </div>
 
 
@@ -310,7 +394,7 @@ Fleetwood Mac - The Dance (1997) [FLAC|Lossless]<Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75268.jpg" />
 </div>
 
 
@@ -343,7 +427,7 @@ magnet:?xt=urn:btih:950F6D61633CCFA4EE3A1D8499551BA1707CDF5B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75271.jpg" />
 </div>
 
 
@@ -367,7 +451,7 @@ magnet:?xt=urn:btih:44B047547953A212B9ED5BAFF1E5F4E112180412
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75277.jpg" />
 </div>
 
 
@@ -391,7 +475,7 @@ Nazareth - The NazBox, 4 CD Box Set (2011) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75286.jpg" />
 </div>
 
 
@@ -424,7 +508,7 @@ Nazareth - The NazBox, 4 CD Box Set (2011) [FLAC|Lossless]<Hard Rock>
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75288.jpg" />
 </div>
 
 
@@ -448,7 +532,7 @@ magnet:?xt=urn:btih:88DA35FC6FCC6A91CDD76FE312F82B1AC42F5A3D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75291.jpg" />
 </div>
 
 
@@ -472,7 +556,7 @@ magnet:?xt=urn:btih:683FDDC4CAAC6C3C28153851A86199D67769FA5B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75293.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ magnet:?xt=urn:btih:108B154C5F97B8816210EA6094C412F66D3C3933
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75294.jpg" />
 </div>
 
 
@@ -520,7 +604,7 @@ magnet:?xt=urn:btih:44FF55EE5C8477B2F801F2D7295C7E9E20DF7910
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75296.jpg" />
 </div>
 
 
@@ -544,7 +628,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75308.jpg" />
 </div>
 
 
@@ -568,7 +652,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75319.jpg" />
 </div>
 
 
@@ -592,7 +676,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75326.jpg" />
 </div>
 
 
@@ -603,81 +687,6 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEDF9D26AE2618A0B9D9C06CED95A3A01E64A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449688   (75328) от 10.02.2012
-
-Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, this stunning show captures Styx performing their classic multi-platinum seventies albums The Grand Illusion and Pieces Of Eight live in their entirety for the first time. These iconic albums established Styx as a globally successful rock band and defined the AOR genre for a generation of (   Читать дальше...   )The Grand Illusion
-01. The Grand Illusion
-02. Fooling Yourself (Angry Young Man)
-03. Superstars(   Читать дальше...   )Жанр: RockСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 01:41:31+00:29:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449996   (75331) от 10.02.2012
-
-Сначала любовь, потом свадьба / Love, Wedding, Marriage (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ева Далтон — успешный брачный агент, чья философия брака основывается на 30-ти летнем браке ее родителей, однако внезапно родители подают на развод, и это переворачивает мир Евы. Вместе с сестрой они решают во что бы то ни стало предотвратить развод родителей.Производство: США / Chydzik Media Group, First Wedding ProductionsЖанр: Мелодрама, КомедияРежиссер: Дермот МалруниАктеры: Мэнди Мур, Келлан Латс, Джеймс Бролин, Джейн Сеймур, Джессика Зор, Майкл Уэстон, Марта Жмуда, Ричард Рейд, Кристофер Ллойд, Алексис ДенисофПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA19484C9B41C97AE219AC86FF6EB7B9B340A0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449986   (75334) от 10.02.2012
-
-Дракула Брэма Стокера / Bram Stoker's Dracula (1992) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец XIX века, Лондон. Молодой юрист Джонатан Харкер и красавица Мина любят друг друга. Джонатан на время вынужден оставить невесту одну и отправиться по делам в Трансильванию к графу Дракуле, желающему приобрести недвижимость в столице Англии. Но Джонатан не знает, кто такой Дракула на самом деле…Жанр: Фэнтези, Драма, УжасыРежиссер: Френсис Форд КопполаАктеры: Гари Олдман, Вайнона Райдер, Энтони Хопкинс, Киану Ривз, Моника Беллуччи, Том Уэйтс, Ричард Э. Грант, Кэри Элвис, Билл Кэмпбелл, Сэди ФростПеревод: Дублированный, Многоголосый закадровый, АвторскийСубтитры: Английские, Русские (full), Русские (forced)Продолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ABF045CD3762C5751A86D7A78BA979EFD266C1
 ```
 
 

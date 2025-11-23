@@ -1,3 +1,182 @@
+###  Публикация: 1517005   (163421) от 14.12.2021
+
+VA - Christmas and New Year music xoxoxoxo (2021) 5CD [MP3|320 Kbps] <Pop, Rock, Christmas>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Rudolph The Red-Nosed Reindeer
+02. Jackson 5 - I Saw Mommy Kissing Santa Claus
+03. Kurt Elling - Cool Yule
+04. Boyz II Men,Brian McKnight - Let It Snow(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 22:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA962F1D0E2685C5441F9351C3B1FFCE8CC462FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598211   (163422) от 18.12.2022
+
+Comecon - The Worms Of God (2008) 2CD Reissued-2009 [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinhole View 03:31
+02. The Whole World 04:05
+03. God Told Me To 02:02
+04. Dipstick 03:58(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92975937625707A9006AFEDB4035416B98EA6EB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432513   (163423) от 17.12.2020
+
+Zombie Army 4: Dead War (2020) [Ru/En] (2.02/dlc) Repack Other s [Super Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zombie Army 4: Dead War — орды под предводительством Гитлера возвращаются за добавкой в новом леденящем кровь шутере от создателей Sniper Elite 4! Жуткие демонические враги, эпическое оружие и невероятная новая кампания для 1−4 игроков в духе Европы 1940-х. Сразитесь с нежитью и не дайте человечеству погибнуть!Тип издания: RepackРазработчик: RebellionЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C718BDF9A829BD27537486901D5EB14B26C08EB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673807   (163424) от 03.11.2023
+
+Дженн Граннеман, Андре  Соло | Сверхчувствительность как суперсила (2023) [MP3, Мария Ермакова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверхчувствительные люди переживают всё острее: плачут от счастья, страдают от критики, быстро устают. Вдобавок они часто сталкиваются с непониманием: окружающим кажется, что те просто драматизируют. Но Дженн Граннеман и Андре Соло уверены, что чувствительность – дар сродни суперсиле, ведь сверхчувствительные люди способны проявлять большую эмпатию, обладают развитой (   Читать дальше...   )Жанр: ПсихологияИздательство: Альпина ДиджиталПродолжительность: 07:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28394F8A2A73E19864DCB0EFBC906A3C9130759D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346499   (163425) от 19.12.2019
+
+Максим Керн | Закон Мерфи (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Математик».
+
+Продолжение приключений Ксандра Нолти и его друзей. Академия Таруна встретила его неласково, обучающиеся в ней дети высших аристократов приняли наследника рода Нолти в штыки. Но разве какие-то три смертельные дуэли в первый же вечер смогут остановить математика из нашего мира на пути к его цели?Жанр: Боевое фэнтези, Героическое фэнтези, Магические академии, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC987B859F6AC2CF24DDECA978758A0A9498B893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517281   (163426) от 14.12.2021
+
+Меган Мак-Катчен | Прокачай самооценку. Как победить неуверенность в себе и жить свободно (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа, друзья, взрослые, соцсети очень часто влияют на то, каким ты себя видишь и что ощущаешь. В этом практическом руководстве представлены интересные творческие задания, которые помогут мыслить позитивно, избавиться от неуверенности и научиться любить себя. Более 50 упражнений (анкеты, тесты, чек-листы и многое другое) помогут научиться ставить цели и понимать, (   Читать дальше...   )Жанр: Педагогика/Воспитание детей/ПсихологияПеревод: Василия ГороховаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86C31CAF8DDBB3ECEBC170FBAB8A2216CD2F8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598254   (163427) от 18.12.2022
+
+Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (2e partie) [2:21]
+02. I Can't Give You Anything But Love [2:23]
+03. Artillerie lourde [4:18]
+04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 625347   (163428) от 17.12.2020
 
 Яков Перельман | сборник в 54 книгах [1919-2010] [FB2, DJVU, PDF]
@@ -6,7 +185,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163428.jpg" />
 </div>
 
 
@@ -32,7 +211,7 @@ magnet:?xt=urn:btih:440E299E6954CC8272B245B21F44E8DFD5AC63C5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163429.jpg" />
 </div>
 
 
@@ -59,7 +238,7 @@ Sandboxie 5.33.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163430.jpg" />
 </div>
 
 
@@ -83,7 +262,7 @@ Pale Moon 29.4.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163431.jpg" />
 </div>
 
 
@@ -107,7 +286,7 @@ SamDrivers 20.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163432.jpg" />
 </div>
 
 
@@ -133,7 +312,7 @@ Biwo - Life And Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163433.jpg" />
 </div>
 
 
@@ -160,7 +339,7 @@ magnet:?xt=urn:btih:7CC05D2424F7CD061C8674555FE44AFC11946A48
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163434.jpg" />
 </div>
 
 
@@ -184,7 +363,7 @@ Richard Marx - Stories To Tell (2010) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163435.jpg" />
 </div>
 
 
@@ -211,7 +390,7 @@ magnet:?xt=urn:btih:FD98F67C52C2234E84607CAFBB335B016B23CEA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163436.jpg" />
 </div>
 
 
@@ -235,7 +414,7 @@ Serviio Pro 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163438.jpg" />
 </div>
 
 
@@ -260,7 +439,7 @@ Paste 2.5.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163439.jpg" />
 </div>
 
 
@@ -284,7 +463,7 @@ magnet:?xt=urn:btih:E6C6A1C2956D287DD56612B80ACFFBBE770AEF61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163440.jpg" />
 </div>
 
 
@@ -308,7 +487,7 @@ AudFree SpoDable for Mac 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163441.jpg" />
 </div>
 
 
@@ -332,7 +511,7 @@ magnet:?xt=urn:btih:D34ED1D7E68215F6980FC4EB0788DFB1963D1C4C
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163442.jpg" />
 </div>
 
 
@@ -356,7 +535,7 @@ Grim Comet - Winter of Hate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163443.jpg" />
 </div>
 
 
@@ -383,7 +562,7 @@ magnet:?xt=urn:btih:62623A4C3F9878ABE0F0526C9F4DAE2018ABA81D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163444.jpg" />
 </div>
 
 
@@ -410,7 +589,7 @@ magnet:?xt=urn:btih:B6C7EC5DE0E62EA499B7466E74915270A49F36DA
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163445.jpg" />
 </div>
 
 
@@ -434,7 +613,7 @@ magnet:?xt=urn:btih:CC2F44133FBBA22A287DD51F5A4F866AA88EC330
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163446.jpg" />
 </div>
 
 
@@ -458,7 +637,7 @@ Ritual King - Ritual King (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163447.jpg" />
 </div>
 
 
@@ -472,185 +651,6 @@ Ritual King - Ritual King (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues, Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1DD6B7B5465032EF4AB730A31F60C7859AA0F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346456   (163448) от 19.12.2019
-
-Европа с высоты птичьего полета / Europe From Above (2019) HDTVRip [H.264/1080i-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Европа с высоты птичьего полета" берет вас с собой в воздушное путешествие над Германией, Италией, Голландией, Польшей, Испанией и Великобританией, чтобы показать самые лучшие культурные и географические особенности Европы так, как вы еще никогда не видели их прежде. Удивительно качественная ускоренная аэросъемка позволяет зрителю за считанные секунды (   Читать дальше...   )Производство: Великобритания, Windfall Films, National Geographic ChannelЖанр: Документальный, история, природа, путешествияРежиссер: Диди Ми ХендПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40A653493DB7720C95D87738D8F9FE5D5A3A17F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516892   (163449) от 14.12.2021
-
-Книжная серия | Мышьяк и кружево [23 книги] (2000-2002) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мышьяк и кружево - серия детективных произведений зарубежных писателей.
-Произведения в серии представлены, в основном, циклами.
-Дороти Кэннелл - настоящий мастер уютного детектива и мягкой иронии. В тихом английском городке живет главная героиня ее детективов - неугомонная Элли Хаскелл... Элизабет Питерс - это всегда загадка, мистика и... немножечко иронии. В ее (   Читать дальше...   )Жанр: Детектив. ТриллерПеревод: Е. Е. Ивашина,  И. М. АлюковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85AF7EA9C84EF46FDEB02CBDB073729939B2D0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673940   (163450) от 03.11.2023
-
-Telegram Desktop 4.11.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425D3764B494AB14D1CED9B2612C3DB868DF5EBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598157   (163451) от 18.12.2022
-
-STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Катабасис [00:03:07]
-02. Экстирпация [00:04:36]
-03. Вера [00:04:25]
-04. Кровоточие [00:03:56](   Читать дальше...   )Жанр: Gothic Metal, IndustrialПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517102   (163452) от 14.12.2021
-
-Красная плесень - Памяти В. Цоя (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А может это сон (remaster)
-    Первая публикация - альбом «21.12.2012»
-02. Электричество
-     Из альбома «ГОСТ 59-2019» - «ЭлектричествоЖанр: RockПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B36E3F1481C7B89BB0D431E8A6EB2521277511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346586   (163453) от 19.12.2019
-
-Владимир Зак, Яков Длуголенский | Шахматы для детей (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Зак – известный советский шахматист, талантливый педагог, заслуженный тренер СССР. Более 40 лет он преподавал в шахматном клубе Ленинградского Дворца пионеров. Именно его называет своим первым учителем чемпион мира Борис Спасский.
-Яков Длуголенский – замечательный детский писатель, прозаик, историк, член Союза писателей России, лауреат ряда литературных (   Читать дальше...   )Жанр: Познавательная и обучающая литература для детей, ШахматыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA85FE24558CC2228F27235BDBB6E5855A7875D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673841   (163454) от 03.11.2023
-
-Евгений Сухов | Дела следователя Воловцова (Книга 1). Гиблое дело (2023) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163454.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Рязани убита генеральша Безобразова и ее горничная. На третий день после происшествия в полицейское управление явился человек, заявивший, что именно он совершил двойное убийство. После проведенного следствия выяснилось, что он оговорил себя. Под подозрение попадает племянник генеральши.Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411758C46FE144498209EC840F055D9F0B926A2D
 ```
 
 

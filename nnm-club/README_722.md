@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19096.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Office Installer & Office Installer+ 1.26 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19097.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reignbreaker (2025) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19098.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19099.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:ADC95064EF07B7A9D9E1D4481EA0F52E0CA20E6D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19100.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:34BCDC512E1EF3C5184A5C1A48F399136280BA56
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19101.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.06.1107.01/dlc) Repack Dec
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19102.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack Decepticon [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19103.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19104.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:40CD0032A5F16D131B8AFB946F62D02F2BC7FA9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19105.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19106.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19107.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Telegram выбыл из топ-5 самых безопасных мессенд
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19108.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Telegram выбыл из топ-5 самых безопасных мессенд
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19109.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:7D095D605FCBA7E84FB5C2AC95F5ADD7202A0F80
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19110.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:77D63324A7864578CDD7D8CB8E11AAA2EDEE9A03
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19111.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19112.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19113.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:AF1B8DBC43DE62B5431815132373D9564123AE3A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19114.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B3B4F180121541CDBF2189CF3A8782BB4102224B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19115.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:52E8A91F21BD8E97C8BCFC2B86BFAB31875B04B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19116.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F904E565F6F9F72E5E7268E3EC663BC8154DB927
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19117.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-885/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19118.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19119.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:83C569F72B6796A5A4B8C801F93D615FA83BC391
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19120.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:4FB717C566E03D02ED3E778FF888CC73CC64255F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19121.jpg" />
 </div>
 
 

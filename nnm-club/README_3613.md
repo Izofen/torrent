@@ -1,3 +1,80 @@
+###  Публикация: 1706365   (113620) от 12.03.2024
+
+Михаил Волконский | Горсть бриллиантов (2015) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
+Рассказ-быль «Горсть бриллиантов» повествует о том, как молодой человек, простодушный и чистый сердцем дворянин (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий рассказ-быльИздательство: Нигде не купишьПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6623F0556181C655D5372BF6C07E0B7FB01B1F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706229   (113621) от 12.03.2024
+
+Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat for Oracle — идеальное решение для администрирования и разработки Oracle, которое позволяет создавать, редактировать базы данных, выполнять SQL-запросы и проще подключаться к удаленному Oracle. Он имеет интуитивно понятный графический интерфейс и предлагает мощные визуальные инструменты, такие как редактор запросов с возможностью подсветки синтаксиса.
+Предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6E25B966B8BCAEDF4AB29A5112819EA072416B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706354   (113622) от 12.03.2024
+
+Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What If [8:02]
+02. Isfahan [6:14]
+03. Teo [6:05]
+04. Daydream [9:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A253AB56CC345EB8E27CDB72C7BFD07E7F7CCF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706248   (113623) от 12.03.2024
 
 Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +83,7 @@ Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113623.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113624.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113625.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Notebooks – Write and Organize 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113626.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ EazyDraw 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113627.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Piezo 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113628.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113629.jpg" />
 </div>
 
 
@@ -185,7 +262,7 @@ Keep It 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113630.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113631.jpg" />
 </div>
 
 
@@ -236,7 +313,7 @@ Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113632.jpg" />
 </div>
 
 
@@ -263,7 +340,7 @@ Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113633.jpg" />
 </div>
 
 
@@ -290,7 +367,7 @@ magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113634.jpg" />
 </div>
 
 
@@ -314,7 +391,7 @@ Navicat for Redis on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113635.jpg" />
 </div>
 
 
@@ -339,7 +416,7 @@ magnet:?xt=urn:btih:6AAF50DCD6D0A71B55C0D5B3608C1638F6BC62BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113636.jpg" />
 </div>
 
 
@@ -363,7 +440,7 @@ Pathmaker - Something More (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113637.jpg" />
 </div>
 
 
@@ -390,7 +467,7 @@ iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113638.jpg" />
 </div>
 
 
@@ -414,7 +491,7 @@ Crimson Crux - Teenage Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113639.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ magnet:?xt=urn:btih:D888E1E0F3D02A99E823D4FE5ADBB2B9C93F9D6D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113640.jpg" />
 </div>
 
 
@@ -465,7 +542,7 @@ magnet:?xt=urn:btih:44A9A37CAAFE0DF48B96715991D015A4D93320ED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113641.jpg" />
 </div>
 
 
@@ -491,7 +568,7 @@ S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113642.jpg" />
 </div>
 
 
@@ -518,7 +595,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113643.jpg" />
 </div>
 
 
@@ -544,7 +621,7 @@ Black Electric - Late Night Lightning (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113644.jpg" />
 </div>
 
 
@@ -571,7 +648,7 @@ S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113645.jpg" />
 </div>
 
 
@@ -585,84 +662,6 @@ A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706279   (113646) от 12.03.2024
-
-Stash for Mac 2.5.6 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stash — это многопротокольный прокси-клиент на основе правил для платформы iOS/macOS. Он полностью совместим с конфигурацией Clash Premium и поддерживает правила набора правил, подключения по требованию, группу политик SSID, MitM, анализ HTTP, перезапись сценариев JavaScript и другие богатые функции. Это лучший выбор для правил Clash на платформе iOS. Stash использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2023Разработчик: © 2024 Stash Networks LimitedПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25563CABD09EDE4B9AA81F63CF639B43307F879B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706318   (113647) от 12.03.2024
-
-John A. Showler - Swinging Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Life (3:51)
-02. Swinging Doors (3:23)
-03. Nothing Changes (5:39)
-04. Elige Vitam (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84324561B6429E24944F9FAE84013ECB846B1D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706201   (113648) от 12.03.2024
-
-Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uptown Jazz (3:28)
-02. Time Travel (4:11)
-03. Peace In The Melody (3:13)
-04. Funky Smooth (2:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
 ```
 
 

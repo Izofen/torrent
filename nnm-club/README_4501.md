@@ -1,3 +1,129 @@
+###  Публикация: 1088439   (139282) от 31.12.2016
+
+VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Suanda Music (Intro) 0:52
+02. Roman Messer feat. Christina Novelli - Frozen (LTN Sunrise Remix) 5:21
+03. Kayat feat. Clare Stagg - The Calling (Denis Kenzo Remix) 8:19
+04. Feel - Did We Feel (Frainbreeze Progressive Dub Mix) 4:39(   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AF68B07CF5161C5EDF35A5F6630E239A481F20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520856   (139283) от 30.12.2021
+
+VA - Best of 2020 Desert Hearts Black (2021) [AAC|~312 Kbps] <Melodic House & Techno, Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marbs, Rinzen, Evan Casey - Ark (8:07)
+02. Tim Engelhardt - Transmission 27 (6:42)
+03. Anakim - Poseidon's Revenge (7:16)
+04. Marbs - Something for Nothing (8:21)(   Читать дальше...   )Жанр: Melodic House & Techno, Progressive House, Deep HouseПродолжительность: 02:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB9924DF35BD441A0558F66E17C83F9F68EF2D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349083   (139284) от 30.12.2019
+
+Картинки - Обои и календарь на 2020 год [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы приготовили для вас праздничные обои и календарь со снегурочками — качайте и устанавливайте на рабочий стол нужную картинку в нужном разрешении. С наступающим Новым годом!Формат: JPGРазрешение файлов: 1280x720-4096x2100
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AE3403CEB8F987C6CF2508BCF1B851F2F16958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195756   (139285) от 30.12.2017
+
+Джон Уик 2 / John Wick: Chapter Two (2017) HDRip [H.264] [MP4|1920x800]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: США, 87Eleven, Lionsgate, Summit Entertainment, Thunder RoadЖанр: Боевик, Триллер, КриминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчио, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоуренс Фишборн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный (Лицензия)Субтитры: Русские (полные), Английские (полные)Продолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897ECC6CE4263EDFEE783113B322542408BC463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970706   (139287) от 31.12.2015
+
+В. В. Бибихин | Узнай себя (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139287.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новую книгу входит семестровый курс, прочитанный на философском факультете МГУ в 1990 г. Его темы: двусмысленность самопознания, могущего оказаться бегством от самого себя; попытка прочтения однобуквенной надписи Е на фронтоне храма Аполлона Пифийского в Дельфах в связи с посвященными этой надписи стихами Вяч. И. Иванова; Артур Шопенгауэр о древней формуле это (   Читать дальше...   )Жанр: Философия, религияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0587E6174331B1A6D66BA3464D2A5BA956E51B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970702   (139289) от 31.12.2015
 
 Федор Кудрявцев | Повесть о моей жизни (2014) [FB2]
@@ -6,7 +132,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139289.jpg" />
 </div>
 
 
@@ -30,7 +156,7 @@ magnet:?xt=urn:btih:4AC53AB77252970D137DD5AC2212E66AB4E16826
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139290.jpg" />
 </div>
 
 
@@ -54,7 +180,7 @@ magnet:?xt=urn:btih:2DB1ED8A594C204D7E5D04745DDC33A2CAE64A25
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139291.jpg" />
 </div>
 
 
@@ -78,7 +204,7 @@ magnet:?xt=urn:btih:0289662B040DBE2E275101A45F5D47B73E0958BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139292.jpg" />
 </div>
 
 
@@ -102,7 +228,7 @@ magnet:?xt=urn:btih:B129245DFC5EB968526087ABA2334F05EACA602A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139293.jpg" />
 </div>
 
 
@@ -126,7 +252,7 @@ Total Commander 11.02 (23.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139294.jpg" />
 </div>
 
 
@@ -150,7 +276,7 @@ magnet:?xt=urn:btih:E9D1F1859D81B43A283D3AF50709B20F3FC4B5B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139295.jpg" />
 </div>
 
 
@@ -177,7 +303,7 @@ magnet:?xt=urn:btih:E9DA01D9D1A8243B87607677484D888ED8361C86
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139296.jpg" />
 </div>
 
 
@@ -202,7 +328,7 @@ magnet:?xt=urn:btih:4F1650D1335BFC53EBBB1F6DEE4B5A28A1361F23
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139297.jpg" />
 </div>
 
 
@@ -226,7 +352,7 @@ magnet:?xt=urn:btih:476E443861001CA7A45F490FE55B40697DAEC51F
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139298.jpg" />
 </div>
 
 
@@ -250,7 +376,7 @@ Chromium 73.0.3654.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139299.jpg" />
 </div>
 
 
@@ -274,7 +400,7 @@ Faderhead - Years Of The Serpent (2021) [AAC|~330 Kbps] <EBM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139301.jpg" />
 </div>
 
 
@@ -301,7 +427,7 @@ Psiphon 3 build 180 (23.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139303.jpg" />
 </div>
 
 
@@ -325,7 +451,7 @@ magnet:?xt=urn:btih:D925EC525B9AFD869374022844301C7CDDFDFAAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139305.jpg" />
 </div>
 
 
@@ -350,7 +476,7 @@ magnet:?xt=urn:btih:F827B1F7D11A9F929CCEC1C53AE7E6B12D843D0A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139306.jpg" />
 </div>
 
 
@@ -374,7 +500,7 @@ magnet:?xt=urn:btih:A027B7FEAEA9EC3917B1F7B5B5CE8D9A3059AEC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139307.jpg" />
 </div>
 
 
@@ -398,7 +524,7 @@ magnet:?xt=urn:btih:0F8BDBA788FB11B04CFD026C6550B926512BE3E6
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139308.jpg" />
 </div>
 
 
@@ -424,7 +550,7 @@ VA - Best of 2021 Desert Hearts Black (2021) [AAC|~327 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139309.jpg" />
 </div>
 
 
@@ -451,7 +577,7 @@ magnet:?xt=urn:btih:CB6F72A9259ABF1280E5F79B2007C1C00C968490
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139311.jpg" />
 </div>
 
 
@@ -475,7 +601,7 @@ VA - Gateways, Vol. 1 (2020) [AAC|~318 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139312.jpg" />
 </div>
 
 
@@ -502,7 +628,7 @@ Infostart | Tech Event (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139313.jpg" />
 </div>
 
 
@@ -516,132 +642,6 @@ INFOSTART EVENT 2023 - 13-я конференция по управлению и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD5FDA682FF522DC486415D193049EADB1B5D2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435982   (139314) от 30.12.2020
-
-VA - Say, Turn It Up! (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Trip>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139314.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной компиляции,неформат,андеграунд и реалии нашего времени! Очень разнообразный саунд под лирический трип-речитатив и широкий спектр тематики для взыскательных музыкальных предпочтений!001. Dirt Vonnegut - 1000 Ways To Die
-002. Visual Visions - Airwalk
-003. Mr.Mono - Never Sleeps
-004. 2 Chainz - Southside Hov(   Читать дальше...   )Жанр: Hip-Hop, Rap, TripПродолжительность: 08:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE9CEF1649CDF4549A637903C235B89B3FCFEAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195691   (139316) от 30.12.2017
-
-Тайна 7 сестер / Seven Sisters (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях — каждая в свой день. Но однажды Понедельник пропадает…Производство: Великобритания, Франция, Бельгия, СШАЖанр: фантастика, триллерРежиссер: Томми ВирколаАктеры: Нуми Рапас, Марван Кензари, Уиллем Дефо, Роберт Вагнер, Гленн Клоуз, Лара Дэкаро, Пол Сверре Валхейм Хаген, Адетомива Едун, Кристиан РубекПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5400D9BF9F3BB280886A8014AF4720AFDB965E2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970614   (139317) от 31.12.2015
-
-В. Татаркевич | Античная эстетика (1977) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги на большом фактическом материале даёт систематическое изложение эстетических учений античности, начиная с периода архаики вплоть до эпохи эллинизма. Не ограничиваясь общей философской эстетикой, исследователь рассматривает также воззрения теоретиков искусства, теорию поэзии, музыки, пластики, архитектуры, даёт анализ эстетического смысла художественной (   Читать дальше...   )Жанр: История, философия, эстетика, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F09501C1F841D60EB484BF2F5AD11582DC1F98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591104   (139319) от 18.12.2012
-
-Рисованная графика - Artworks by Greenfeed
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Greenfeed.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6ECE2AB741046F26889F4A3C915673FD5BCA15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520921   (139320) от 30.12.2021
-
-VA - UNDERGROUND VIBES Compilation (2021) [AAC|~313 Kbps] <Tech House, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter & Verse - Dreams (5:39)
-02. Kala'An - Envision (Club Mix) (7:14)
-03. David Penn, KPD - Why Don't (6:19)
-04. Jo Crimaldi - Like Somebody (5:45)(   Читать дальше...   )Жанр: Tech House, HouseПродолжительность: 04:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5323252510D1F85666C4F50E56CD72739A30613
 ```
 
 

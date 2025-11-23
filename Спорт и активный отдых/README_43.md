@@ -6,7 +6,7 @@
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142680.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0A3DAADCA32CF6FF60E8970EFF4C8234C9DC2A05
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142729.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:86CDB8821FC890341D58CC903C6207E82C6BF059
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142848.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8114A41DA549480B781CB940E3E00BF8E3DE8F2B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142862.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:F873F26009E771B0E04023277C48E27812E782FA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142896.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2410E8E0EC40518C67050E230A5363A888EF19C6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142904.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:2522B69956CC961F738FF5CC70717AB34AF6B765
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142968.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:6AC27D10235B9B5F8EFCA959B3557078034E24E7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142980.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A5319117A46DE7B635966DCADC4BC514A9ACB56C
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144393.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:908A6851A733E5035EAED225567340A625BAFEF5
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144413.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9A4FE4C5E9E840B2F7BAA72D486712F32C9C5674
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144509.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2624C3D9A309D6A8A1D58CFC54FE3705AE51E68F
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144536.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:293ECFB7EEC1D6A4BE154C06CEF96995D8BF46F1
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144559.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:80423DCFF5D6FBE2AF5F47DFAE1016C5E74C1F4F
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144566.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E20F4BFDA7F5DD27D5EE76F9CD249A9DC28819A8
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144581.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:A72FEB42671DAD3AD366C5727BEB395C4D170F71
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144595.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:8DE12255B30E22887EC36CF20EEDD40D42C6D954
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146583.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:9C2C674BA30B900C7E453419D582B5217659B90C
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146619.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:667E80202E23F5C889225A0992AFC2F799D25966
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146645.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:16C49F52156396C0535439CBF830AD86630E9B13
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146727.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:DBF2C809FE293062ED9AA3AC53168930C6E6989C
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146732.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:236B57463A261D9E47E542916C2BE80C1E77B15E
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146785.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:BF14630DD72C389A1016258BD94AB45029162D71
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146802.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:35EF03CA228CAEFD54A8F2D445AD523744C2F395
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146993.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ MotoGP. Этап 19. Гран-при Катара. Гонка (19.11.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147623.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Winsor Pilates (ENG) - это революционная система трен
 >>Гимнастика, Бодибилдинг, Красота тела
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147983.jpg" />
 </div>
 
 

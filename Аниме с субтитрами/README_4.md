@@ -6,7 +6,7 @@ Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Аквари
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [2024, TV, 25 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23364.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23380.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Magic Maker: Isekai Mahou no Tsukurikata / Magic Maker: How to Make Magic in Ano
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23467.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Grisaia: Phantom Trigger the Animation / Грисайя: Призрачный с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23469.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Re: Жизнь в альтернати
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23497.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Amagami-san Chi no Enmusubi / Tying the Knot with an Amagami Sister / Брачн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23500.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23577.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23577.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23607.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Ao no Exorcist: Yosuga Hen | Blue Exorcist: The Blue Night Saga | Синий э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23661.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai | Medaka Kuroiwa is Impervious 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23684.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23711.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kisaki Kyouiku kara Nigetai Watashi | I Want to Escape from Princess Lessons | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23772.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23791.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23895.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23997.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24131.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24208.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24420.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24427.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26106.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27279.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27484.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27530.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28103.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29225.jpg" />
 </div>
 
 

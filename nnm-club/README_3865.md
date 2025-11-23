@@ -1,3 +1,76 @@
+###  Публикация: 1695750   (120172) от 30.01.2024
+
+Хэнкок / Hancock (2008) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть герои, есть супергерои, и есть Хэнкок. Обладание сверхспособностями предполагает ответственность, все знают это — кроме него. За любую задачу он берётся с душой и лучшими намерениями, спасает жизни людей — ценой нечеловеческих разрушений и неисчислимого ущерба. В конце концов, терпение общественности подходит к концу: люди благодарны своему местному герою, но (   Читать дальше...   )Производство: США / Columbia Pictures, Relativity Media, Blue LightЖанр: фантастика, боевик, драма, комедияРежиссер: Питер БергАктеры: Уилл Смит, Шарлиз Терон, Джейсон Бейтман, Джей Хед, Эдди Марсан, Дэвид Мэтти, Метрикс Фиттен, Томас Леннон, Джонни Галэки, Хейли НорманПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full)Продолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638D4F7E2983F065AD5FA6C57823C60C73051C4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695559   (120173) от 30.01.2024
+
+Смерть среди айсбергов / Orca / The Killer Whale (1977) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Нолан никогда не задумывался о том, какой непоправимый вред он наносит живой природе. Он просто делал то, что у него получалось лучше всего, — убивал. Выходил в море и убивал китов. Однажды он вытащил из воды самку кита. Она погибла, а вместе с ней погиб и её не успевший родиться детёныш.
+Трагедия произошла на глазах кита-самца. А косатки — однолюбы по своей (   Читать дальше...   )Производство: США, Нидерланды, Италия, Канада / Famous Films (II), Dino De Laurentiis CompanyЖанр: ужасы, триллер, драма, приключенияРежиссер: Майкл АндерсонАктеры: Ричард Харрис, Шарлотта Рэмплинг, Уилл Сэмпсон, Бо Дерек, Кинэн Уинн, Роберт Кэрредин, Скотт Уолкер, Питер Хутен, Уэйн Хэффли, Винсент Джентиле и др.Перевод: Дублированный (Ленфильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389DDF6695358DFEA9DD2AF8A2CAC753CF9FAAFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695814   (120174) от 30.01.2024
+
+Умнее, чем я (2023) WEBRip [H.264] (сезон 1, серии 1-5 из 5)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прожигатель жизни и мажор, сын олигарха Василий уверен, что в любой сложной ситуации его спасут папины деньги и голосовой помощник в дорогом смартфоне. Но однажды папе надоедает содержать бестолкового повесу, а глупый несчастный случай приводит к невероятному: сознание Васи переселяется в телефон, а голосовой помощник — в его тело. И именно сегодня Васе надо срочно (   Читать дальше...   )Производство: Россия / Okko Studios, МКПЖанр: фантастика, комедияРежиссер: Константин КолесовАктеры: Кирилл Ковбас, Ангелина Пахомова, Анатолий Кот, Юлия Яблонская, Мария Смольникова, Александр Стефанцов, Павел Рассомахин, Полина Райкина, София Козинцева, Антон СавватимовСубтитры: отсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617CA66962B3FB3BB043A9EB5EBC747D614AC8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695836   (120175) от 30.01.2024
 
 Эндрю Тейлор | Огненный суд (2024) [FB2]
@@ -6,7 +79,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120175.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ TechSmith Camtasia 23.4.2 (Build 51146) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120176.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ magnet:?xt=urn:btih:68D85199B80DBAD8490B0681CEA8F70E50A552BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120177.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Total Commander 11.03 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120178.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:43527E1D933D2FAF8C2BA177BB44E7FBA1BA350C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120179.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:3E372E916DE3E87B5B2362836BCB6E64BF58649D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120180.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:FD07C37737C0296CE935C59883E25817BD150E6F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120181.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120182.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120182.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120183.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ magnet:?xt=urn:btih:927BB5604AD69FFCE8BB6FBBA7E9F9A8EF9C4D14
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120184.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Ripple Training, Mark Spencer | Advanced Color Grading in DaVinci Resolve 17/18 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120185.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:61562D0E538B77904B736016F70C5339D0EBC7DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120186.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Malwarebytes AdwCleaner 8.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120187.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ magnet:?xt=urn:btih:10498A6204C71D92D6A7A152D439A8B60D558DCA
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120188.jpg" />
 </div>
 
 
@@ -352,7 +425,7 @@ magnet:?xt=urn:btih:70DBB82DB8C50DDECF3D846F49808EFC5F384B9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120189.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120189.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ magnet:?xt=urn:btih:70DBB82DB8C50DDECF3D846F49808EFC5F384B9F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120190.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ magnet:?xt=urn:btih:99826CBCD2BF0A4628FA60BE711641C221813CF9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120191.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ RUTUBE - видео, шоу, трансляции 28.16.1.TV-androidtv Mod by N3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120192.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:128663686EAA74CF66DA053DCE8FAF914F1B7A25
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120193.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120194.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ Adobe Illustrator 2024 28.2.0.532 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120195.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ magnet:?xt=urn:btih:F5A7161531E00BE57BDF30B4511896A77F5FCD79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120196.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ magnet:?xt=urn:btih:AB68481B69908BE4F686778637ECA93F124BB547
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120197.jpg" />
 </div>
 
 
@@ -557,81 +630,6 @@ magnet:?xt=urn:btih:AB68481B69908BE4F686778637ECA93F124BB547
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51792652C27F5958B4FC9ADCDF8E1BEC76ABC35E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695717   (120198) от 30.01.2024
-
-Keka 1.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архиватор для macOS. Как Unarchiver и другие приложения, Вы можете выбрать Keka в качестве приложения по умолчанию, что позволит распаковывать архивы двойным щелчком мыши. Кроме того, распаковать архив можно путем перетаскивания его на значок приложения в Dock. Это позволит автоматически разархивировать содержимое. То же самое можно проделать и обратным процессом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2009 - 2024 aONeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CE098ECC73540095D143F3F184C2020409058C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357716   (120199) от 30.01.2024
-
-Карло Гольдони | Бабьи сплетни (Радиоспектакль) [2003] [MP3, Юрий Яковлев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Всемирная аудиобиблиотека
-Блистательная комедия Карло Гольдони, полная юмора и сарказма, в очередной раз доказывает правоту устоявшихся мнений, что «женщины, безусловно, умеют хранить тайну, но сообща» и, «что дружба двух женщин – всегда заговор против третьей»…
-
-Запись 1957 года из архива «Гостелерадиофонда».Жанр: Классика, комедияВ ролях: Юрий Яковлев, Николай Светловидов, Ростислав Плятт, Ольга Якунина, Борис Иванов, Ангелина СтепановаИздательство: ИД «Союз»Продолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F91B2ED06017A4C14F15710A5C9516DC157887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695678   (120200) от 30.01.2024
-
-Windows 10 Debloater 2.6.7 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6197CC6F60E067587CB2A782381214914ED684
 ```
 
 

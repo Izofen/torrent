@@ -6,7 +6,7 @@
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167975.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168200.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168244.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Ру�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168482.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168515.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168752.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contempo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168819.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169343.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [MP3|320 Kbps] <Latin, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169734.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169782.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthp
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169837.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169849.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169859.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фол�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170318.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фоль�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170355.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170423.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170462.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Emma Swift - Blonde On the Tracks (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170613.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170836.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171714.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:1DB4ECF692B644B03D87B852AE0290DFD35A7B6D
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172542.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Геннадий Гладков. Обыкновенное Чудо (2002) �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172732.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172829.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173341.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173516.jpg" />
 </div>
 
 

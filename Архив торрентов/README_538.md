@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.6.5.635 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117481.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.02.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117484.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CCleaner 6.21.10918 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117487.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Snappy Driver Installer Origin R761 | Драйверпаки 24.01.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117489.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Acrobat Pro 23.8.20533 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117494.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ uTorrent Pro 3.6.0 Build 47012 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117498.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FL Studio Producer Edition 21.2.3.4004 (X64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117514.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ A Better Finder Attributes 7 v.7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117553.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Swinsian 3.0 Preview 13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117573.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ XYplorer 25.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117598.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Money Pro - Personal Finance 2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117603.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Topaz Video AI for Mac 4.1.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117641.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Icecream Slideshow Maker PRO 5.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117645.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Skype 8.112.0.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117650.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ QOwnNotes 24.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117662.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ableton Live Suite 12 Beta 12.0b28 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117669.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ IceCream Ebook Reader Pro 6.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117671.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Vivaldi 6.5.3206.63 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117677.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Polarr v6.8.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117682.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:FC794A00CD9DEC1446AFF0C417C33CAA01E4A9C9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117683.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DiskDigger 1.139.223.3793 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117688.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Winaero Tweaker 1.62.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117691.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Tablacus Explorer 24.2.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117697.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FurMark 1.38.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117700.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ CCleaner 6.21.10918 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117708.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ uTorrent Pro 3.6.0 Build 47012 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117710.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80569.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:773F4535EC7DC5898EE24574F351EEE6B2DCA427
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84860.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1EAC0BEBE7820B3F99B961DA851277397D8FC21E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87019.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AA5B96AFBDBA2ECBFE4BCB9DBE263DAFFFF7FD50
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87378.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0BB971C106308B17080586C1254985D7EDEF91DF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87399.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9D8EEC4B7F9F55E054AB9C5964FCC2CB5D72AC69
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87543.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B100C99A8948A2E0D8C7536765436A9A9822E167
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88264.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BDA9E66C98A22324E773C5086ED39F597BD4286E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88420.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:DA0364D4ED4721D81C145291A4A90502F619147E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89196.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ NG: Омар-монстр / Monster lobster (2000) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90407.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D0D0D53D73A62656B453FF063C5B3F97976DAF1A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90443.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B848FBCAAE1C548C23C4EBB887CC73441EFC2B65
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95713.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96384.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C7522A962A99A1130C8F1B0EB924B71DE6F26AAE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98095.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98100.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:1E90B20E1745B830ED482240E7A7EB3D05D4743C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98104.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98258.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107029.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113501.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:7458F2ECDBA3DB290FEC2FD39F18F246FD301319
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117985.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:88A51EAE0F60DA4A6EF00129ADA77501164C55C3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120717.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A45D21F67293F86FA2D3CA4FCDB1B9EA93904C07
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123973.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:C92E3A36BD9FB826D0CF7B3462BE39658A7D298C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123981.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:CBBDFA05C82C3062CC4E6A5688BB9B402D2107C5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124375.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:99A565FCB6DA06AAF3EED4653D03E9386A0097CF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124381.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D327E67FE548FDC7BACE135DE6C380480EF825BD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125216.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1729872   (107978) от 13.06.2024
+
+Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107978.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro
+A2 Hero In A Dream
+A3 Token Of Time
+A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729868   (107979) от 13.06.2024
+
+Bab L' Bluz - Swaken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedelic rock, folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imazighen [00:04:12]
+02. Wahia Wahia [00:04:07]
+03. Zaino [00:03:53]
+04. AmmA [00:04:20](   Читать дальше...   )Жанр: psychedelic rock, folkПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6ACA2DF28432AF8744429FECF2B8EDE6F7DA5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729927   (107980) от 13.06.2024
+
+Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cement Mixer [2:47]
+02. Just Once Too Often [3:08]
+03. Jay Gee [2:47]
+04. Sit Back and Ree-lax [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441771B80E539A5ED91AB1E8CB4FBAF211796074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729890   (107981) от 13.06.2024
 
 Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalcore, Death Metal, Chaotic Hardcore>
@@ -6,7 +87,7 @@ Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107981.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Hour of Penance - Sedition (2012) [FLAC|Lossless|image + .cue] <Technical, Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107982.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107983.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107984.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107985.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107986.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:9FA5DB3763A11C73193CB6D7AA7663BA275B4AB6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107987.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107988.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107989.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Hypersonic - Existentia (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107990.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107991.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107992.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psyc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107993.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107994.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ Gustaf Westin featuring AGFF - Piece by Piece (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107995.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107996.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107997.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107998.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107999.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108000.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108001.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108002.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108003.jpg" />
 </div>
 
 
@@ -613,87 +694,6 @@ Mortician - австрийская хэви-метал группа из Сат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729596   (108004) от 12.06.2024
-
-Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procrastinator (2:38)
-02. Boys Don’t Lie (4:57)
-03. Face Of Jimmy (3:23)
-04. Get It On! (3:21)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60256C0F45826A5DD7D56E74DD586E2D01A583A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729495   (108005) от 12.06.2024
-
-Fjaak - Fjaak The System (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unity [00:00:58]
-02. And You Feel [00:03:21]
-03. Redemption [00:05:23]
-04. Horsepower [00:03:35](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2737E59E16BA815683A2E11EB998A2A6BCE50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729712   (108006) от 12.06.2024
-
-Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Putting On the Ritz [00:02:24]
-02. Autumn in New York [00:03:22]
-03. Broadway [00:02:16]
-04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
 ```
 
 

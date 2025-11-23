@@ -1,3 +1,77 @@
+###  Публикация: 1432563   (164381) от 17.12.2020
+
+Battery Health 3 v1.0.25 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
+Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA2D11E73A7C8E73E48AD5AD040FC3ACC71C7A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517068   (164385) от 13.12.2021
+
+Tone2 - Saurus 3.0.0 STANDALONE, VSTi (x64) RePack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saurus 3 - синтезатор, основанный на технологии True Analog Modelling Technology, которая переносит классический аналоговый звук в цифровой мир с многочисленными инновационными усовершенствованиями. Были изучены и проанализированы схемы нескольких признанных синтезаторов для захвата уникальных характеристик и кривых отклика оригинального оборудования. Добавьте к (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D3F61F67CD725FE7555B155AA31DB44D5F3A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517067   (164395) от 13.12.2021
+
+Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maschine – это рабочая станция для создания битов со встроенным барабанным секвенсором, функциями семплирования и нарезки лупов, являющаяся самым актуальным на данный момент результатом инициативы Native Instruments по созданию гибридных аппаратно-программных инструментов.
+Программный компонент запускается как самостоятельное приложение или в качестве AU/VST/RTAS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Native Instruments GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5018B479C61BECDE122037725F1BD82F8B4A6E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432365   (164396) от 17.12.2020
 
 Big Sur Cache Cleaner 16.1.1 [En]
@@ -6,7 +80,7 @@ Big Sur Cache Cleaner 16.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164396.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ VueScan Pro 9.7.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164398.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Ashampoo Burning Studio 21.2.0.39 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164415.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Topaz Video AI for Mac 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164425.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ PhotoScape X Pro 4.1.1 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164426.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ EdgeView 3 v.3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164427.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Feeder 4 v.4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164432.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164443.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164444.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164452.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Skype 8.107.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164453.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ NCH DreamPlan Plus 5.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164463.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Wondershare PDFelement Pro OCR 10.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164464.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ Duplicate Photos Fixer Pro 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164467.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ Resume Templates - Design 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164473.jpg" />
 </div>
 
 
@@ -376,7 +450,7 @@ Blocs 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164475.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ Wondershare DVD Creator 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164477.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164478.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164480.jpg" />
 </div>
 
 
@@ -475,7 +549,7 @@ OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164488.jpg" />
 </div>
 
 
@@ -499,7 +573,7 @@ CorelDRAW Graphics Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164489.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ NoteBurner Spotify Music Converter 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164492.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ Disk Analyzer Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164495.jpg" />
 </div>
 
 
@@ -559,78 +633,6 @@ Disk Analyzer Pro - это гибкий инструмент для мгнове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B88AB64B9641C39B9D34E730760AE059E46E0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517056   (164505) от 13.12.2021
-
-Valentina Studio Pro 11.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF46E716F064348959E8F6FEA3F46BC0B60027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432362   (164508) от 17.12.2020
-
-Any RecScreen 2.0.55 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any RecScreen - это простая в использовании утилита записи экрана для Mac, которая позволяет записывать происходящее на  мониторе в полноэкранном режиме или в настраиваемой области. Вы можете записать веб-камеру для создания видео «картинка в картинке», добавив веб-камеру в область записи. Также может быть записан звук в ваших видео с микрофона или системного звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5922812672832984D6099846B2B3864C1021465F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432567   (164512) от 17.12.2020
-
-ImageRanger Pro Edition 1.7.8.1685 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164512.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 16.12.020Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15661795406DF4178D0BBB3E6DEFE84EC0B3BF35
 ```
 
 

@@ -6,7 +6,7 @@ VA - Magical Chilly Relaxing Tunes for Calm and Quiet Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Aperitivo Acid Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104578.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104579.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lowell Hopper - Impulse (2024) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104587.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104588.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104590.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Smoky Blues: Smooth Lounge Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104592.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Wild About You (Sexy Feel-Good Blues, Rock, Funk Mix) (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104593.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104600.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Acid Jazz Instrumentals Vol. 2 (Jazz Funk Breaks Instrumental Tunes) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104602.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Richard Elliot - Straight Up Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104605.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bob Brookmeyer & Bill Evans - The Ivory Hunters (1959) 2003, Toshiba-EMI [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104617.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Frank Wess - Wess Point (1954) 2007, Fresh Sound [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104701.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104737.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104751.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Colin James - Chasing The Sun (2024) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104764.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104797.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104800.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104802.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104892.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sonny Gullage - Go Be Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104910.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Gerry Hundt Trio - GET HIP! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104911.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Blues Indelebile Band - Live in Studio (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104917.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ SouthSide Tone Kings - Roll All Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104919.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104929.jpg" />
 </div>
 
 

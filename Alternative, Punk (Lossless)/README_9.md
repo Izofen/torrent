@@ -6,7 +6,7 @@ Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145717.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146028.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146127.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Loathe - 3 Albums / 2 EP (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146357.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rea Garvey - Hy Brasil (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146472.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147800.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147810.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149129.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soundgarden - Songs From the Superunknown (1995) EP [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150282.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soundgarden - Black Hole Sun (1994) Single [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150315.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Maggie Lindemann - I feel everything (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151401.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Chrissie Hynde - Duets Special (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151534.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Lit - These Are The Days (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152290.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152391.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152397.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156097.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156882.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156890.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159053.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159304.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Severals - Algorithm (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159588.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Be
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159669.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Iggy Pop - Apres (2012) 10th Anniversary Edition, 2022, GM Records [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159715.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Veer Union - Manifestations (2022) Deluxe edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162042.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Cure - Seventeen Seconds (1980) Fiction 825 354-2 [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162080.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162208.jpg" />
 </div>
 
 

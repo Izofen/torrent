@@ -1,3 +1,80 @@
+###  Публикация: 1695259   (120458) от 28.01.2024
+
+Миграция / Migration (2023) WEB-DL [H.265/2160p] [SDR, 10-bit] [UKR, EN / EN Sub] [Line]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Дэксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
+После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиАктеры: Кумэйл Нанджиани, Треси Газаль, Элизабет Бэнкс, Каспар Дженнингс, Изабела Мерсед, Дэнни ДеВито, Кэрол Кейн, Аквафина, Кигэн-Майкл Ки, Дэвид МитчеллПеревод: Дублированный (укр. Line)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB163942816B700825569A60E3539722A9706C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694961   (120459) от 28.01.2024
+
+Cosmonaut & Satellites (Космонавт и спутники) -  Наверх  (2010) [FLAC|Lossless|tracks + .cue] <Progressive Trance, Progressive House, Breaks>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmonaut & Satellites - Way Up Intro (0:59)
+02. Stripe, Poroxx, Cosmonaut - Laya (Cosmonaut Remix) (4:15)
+03. Ricky Stone - Shanghai Taxi (Cosmonaut Resmash) (3:45)
+04.Жанр: Progressive Trance, Progressive House, BreaksПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2601F278C480CFE5D12C3C6A1B0A8BCF2DEC6E46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695311   (120460) от 28.01.2024
+
+MusicBrainz Picard 2.11 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120460.jpg" />
+</div>
+
+
+###  Подробнее
+
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6E4AA479F029C7937A8D364FE939E76D82A268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695233   (120461) от 28.01.2024
 
 Джуно Диас | Короткая фантастическая жизнь Оскара Вау (2022) [MP3, Кирилл Радциг, Анастасия Шумилкина]
@@ -6,7 +83,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120461.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ RJ TextEd 16.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120462.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Cosmonaut & Satellites (Космонавт и спутники) - макси-с�
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120463.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ magnet:?xt=urn:btih:7ABDD7A084A4BC9976DB30D34104394566947394
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120464.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ magnet:?xt=urn:btih:6CBD1EE89F6B078B05775DE5D0A5AD0D7B9F8279
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120465.jpg" />
 </div>
 
 
@@ -129,7 +206,7 @@ magnet:?xt=urn:btih:2C80BEA0BD021E37BA9233215B7032FB1ECE5F90
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120466.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ Alice Babs - How Do You Do, Mr. Swing (100th Birthday - Recordings of 1939 - 1
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120467.jpg" />
 </div>
 
 
@@ -183,7 +260,7 @@ Text Editor Pro 28.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120468.jpg" />
 </div>
 
 
@@ -207,7 +284,7 @@ magnet:?xt=urn:btih:D56EC7ED7B3120CB4AFBBCE65A91D7BD744603AD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120469.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:F596027FE0712E6B2D38DACD90A3E1DE630C0B61
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120470.jpg" />
 </div>
 
 
@@ -258,7 +335,7 @@ VA - Friends V (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Afro House, Indie Da
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120471.jpg" />
 </div>
 
 
@@ -285,7 +362,7 @@ The Other Broken Ones - Something Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120472.jpg" />
 </div>
 
 
@@ -312,7 +389,7 @@ magnet:?xt=urn:btih:2DF93A9D4254FAC1BAA96C76696738BD4887268C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120473.jpg" />
 </div>
 
 
@@ -338,7 +415,7 @@ magnet:?xt=urn:btih:E099A20A1BE4C5C9E51A85E891A998BB97CA24E2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120474.jpg" />
 </div>
 
 
@@ -362,7 +439,7 @@ Opera One 106.0.4998.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120475.jpg" />
 </div>
 
 
@@ -386,7 +463,7 @@ magnet:?xt=urn:btih:3E0A89BBB5CD34D4A233F8D18A81CF983701669F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120476.jpg" />
 </div>
 
 
@@ -411,7 +488,7 @@ Session for Mac 2.9.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120477.jpg" />
 </div>
 
 
@@ -435,7 +512,7 @@ macOS Server 5.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120478.jpg" />
 </div>
 
 
@@ -459,7 +536,7 @@ WinMerge 2.16.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120479.jpg" />
 </div>
 
 
@@ -484,7 +561,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120480.jpg" />
 </div>
 
 
@@ -508,7 +585,7 @@ magnet:?xt=urn:btih:2AAB8D45B112CB8E782DF9F79F498EF33A96E82A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120481.jpg" />
 </div>
 
 
@@ -532,7 +609,7 @@ magnet:?xt=urn:btih:2773B48ADD15816A3646D6A4FA7EAD8D961409BC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120482.jpg" />
 </div>
 
 
@@ -556,7 +633,7 @@ VA - Nu Deep House, Vol. 8 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120483.jpg" />
 </div>
 
 
@@ -567,81 +644,6 @@ VA - Nu Deep House, Vol. 8 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E47E454772701B5A1DD9A32C9CDFDCD595BD3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695151   (120484) от 28.01.2024
-
-Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look (3:57)
-02. Dressed For Success (4:10)
-03. Sleeping Single (4:38)
-04. Paint (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBE074C945C2E0E1A1A2341FD5EAD8CB1E39F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695364   (120485) от 28.01.2024
-
-Minimal Audio - Effect Bundle 2024.01 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите все инновационные плагины эффектов от Minimal Audio в одном комплекте, чтобы максимально раскрыть свой творческий потенциал.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41BB9FBDB427E8119AA47C569709D8F148E1FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695203   (120486) от 28.01.2024
-
-Илсе Санд | Чувство стыда. Как перестать бояться быть неправильно воспринятым (2021) [MP3, Элнара Салимова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это чувство сидит глубоко в нас, о нём не принято распространяться и обсуждать даже с близкими людьми. Все мы иногда совершаем поступки, за которые потом становится стыдно. Стыд — сильное и болезненное ощущение внутреннего дискомфорта, которое часто возникает необоснованно, но способно серьёзно испортить жизнь. За ним скрываются другие проблемы: страх, заниженная (   Читать дальше...   )Жанр: практическая психология, саморазвитие / личностный ростПеревод: Анастасия Наумова, Николай ФитисовЯзык озвучки: русскийИздательство: Альпина ДиджиталПродолжительность: 03:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637D55F6A005658E8C8E139ACEF39D91F1567A66
 ```
 
 

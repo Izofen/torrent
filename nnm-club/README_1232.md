@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:64E762676EBD82142722C010A9B9FC0C642C1286
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5869E05832C333760FBFA6892FB13CCC6CF37712
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9DAF26A6C7F6F4A6C390AA9AF9C6AF6A01ED9E1A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32388.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DVDFab 13.0.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32389.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Follow the meaning (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32390.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C66A861373460E316CD2F05771D274D5868B2FA6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32391.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Monster Jam (2007) [En] (1.0.1) Scene Reloaded
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32392.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32393.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ FontViewOK 8.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32394.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Русская 30-ка хитов 10 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32395.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2B2EB4CBC7FF4D5FC7450E913EE6B44CE5B01D66
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32396.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E20A1266240F8F0F3E243E8E768CBDC14AEE6029
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32397.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8F7AC2058A748F5AB2B149DF1CB76B7F6755D377
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32398.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:E2D5D66E7D2D9F67C7BDEE5E6459D89CC74EFC93
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32399.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DDDED062DA7F7799A354101653CB073B34AD60DD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32400.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Музыка юга - лучшее, Часть 5 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32401.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F358B81934CF494B005D416852C3EE79DD40BB0D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32402.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Fast Eddie Clarke - The Rock 'n' Roll Story of Fast Eddie Clarke (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32403.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:8758C8C2908EA44D19CA39B56ED9F55AD117A308
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32404.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32405.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:0629C71060910DD0FDA3BF2D389A182FEDDE4C36
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32406.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:03B4AEBF4948B94EBDADD0EC7ECADC227FC45A17
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32407.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Wings - Wings At The Speed Of Sound (1976) Japanese Edition, SHM-CD, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32408.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32409.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Cosmic Ally - Twin Sun (2005) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32410.jpg" />
 </div>
 
 

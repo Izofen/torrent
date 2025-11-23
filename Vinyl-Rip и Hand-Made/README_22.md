@@ -6,7 +6,7 @@ Madonna - Star Collection vol.2 (2000) Compilation, Unofficial Release [FLAC|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69194.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69234.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69254.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69255.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69275.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69312.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69331.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69400.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69406.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69410.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69412.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69424.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Space Chaser - Studio Albums (5 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69471.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69477.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69506.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69556.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69799.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69846.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69847.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69848.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69853.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69857.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Harlott - Studio Albums (5 releases) (2012-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69898.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69921.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69967.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70020.jpg" />
 </div>
 
 

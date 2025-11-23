@@ -6,7 +6,7 @@ V.A. - Lounge & Wine, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30305.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A391B6452CA0FC8B75CFC6EB2A73982488C8A2B8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30306.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30306.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:755CE027AB9251161BA0ECE2B709D8781368B4D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30307.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30307.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ RegCool 2.021 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30308.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5DBD56A1D54D1A18F1B21F9DC9364F006E77E6AF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30309.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:63906B815A31BDFF4BCDDA5CBA7C3E684D6ACF91
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30310.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:669623CA4CCDD4A113FDAA7211B12C246836BD6F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30311.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F99EB874E3DDA807BF45C09820B0CA2ABE664DD2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30312.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - La Isla Del Sol, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30313.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Ultimate Cocktail Lounge Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30314.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30315.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30316.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - La Isla Del Sol, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30317.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Dave Matthews Band - Big Whiskey and the GrooGrux King (2009) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30318.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Grand Magus - Sunraven (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30319.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B0BB67A484A19A94DA2161E5301C177886490725
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30320.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30321.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30322.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Milt Jackson & Ray Brown Quartet - It Don't Mean a Thing If You Can't Tap Your F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30323.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:4FB21E016D3F1732B56D68A2A64D1879B1335533
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30324.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:97DF916A078B33F7BB7F4F91B25DD94037A00712
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30325.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:602B2C8D0414D68D6348536DB8E43AD7761BB92C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30326.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Accept - Compilation (2025) [MP3|320 Kbps] <Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30327.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:9B8DBA1CCFC64DA96D0E9927B8C7135C32640F4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30328.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30328.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:EDA46017DDF3CEDE9B9B4C6BA55A0A6709CC1FEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30329.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:ECCD13CFFE05F8FBDD50B1BAA33E1451C3AA5A22
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30330.jpg" />
 </div>
 
 

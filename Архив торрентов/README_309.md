@@ -6,7 +6,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74806.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74892.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74914.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74924.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:57EC7319FE71EE584F21AD3C6C2734D48ACCEC43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74929.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:57EC7319FE71EE584F21AD3C6C2734D48ACCEC43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74930.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:5B001EAE14A045674A91721641541C93FD91EDA7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74966.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:8AC879C67C15C929EF641622D86D920947C930DB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75012.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4AE865E196552149BC4DE57F88BF46773B24E764
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75027.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:99FF7DB677269F8DDB40730421D08861BFFFF0FE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75030.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Rihanna - Project R [The Audio-biography] (2011) [MP3|320 kbps]<R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75035.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:9AB79C5516C3FE837311828176B98FBFD6C66FA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75040.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Dropbox 1.3.14 beta [Multi, русский отсутствует]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75058.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Dropbox — инструмент хранилища данных, благода
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75065.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Dropbox — инструмент хранилища данных, благода
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75089.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ CrunchBang Linux 10 R20120207 [i386 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75091.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:44779D25BDE96E887075EB69525E9559FA9FD9FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75110.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:44779D25BDE96E887075EB69525E9559FA9FD9FC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75112.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:9DC11BAACF7E1D405D0C1AD679A264095DF47F54
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75124.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:CC4F5828E9885CF6A102825835F135623F781D90
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75159.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SimplyMEPIS 11.0.12 [i586 + x86_64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75207.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Damian Marley - Mr. Marley (1996) [MP3|192-320 kbps]<Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75229.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Epica - Design Your Universe (2009) (Japanese Edition) [FLAC|Lossless]<Symphonic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75241.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Epica - Design Your Universe (2009) (Japanese Edition) [FLAC|Lossless]<Symphonic
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75244.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:BB3F1D27C284FFA210A7E1C54CBE44C23E775D75
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75253.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Fleetwood Mac - The Dance (1997) [FLAC|Lossless]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75260.jpg" />
 </div>
 
 

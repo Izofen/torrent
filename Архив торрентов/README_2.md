@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2988.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1A0A0585E8233C14DEC9867A8F4110A319EC5B7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2990.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WPS Office + PDF v18.20.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3018.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vanced Tube v5.4.80.356 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3043.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E9B804C1C3180E7F21FAD8C878597149F06D39C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3066.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:969AF233AA96CD5829F8065B4DF054665048CAD0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3072.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:969AF233AA96CD5829F8065B4DF054665048CAD0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3074.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Rufus 4.10 (Build 2278) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3078.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CE433F63AA0A54D4D2003920894022E6819ED99E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3104.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ HiPER Calc Pro v11.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3132.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ HiPER Calc Pro v11.2.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3147.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.125 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3152.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AirBrush: ИИ Фоторедактор v7.16.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3160.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MyLanViewer 6.5.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3189.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ YT Downloader 9.16.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3190.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Vivaldi 7.5.3735.74 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3204.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:298080CA2AF6A3969DE82D3F41439D2D1FC7C1F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3255.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:CE52E54D7FE63E81EE6727430F89B03A6EE819E3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3275.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:999507920B57C436BB2BF16B8A3B1C0148A8B3C4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3278.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:4AF834E0702630A7D0F251D5831A75ACCB9CB814
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3279.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:74930378483E7A54C77EA8A9F369A6A60053E789
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3281.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VueScan Pro 9.8.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3356.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Opera One 122.0.5643.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3363.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 05.09.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3374.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Topaz Gigapixel AI Pro 8.4.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3408.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Acrobat Pro 2025.001.20693 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3424.jpg" />
 </div>
 
 

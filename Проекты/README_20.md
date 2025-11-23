@@ -6,7 +6,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E101897B4E8A68959550EE71CB5E25B0BF0E83E6
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170185.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1EDFCB7AC7DF490D1F6888D375B9CA9A345C9E56
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170650.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B88712FC1111B0368B43FC10863D678C1B388C48
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170777.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E87C1D4CDDB138CA31B1BDA65B63EE72B92C5468
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170791.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:32346CF268D717AC91BBF7B93E3188C5D44A6146
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170816.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0720655D865C36D9DFF9FDF2E30440C122F76106
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170844.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DA9B957D68342118158FE8F2DC1688744462A487
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170858.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A6C698D0CB9D4F678417EDF4FF37A752CF386EE5
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170861.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FE6CB0ED95EAD6D9ECB7F5897723C37960AFF0BE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170867.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:894CA074F8CD3E250EDE745BE29E789F0594655D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170916.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:E3782D76CB07994DF11802A5B8189A0CF241DAD5
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173412.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7954C724193A3F15F9FAD501541F273719851BE2
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173431.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:777E7D0E93B236D189FF0E2D8953ABA3ADAF0F81
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173700.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173700.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VideoHive - Christmas Slideshow - 19171301 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173720.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173720.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D871B20B30598CBD097D1D5475CAE944E4B53B32
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173754.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173754.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:879647D3DC9F4E6A14E947E1E97B48843D32743D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173773.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173773.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:FFC613E6B600758EAAC7B7880753F742F489BA95
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173852.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173852.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:1E66ECAFC6340493A267185F442A9411F4997DD4
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174069.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:49B00B605E2C1460EAFFDB3213A41FE3B28D4DE2
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176284.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176284.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:B943D689E048777277BF0A99F46ADE43D33CD536
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176451.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176451.jpg" />
 </div>
 
 
@@ -503,6 +503,80 @@ magnet:?xt=urn:btih:B6BF6C06ED656FDDEEF27E9EFAB459E4CE8C2437
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429153   (177312) от 05.12.2020
+
+Проекты - VideoHive - Christmas Photo Frame // Parallax Slideshow - 29573049 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177312.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Photo Frame // Parallax Slideshow» высококачественный, хорошо организованный и легко настраиваемый шаблон After Effects.
+Порадуйте родных и близких людей видеороликом созданным при помощи этого проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A84F6DA1F6261096A48E26D4DBB757FC00561E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429173   (177313) от 05.12.2020
+
+Проекты - Motion Array - Christmas Logo - 851477 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177313.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Logo» - это волшебно выглядящий проект After Effects.
+Этот замечательный шаблон перенесет волшебство Рождества на большой экран. Вы можете использовать его, что бы отразить дух Рождества. Он содержит 4 текстовых заполнителя и 1 заполнитель логотипа. Произведите впечатление на свою аудиторию этим креативно анимированным шаблоном AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491157A12C67F1E63F4265B7BD203A5FFED004DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429188   (177347) от 05.12.2020
+
+Проекты - VideoHive - Christmas Memories - 29476766 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177347.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Memories» - это очаровательный шаблон After Effects с динамически анимированным слайд-шоу, раскрывающим ваши медиафайлы. Он содержит 10 заполнителей мультимедиа и 13 редактируемых текстовых слоев. Вы можете использовать его для празднования Рождества и Нового года. Произведите впечатление на свою аудиторию с помощью этого великолепно разработанного и элегантно (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70301DFFAC781C6118B4264F6C7F18AF27696A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594602   (177555) от 01.12.2022
 
 Проекты - VideoHive - Mr. Mustache - Character Animation Kit - 25804455 [AEP]
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:B6BF6C06ED656FDDEEF27E9EFAB459E4CE8C2437
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177555.jpg" />
 </div>
 
 
@@ -527,98 +601,25 @@ magnet:?xt=urn:btih:E10751C29EBD798BBCBE33BB01DCD98EBF8AC4AA
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594081   (178934) от 29.11.2022
+###  Публикация: 1428602   (178909) от 03.12.2020
 
-Проекты - VideoHive - Bobby - Character Animation DIY Pack (Update 2) - 8909239 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178934.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отличии от начальной версии Проекты - VideoHive - Bobby - Character Animation DIY PackФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F513550613F3D3443E516EC204F8D5EDF5E5207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594004   (178968) от 29.11.2022
-
-Проекты - VideoHive - Victor - Character Animation DIY Kit - 23617307 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо известно, что мультяшные персонажи оказывают значительное влияние на узнаваемость бренда, и маркетологи используют их в качестве жизненно важного инструмента продвижения. Проект «Victor» призван помочь вам продвигать вашу компанию, товары, услуги в уникальной, занимательной форме. Его легко настроить и он требует базовых навыков AE, таких как импорт изображения, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905D6471A3B9AF3462390A7629FB65ACE4AAC7CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427487   (182883) от 28.11.2020
-
-Проекты - VideoHive - Christmas Slideshow | After Effects - 29533724 [AEP]
+Проекты - VideoHive - Christmas Snow Globe - 29589173 [AEP]
 
 >>Проекты
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182883.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Christmas Slideshow | After Effects» - это готовый к использованию, легко настраиваемый шаблон. Этот проект имеет модульную структуру, поэтому вы можете просто настроить его под свои нужды. Просто перетащите отснятый материал и измените цвет фона, отредактируйте текст, добавьте звук и наслаждайтесь результатом. Вы можете использовать этот проект для праздничных (   Читать дальше...   )Формат: AEP
+«Christmas Snow Globe» - Это поздравительная видео-открытка. Можно использовать в качестве вступления к вашему праздничному видео.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFA3397D79B700F58904D0957060BA7F716F245B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427478   (182958) от 28.11.2020
-
-Проекты - Motion Array - Magical New Year Slideshow - 861352 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182958.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Magical New Year Slideshow» - это красивый шаблон After Effects, с привлекательными ледяными рамками, падающим снегом и динамически анимированными снежинками. Этот шаблон содержит 13 заполнителей для изображений / видео, 14 редактируемых текстовых слоев и 1 заполнитель для логотипа.
-Это отличный способ показать особые случаи, воспоминания, праздники, каникулы, фото (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6692661BA408FA6640EF9F739CFF688A475EAE7A
+magnet:?xt=urn:btih:B81E2081A4973CC77579A18A37F73DB0830DA3B8
 ```
 
 

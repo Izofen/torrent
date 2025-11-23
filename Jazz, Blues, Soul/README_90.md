@@ -6,7 +6,7 @@ Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111654.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111673.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111719.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111728.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111730.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111759.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111761.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111775.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111778.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111780.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111796.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111800.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tadaaki Misago & Tokyo Cuban Boys - Holiday in Tsugaru / Memories of Japan (1966
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111861.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Gene Krupa - 1940, Vol. 2 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111869.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evter
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111876.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111890.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111986.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:C329718405C10A39F9740042BE407A91F50BB011
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112003.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ramblin' Preachers - Sins & Virtues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112027.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112072.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112161.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112165.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112170.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112252.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112329.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112333.jpg" />
 </div>
 
 

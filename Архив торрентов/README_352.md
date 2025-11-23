@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84731.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84734.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84737.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Epica - Requiem For The Indifferent (2012) 2 издания [FLAC,APE|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84740.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ltd. Digibook Edition содержит нормальную версию "Serena
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84757.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:AAD0C038DFC287B5A8F883D6488BB5E79B6281A8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84760.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:AAD0C038DFC287B5A8F883D6488BB5E79B6281A8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84770.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:AAD0C038DFC287B5A8F883D6488BB5E79B6281A8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84772.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:648148DD3683ED0E0F3C4A60B0D689852E0AE4E3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84785.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ultimate Bonus for Corel VideoStudio Pro X5 15.0.0.2581 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84789.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ProDAD RotoPenЯзык интерфейса: EN
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84790.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ProDAD RotoPenЯзык интерфейса: EN
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84814.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kill Win Locker II by Core-2 v.27.3.12 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84817.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kill Win Locker II by Core-2 v.27.3.12 - загрузочный диск, осн
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84819.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Activation Win7 v4.0 (март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84835.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84842.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84844.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84848.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84849.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Relax (Compiled by Nicolo) (2011) [FLAC|Lossless]<Ambient, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84855.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Bio - Hazard Xplorationz (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84856.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84858.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84859.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:691AB1B8396C0E00A67851A15F9D586B18547077
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84867.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:81FBA50480AF0D98E8EADEF2CC76F4BC7B822385
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84873.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84874.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Python (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158874.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158903.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158930.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Node.js (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158940.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Ruby (2022) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158962.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159085.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5183890C1C907375F2F4552EEF66040C9313D877
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159182.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159474.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160037.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160756.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161105.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161437.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8526E11D12A09AF385C09157C548D45E7DD93186
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161441.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F65C601DF5ED92F7A1A1CDE9F1D3699339CB9DC7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161529.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161577.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161588.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162373.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163015.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163242.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163270.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163494.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163797.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164813.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165628.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165648.jpg" />
 </div>
 
 

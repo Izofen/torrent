@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49418.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon Chronicles: Black Tears (2024) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49419.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49420.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49421.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49422.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:853F355AD32C86832441AE2C25371E6551E60B1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49423.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:056CEA5BFCD445295501EFAFCEDFEE71D967E566
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49424.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B192F79F8CCC58BEBF0ADC9ADE36889A1EAD01BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49425.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9011BF600E38EE273CBA50B96D057AF3DD90822A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49426.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Fleetwood Mac - The Dance (1997) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49427.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Fleetwood Mac: Live In Boston (2003) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49428.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49429.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:5F835DB71C5C50DB870BF724F04C79869ECB6C0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49430.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49431.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:070BEAACEB642310F96BA584FDF4F158EF6B5491
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49432.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:BEBC513DA46E4D3947CDFB90E2BC47638FF52750
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49433.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:215A55E8A54CA350A2556C119E3E060B75D847EE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49434.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49435.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49436.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49437.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:792C4429EC23C73BC50E25AA594EEAECDCA7E08E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49438.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:D051DCAF249779D674E973325C9C1AAD452C54BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49439.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:FE525D8295A8B8168EB59C050AB810BC17B78B96
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49440.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DNS Changer Fast & Secure Surf v1.3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49441.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3231142EBA615CA6911858D15F507B0078A669FB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49442.jpg" />
 </div>
 
 

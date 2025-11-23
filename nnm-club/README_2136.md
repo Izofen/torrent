@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55901.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (4.2.33) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55902.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:16C1C715A009F9EB05C73C78F33C40FA66018073
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55903.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D8A4A65183016F56009F6F2111B90968EFD96B4B
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55904.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3FCD6DA4E4143F2A4F6F2E7764573483910BFAE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55905.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7DAC8AAE3BB32077DDB5215479A31B7782931ED7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55906.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B2EB8954B9E64F2320DFEAD4C31DB57B7506CA41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55907.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 11 PRO 23H2 22631.3593 Update 9 by Ghost Spectre [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55908.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1AB36A54424EE7ECD72C3F8A9EF4D6314FBFC733
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55909.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1B9B9E79DFB6FD733ACDE808D45F6CFC7FE1F1E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55910.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:41BC834CCCF50629B184415BCD4B3B42ADF74B9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55911.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Substance 3D Painter 10.0.0 build 3640 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55912.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.1.3800 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55913.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DesktopDigitalClock 5.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55914.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Change MAC Address 24.05 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55915.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Freeplane 1.11.14 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55916.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55917.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Quick Search 6.0.1.9 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55918.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Absolute Uninstaller 6.0.1.7 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55919.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:983165C698D0B54DCFD6D8AD82FF4193DB13C168
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55920.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Glarysoft Malware Hunter PRO 1.184.0.805 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55921.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Don't Sleep 9.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55922.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D57ACD1CC6CB2CE090516E3CC1AB674FD752E80E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55923.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:551FB45840F91ACC3FAB28595B781FC29058141B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55924.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Autorun Organizer 5.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55925.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2079CB37541EC0C57A8C87293C5D11A07ECEA071
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55926.jpg" />
 </div>
 
 

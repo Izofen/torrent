@@ -6,7 +6,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20110.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20111.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1F1770CF52BFCC3E9F0A1EBF354FE3CF754A210C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20112.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20112.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6A8621C2CA282F8F25C96AD36E1E9C475C56F061
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20113.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8859FA1C15CCFADDDFC73080741B8D000E3654F7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20114.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:874DDBDC16BB7E3CA709787320D179B183CD2926
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20115.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20116.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Adobe Acrobat Pro 2025.001.20467 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20117.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:ECC204587A912DF8F18EF657075F31B2A052EC8E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20118.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:01FB4E622FCF6E7EEF0B4EDF87BA73A70E1AF0F6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20119.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20119.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Astra Linux Special Edition 1.8.2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20120.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20120.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:417020E8DB3B3D55DF3B81F80086B1FC4C9763AD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20121.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:40C5DF4EAA0B0347DD6CAAF43F08E34E09133EC7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20122.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:557FC3604853EB33D493F6E2A9D4D92DE49F27ED
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20123.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20123.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:557FC3604853EB33D493F6E2A9D4D92DE49F27ED
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20124.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B035D42FE7383E64497473D89B8B80F8F5F0BEA1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20125.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20126.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FB408915D57F0B4619AB5AA330AD55D260A2712B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20127.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3C7B03F1B5823322A212E4BC245B43DBECA6D835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20128.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:EF7CE5FC33828440BD8E17DC240D2E982CA347A1
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20129.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20129.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Adobe Acrobat Pro 2025.001.20467 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20130.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1137B8AD48494155D2D90901DD27FC2B8B2A19CC
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20131.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20131.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:F2BB3A289B9608311442C7E877721DCBC7D9EBC3
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20132.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.04.24 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20133.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20133.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:82609440BFB03B40270D9EC76F106553B99E9840
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20134.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3228AC3A6F6378471EFE89E6271DFD201F8F9AD6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20135.jpg" />
 </div>
 
 

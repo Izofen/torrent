@@ -1,3 +1,93 @@
+###  Публикация: 472444   (97480) от 23.03.2012
+
+Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EF954EB8C0FD769CC7384F5CBE91A529E7D916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471931   (97481) от 23.03.2012
+
+VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97481.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flash и Ксения - На Крыльях Ветра (Radio Edit) (3:09)
+2. Макс Барских - Dance (Russian Version) (3:21)
+3. Глюкоза - Кошка (3:23)
+4. Юлия Паршута - Ты Мой Пароль (3:22)
+5. Ак$ис - Вернись (4:36)
+6. Потап и Настя Каменских - Не Хватило Воздуха (3:26)
+7. Макsим - Осколки (3:40)
+8. Анна Суворова - Слезы На Твоей Подушке (2:35)
+9. Винтаж и DJ Smash - Москва (3:45)
+10. Dan Balan - Лишь до утра (Dance Version) (3:21)2012Жанр: PopПродолжительность: 06:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472041   (97482) от 23.03.2012
+
+VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляля Размахова - Дворовая
+02. Без Фильтра - Бывали дни (дворовая версия)
+03. Женя Белоусов - Вечером на лавочке
+04. Катерина Голицына - Романс Дворовой
+05. Гриша Заречный - Дворовая
+06. Scrash - Хулиган
+07. Валентин Стрыкало - Наше лето
+08. Кабриолет - Песню нежно напевала
+09. Алексин - Страшная
+10. Валерий Залкин - Одинокая ветка сирени2012Жанр: PopПродолжительность: 06:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472439   (97486) от 23.03.2012
 
 Формула 1. Гран-При Малайзии. 1-ая свободная практика (2012) HDTV [1080i]
@@ -6,7 +96,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97486.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97487.jpg" />
 </div>
 
 
@@ -54,7 +144,7 @@ magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97488.jpg" />
 </div>
 
 
@@ -82,7 +172,7 @@ magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97489.jpg" />
 </div>
 
 
@@ -106,7 +196,7 @@ magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97490.jpg" />
 </div>
 
 
@@ -134,7 +224,7 @@ VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97491.jpg" />
 </div>
 
 
@@ -167,7 +257,7 @@ magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97492.jpg" />
 </div>
 
 
@@ -191,7 +281,7 @@ Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97494.jpg" />
 </div>
 
 
@@ -222,7 +312,7 @@ magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97495.jpg" />
 </div>
 
 
@@ -246,7 +336,7 @@ VA - Музыкайф. Зарубежный Суперсборник (2012) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97496.jpg" />
 </div>
 
 
@@ -279,7 +369,7 @@ VA - Modern House Music vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97497.jpg" />
 </div>
 
 
@@ -310,7 +400,7 @@ magnet:?xt=urn:btih:B3CD0F94E5F3B452D52FDDD6448036DB7C1C189F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97498.jpg" />
 </div>
 
 
@@ -338,7 +428,7 @@ magnet:?xt=urn:btih:7B4170B36E9F916842840624FB891F3296E8476F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97499.jpg" />
 </div>
 
 
@@ -366,7 +456,7 @@ VA - Power Of Love vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97500.jpg" />
 </div>
 
 
@@ -396,7 +486,7 @@ VA - 100% Хиты DFm 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97501.jpg" />
 </div>
 
 
@@ -429,7 +519,7 @@ magnet:?xt=urn:btih:A2BC26729AE1DBC26D6D96FE4E36FB2BD718CFBD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97502.jpg" />
 </div>
 
 
@@ -453,7 +543,7 @@ magnet:?xt=urn:btih:0471A9C249998177023A2320D257058D48D2C0B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97506.jpg" />
 </div>
 
 
@@ -477,7 +567,7 @@ magnet:?xt=urn:btih:A42D15CDBDDECD01696671A9D6667E7B9FE95E9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97507.jpg" />
 </div>
 
 
@@ -501,7 +591,7 @@ magnet:?xt=urn:btih:2BAF8E489E2B4589C29070B9013FE1750E4A8D2E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97509.jpg" />
 </div>
 
 
@@ -525,7 +615,7 @@ magnet:?xt=urn:btih:178E3282A4EB4D065D4253379240AE12FD66490B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97510.jpg" />
 </div>
 
 
@@ -549,7 +639,7 @@ magnet:?xt=urn:btih:32781070FA4CF81CE4A7E327E5CD1672C0E0ED45
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97513.jpg" />
 </div>
 
 
@@ -577,7 +667,7 @@ magnet:?xt=urn:btih:E635F0AEF57C54D5CB7650B55FD2FD7FF701F2EB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97514.jpg" />
 </div>
 
 
@@ -601,7 +691,7 @@ magnet:?xt=urn:btih:B0DF743FE6F99B97C3EAF284D5F2DFF1E5F0D30C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97515.jpg" />
 </div>
 
 
@@ -612,87 +702,6 @@ magnet:?xt=urn:btih:B0DF743FE6F99B97C3EAF284D5F2DFF1E5F0D30C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675794286CC68A20F88D81D4B2B6F7FF67E853E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471843   (97516) от 23.03.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Madison & Simon J. feat. Aelyn - Angel (Willem De Roo Remix) (7:45)
-02. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix) (6:31)
-03. Cosmic Gate & Cathy Burton - Drifting Away (Original Mix) (5:21)
-04. Woody van Eyden & Steve Anderson - Everything’s Twisted (Steve Anderson Mix) (8:07)
-05. Mark Pledger vs. Matt Hardwick feat. Melinda Gareh - Fallen Tides (Mat Zo Vocal remix) (8:43)
-06. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix) (7:55)
-07. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Album Extended Mix) (6:36)
-08. Sasha Virus feat. Dilara - I Still Fall (Stero Jackers Remix) (7:30)
-09. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix) (7:02)
-10. Benya feat. Emma Lock - Loved To Be (Nuera Remix) (7:22)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559B9FD65AD9103D539AF0B126983EE0DB5D1DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472046   (97518) от 23.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB96F2EDA4F2FAAD7F86068F76AC564790485174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472268   (97520) от 23.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7C36647E8419D5F370BC5DB3A5ED661588D634
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1273122   (139766) от 30.12.2018
+
+Snoweffect - Rustic Physiocrat (2005) Ryoondo-Tea [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physiotronica (06:01)
+ 02. Six Circles And A Sword (04:14)
+ 03. PS2 - Powdery Snow (04:03)
+ 04. Snowflakes (05:49)(   Читать дальше...   )Жанр: Abstract, IDM, ExperimentalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970837   (139769) от 31.12.2015
+
+Хоккей. Молодежный чемпионат мира 2015-2016. Группа А. Швейцария - США. (30.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139769.jpg" />
+</div>
+
+
+###  Подробнее
+
+В столице Финляндии городе Хельсинки стартовал молодежный Чемпионат мира по хоккею с шайбой. В нем примут участие хоккеисты возрастом до 20 лет. В 2016 году хоккейный МЧМ пройдет в 40-й раз.
+Согласно регламенту МЧМ-2016 по хоккею с шайбой, с 26-го по 31 декабря пройдут матчи группового турнира, а с 2 по 5-е января матчи плей-офф молодежного Чемпионата мира по хоккею. (   Читать дальше...   )Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 01:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A557A06532897FA27E3260F32C33BFF10183AF45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679151   (139778) от 24.11.2023
 
 Zoner Photo Studio X 19.2309.2.507 RePack by KpoJIuK [Ru/En]
@@ -6,7 +58,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139778.jpg" />
 </div>
 
 
@@ -30,7 +82,7 @@ magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139779.jpg" />
 </div>
 
 
@@ -55,7 +107,7 @@ magnet:?xt=urn:btih:47647C6151698F648350BE51087BA117F20AA3B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139782.jpg" />
 </div>
 
 
@@ -79,7 +131,7 @@ magnet:?xt=urn:btih:65C0434C0FFB05398469225D4C69B1E8FEDE2507
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139785.jpg" />
 </div>
 
 
@@ -104,7 +156,7 @@ magnet:?xt=urn:btih:A0B9F06C91DAF8B3127F6A0CC378CBC39B50ACDC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139793.jpg" />
 </div>
 
 
@@ -128,7 +180,7 @@ magnet:?xt=urn:btih:2A2980C0B2942A4D603CD24A94B31C512AA2DCAA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139796.jpg" />
 </div>
 
 
@@ -161,7 +213,7 @@ magnet:?xt=urn:btih:4BC9D30FB8A09E62EA733BF91EE9BC9CBDD79F32
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139798.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ magnet:?xt=urn:btih:5BE477155626EDE90137C335EBC56AF4A7ACE1C5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139804.jpg" />
 </div>
 
 
@@ -212,7 +264,7 @@ Cardhop 1.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139813.jpg" />
 </div>
 
 
@@ -237,7 +289,7 @@ DriverPack Solution 17.7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139818.jpg" />
 </div>
 
 
@@ -261,7 +313,7 @@ AIMP 4.60.2167 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139827.jpg" />
 </div>
 
 
@@ -285,7 +337,7 @@ PDF24 Creator 11.15.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139833.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Adguard 1.5.3 (437) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139837.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Blood Eye Remove 2.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139847.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ RH Timer 2.4.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139853.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Extreme Picture Finder 3.46.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139860.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.050.0.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139868.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Feeder 4 v4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139880.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Fedora 25 LXQt Remix [x86-64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139881.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ magnet:?xt=urn:btih:31845FA08ABB2C0DC3D82134C7361B5A544B5E76
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139883.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ HWiNFO 7.67 Build 5275 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139889.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ magnet:?xt=urn:btih:691619C6902D46EC8D77D730CD2E9F63C8F444DB
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139894.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ magnet:?xt=urn:btih:8353D52CBADB2A149E26CEAB1F244579AFA5CFE4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139897.jpg" />
 </div>
 
 
@@ -577,7 +629,7 @@ magnet:?xt=urn:btih:9047B68432164A319C3A58D0F3B5AF1A5E980BA9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139907.jpg" />
 </div>
 
 
@@ -588,55 +640,6 @@ magnet:?xt=urn:btih:9047B68432164A319C3A58D0F3B5AF1A5E980BA9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:094FE6E5249E5EF11B07BDD64BB6B66DB58131B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349067   (139917) от 30.12.2019
-
-Wondershare Recoverit 8 v8.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5712B41C7FB996645D1013A1F1730CB768DB79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195732   (139926) от 30.12.2017
-
-Сказ о Петре и Февронии (2017) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славным городом Муромом правил князь Павел. И вот однажды злой змей искуситель, принявший облик Павла, стал являться его жене. Одолеть змея смог только брат Петра - Павел чудесным агриковым мечом. Однако кровь поганого попала на тело Петра и он покрылся смертельными язвами, от которых даже самые лучшие врачеватели избавить его не могли. Излечить Петра было под силу (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, Детский, РазвивающийРежиссер: Юрий Рязанов, Юрий КулаковАктеры: Владислав Юдин, Юлия Горохова, Иван Охлобыстин, Владимир Антоник, Константин Карасик, Виктор Вержбицкий, Диомид Виноградов, Вадим Медведев, Арзу Сулейманова, Сергей УсковСубтитры: ОтсутствуютПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F9B6DEA2FE2752AD3208A9E79C5B7AC0CA0D5F
 ```
 
 

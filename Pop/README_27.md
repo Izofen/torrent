@@ -6,7 +6,7 @@ Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69018.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69032.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Disco Cuts (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69042.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Victoria Nordmann - Love & Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69050.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69054.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69370.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69414.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69426.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69436.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69438.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69499.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mancol - First Look (2024) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69515.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:ABC478E5843B3399D0EFAAF3C8CAAD03A66F0A39
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69517.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69540.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69633.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69634.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - One Shot '80 Volume 17 (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69758.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - One Shot '80 Volume 16 (2003) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69763.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - One Shot '80 Volume 15 (2003) 2 CD [OGGVorbis|480 Kbps] <Electronic, Pop, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69808.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - One Shot '80 Volume 13 (2002) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69811.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - One Shot '80 Volume 14 (2002) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69815.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - One Shot '80 Volume 5 (1999) 2 CD [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69888.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69891.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69892.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69924.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69954.jpg" />
 </div>
 
 

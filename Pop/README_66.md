@@ -6,7 +6,7 @@ Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157146.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157164.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157323.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157332.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157359.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157422.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:61D0FCA0625367605CD0ED2C3C6CE96ADAB629E7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157470.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:C14F327705B7B9E5C3121FEFAA5F3C788C706CA8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157474.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Hit News Vol. 12 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157498.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Hit News Vol. 13 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157512.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA- The Hit Factory 2 - The Best Of Stock Aitken Waterman (1988) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157536.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - NOW That's What I Call Christmas (4CD) (2022) MP3 [320 Kbps] <Pop, Rock, R&
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157587.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157618.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Korgis - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157626.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Cars - Heartbeat City (1984) Reissue, Remastered, 2016, Mobile Fidelity Soun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157738.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Little Big - Funeral Rave (2015) [MP3|320 кб/с] <Dance, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158019.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Enigma - A Posteriori (Private Lounge Remix) (2007) [FLAC|Lossless|WEB-DL|tracks
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158170.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Сове�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158591.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158626.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158684.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158706.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158713.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158964.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Manizha - Колыбель для повзрослевшего (2022) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158988.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jonasu - Cutting Through Noise (2022) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158999.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159008.jpg" />
 </div>
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 1518502   (153532) от 20.12.2021
+
+Шуба (2016) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой видит обнажёнными всех женщин вокруг, но собственную супругу он видит в шубе.Производство: Россия / August ProductionЖанр: Короткометражный, комедияРежиссер: Василий ВоротовАктеры: Сергей Фролов, Ирма Шейн, Игорь Гаспарян, Максим Коваленко, Сергей ПетровПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C5AB99D72128791BF03EB62699714E4534DEB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968448   (153533) от 24.12.2015
+
+Apparent Symmetry - Enveloping White Noise (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conscious Infusion (06:19)
+02. Lacerate (05:39)
+03. Lights (Over Treetops) (06:21)
+04. Breaking DownЖанр: IDM, Ambient, IndustrialПродолжительность: 00:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B198D00763BF7C44DA2DACB1AA278696D57BACF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434120   (153534) от 23.12.2020
+
+Firefox Browser 84.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA251483DB37009AD53AEFF0E5E439110A9146B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968543   (153535) от 24.12.2015
+
+VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logophilia - Igualmente
+02. Midnite Tiger - Deeper Trouble
+03. Laurent de Paris - Leaving the Dark
+04. Aqua Mundi - Simple ou double(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB0429E4DE80E3DCCFE6938CC6570DC7A8751B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086346   (153536) от 24.12.2016
+
+VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Jazz Fusion, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Houdini's - Headlines [04:23]
+02. Denise Jannah - Fragile [06:34]
+03. Scapes - Hatchback [06:46]
+04. Surinam Music Ensemble - P.D. (Patrick and Deborah) [04:23](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Jazz Fusion, Vocal JazzПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518675   (153537) от 20.12.2021
+
+Рождество на двоих / Last Christmas (2019) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом.Производство: Великобритания, США / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Мэдисон Инголдсби, Эмма Томпсон, Борис Исакович, Люси Миллер, Эмилия Кларк, Макс Болдри, Маргарет Клуни, Джон-Люк Робертс, Мишель Йео, Билал ЗафарПеревод: Дублированный (Лицензия)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F80AF4130E30CBCB8F31B1C321B4DCD6DD63C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434171   (153538) от 23.12.2020
+
+Yuki – Ad Blocker+ for YouTube 1.8 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yuki – Ad Blocker+ for YouTube - приложение для блокировки  рекламы на канале  «YouTube».Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: My PheakdeyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B046FA119E2B6919E8C40363FBE9BCAA39651588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086480   (153539) от 24.12.2016
 
 J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +183,7 @@ J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153539.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:140290B57C816E6132254054342B70C18AE4A18F
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153540.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:921DFE16EDF703E854FC25B1FD8CAA57786BA3F7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153541.jpg" />
 </div>
 
 
@@ -83,7 +260,7 @@ magnet:?xt=urn:btih:57670459AA376A273C277DF8399B752C5C78A1D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153542.jpg" />
 </div>
 
 
@@ -107,7 +284,7 @@ magnet:?xt=urn:btih:79B42B3F007FE7E52BFF48052B49673F2BE3B8A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153543.jpg" />
 </div>
 
 
@@ -131,7 +308,7 @@ RAR Extractor – The Unarchiver Pro 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153544.jpg" />
 </div>
 
 
@@ -155,7 +332,7 @@ Lee Morgan - Last Album (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153545.jpg" />
 </div>
 
 
@@ -182,7 +359,7 @@ magnet:?xt=urn:btih:E6A49235346EAF91045731D797C8EEFC4B0DCD49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153546.jpg" />
 </div>
 
 
@@ -206,7 +383,7 @@ magnet:?xt=urn:btih:C983835C9F5FFABAC428B383E86586B7DC8289EA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153547.jpg" />
 </div>
 
 
@@ -230,7 +407,7 @@ magnet:?xt=urn:btih:B5241EDC47895E2602CF600907ED7EBCF1E0E214
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153548.jpg" />
 </div>
 
 
@@ -254,7 +431,7 @@ magnet:?xt=urn:btih:6FC20CD7C35F0ECAAC3E87A6BEEC3661701FA03D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153549.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ magnet:?xt=urn:btih:3524B5F1BA16BB519C1224D35D4D3F3B8E26BB39
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153550.jpg" />
 </div>
 
 
@@ -303,7 +480,7 @@ magnet:?xt=urn:btih:0AB8816C7724D74625589EF8F172A73BC350A221
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153551.jpg" />
 </div>
 
 
@@ -330,7 +507,7 @@ magnet:?xt=urn:btih:06DB8CDB796FB36CE706A77C1CF9859CCBA78A9F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153552.jpg" />
 </div>
 
 
@@ -354,7 +531,7 @@ Glary Disk Cleaner 5.0.1.227 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153553.jpg" />
 </div>
 
 
@@ -378,7 +555,7 @@ ScrollNavigator 5.7.2 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153554.jpg" />
 </div>
 
 
@@ -404,7 +581,7 @@ magnet:?xt=urn:btih:6F0C8DE14323193884AEE0CE953EFCC8CA283CDC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153555.jpg" />
 </div>
 
 
@@ -428,7 +605,7 @@ Ivanhoe - Last Warning (2020) 2xCD, Compilation, Japan Edition [MP3|320 Kbps] <P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153556.jpg" />
 </div>
 
 
@@ -455,7 +632,7 @@ Enrico Rava & Enrico Pieranunzi - Nausicaa (1993) Egea[FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153557.jpg" />
 </div>
 
 
@@ -469,177 +646,6 @@ Enrico Rava & Enrico Pieranunzi - Nausicaa (1993) Egea[FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01BE8E96470B6FE4F76843BA79B6BE7E2D8A7F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968537   (153558) от 24.12.2015
-
-С. Георгиевская | Серебряное слово. Тарасик (1962) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153558.jpg" />
-</div>
-
-
-###  Подробнее
-
-С. Георгиевская пишет для взрослых и детей. В повестях «Серебряное слово» и «Тарасик» действие развертывается в наши дни. Герои этих повестей — советские молодые люди. В повести «Серебряное слово» это молодой библиотекарь-методист Лера Соколова. Она едет из Москвы в горные районы Тувы «пропагандировать книгу» и там, в далеком краю, встречает не только высокообразованных, (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8802E6D290D7067C256C7E6E6987DADE08939D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194820   (153559) от 26.12.2017
-
-Ashampoo Burning Studio 19.0.1.4 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте классическую программу в новом исполнении! Ashampoo Burning Studio не только выглядит роскошно, она ещё и содержит тщательно улучшенный набор функций. Новая защита от царапин создаёт диски, которые пригодны для чтения даже когда их поверхность поцарапана! Новая функция истории восстанавливает последние 20 проектов по требованию, включая все Ваши изменения. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E94E715B3ECBD566D1B5C107B5CBBEA5331DBAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724153   (153560) от 22.12.2019
-
-В. Ю. Преображенский | Удивительная океанология (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга доступно и увлекательно рассказывает о морях и океанах, покрывающих большую часть поверхности нашей планеты и гораздо менее изученных по сравнению с сушей. Читатель получит представление о современном состоянии океанологии и узнает множество интереснейших фактов. Книга адресована всем, кто интересуется тайнами Мирового океана.Жанр: познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CDB1FB820FEB7F5E9FD8F57A886D9B7327714C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589263   (153561) от 14.12.2012
-
-Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 22 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы любим покушать. И известные люди в этом не составляют исключения. Но вот чем они угощают домочадцев, близких и знакомых, если приглашают кого-то к себе в дом? "Аргументы и факты" решили, что наши читатели ничем не хуже тех самых званых гостей и вправе узнать секреты звездного меню. В этом выпуске вы узнаете множество кулинарных секретов знаменитых людей. А некоторые из них даже предложат нам целый обед. Готовьте с удовольствием, а угощая своих близких, не забудьте рассказать, что этим рецептом с вами поделилась та или иная звезда. Ведь знаменитости, как ни удивительно, тоже люди и тоже не дураки поесть.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72CF2DAE7877C94FB309465B050F770CEFCC4CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086357   (153562) от 24.12.2016
-
-Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Robot Man [06:39]
- 02.Look On Your Right Side [05:11]
- 03.YL [07:55]
- 04.Communication [09:23](   Читать дальше...   )Жанр: Post-Bop, Jazz FunkПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C13987115339A16675A4B416A2553E65BE642D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968632   (153563) от 24.12.2015
-
-Время покажет с Петром Толстым (24.12.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы "Время покажет" обсуждают, надо ли сократить количество выходных дней в новогодние праздники. Эксперты пытаются понять, как лучше распределить выходные дни, и рассуждают, как повысить культуру празднования. Во второй части программы говорят о кибертерроризме и кибервойнах, обсуждают их возможный вред и способы защиты от хакерских атакТелекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B31FD4ECD406C82BDED0ACB1C0C99FCCE2B76E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434166   (153564) от 23.12.2020
-
-Ларри Симон. Продавец-живчик / The Counter Jumper (1922) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ларри работает продавцом в магазинчике. Со свойственной ему живостью он принимает за поимку преступника (хотя последнего и близко рядом нет). Харди играет роль, возможно, одного из хозяев магазина (точнее пока определить невозможно), роль у него довольно крупная, но, как обычно в фильмах с Ларри, он противостоит ему как злодей.Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Люсиль Карлайл, Оливер Харди, Спенсер Белл, Ева Тэтчер, Джек Даффи, Уильям МакКолл, Реджинальд Лайонс, Джеймс Доннелли, Уильям ХауберЯзык озвучки: НемойСубтитры: ОтсутствуютПродолжительность: 00:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2E071C5A2D63AA9D6232687D98BA4C160E53B3
 ```
 
 

@@ -1,3 +1,154 @@
+###  Публикация: 845001   (142319) от 29.12.2014
+
+Моцарт в джунглях / Mozart in the Jungle (2014) WEBRip (Сезон 1, серии 1-2 из 10) (Ozz) (обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю гобоистки Хэйли и её злоключений в Нью-Йорке. Будут и секс, и разнузданные вечеринки, и уроки игры на гобое, и соблазнительные танцоры балета, и чего только не будет. И всё это, разумеется, с классической музыкой фоном, и выступлениями в Нью-Йоркской Филармонии под руководством старого дирижёра Томаса, и нового дирижёра Родриго.Производство: СШАЖанр: драма, комедия, музыкаРежиссер: Пол ВайцАктеры: Лола Кёрк, Саффрон Берроуз,  Питер Вак, Гаэль Гарсиа Берналь, Бернадетт Питерс, Малкольм МакДауэлл, Константин Марулись, Боб Диши, Джошуа Белл, Ханна Данн и др.Перевод: Профессиональный двухголосый закадровый - OzzОзвучка: Ирина Воронова и Алексей СерёгинЯзык субтитров: Русский, английскийФормат: AVIПродолжительность: ~ 00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA139942C0029B05110A5687776FF8E6A4F9DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195370   (142320) от 29.12.2017
+
+Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness (Reprise) (02:53)
+02. Honour Thy Father and Thy Mother (04:25)
+03. Time Will Pass (04:00)
+04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678830   (142322) от 23.11.2023
+
+Полевые огни / Nobi / Fires on the Plain (1959) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого автобиографического романа Сёхэя Ооки... Поздняя осень 1944 года. Последние дни японской оккупации на Филиппинах. Война за территорию уже проиграна, высший командный состав эвакуирован, а пехота брошена умирать. Без провианта, лекарств и патронов, под бомбами американцев и пулями местных партизан. Рядовой Тамура застрял на острове Лейта из-за (   Читать дальше...   )Производство: Япония, Daiei Studios, Kadokawa Herald PicturesЖанр: драма, военный, экранизацияРежиссер: Кон ИтикаваАктеры: Эйдзи Фунакоси, Осаму Такидзава, Мики Кёртис, Мантаро Осио, Кю Садзанака, Ёсихиро Хамагути, Асао Сано, Масая Цукида, Хикару Хоси, Дзюн Хамамура, Юдзо Хаякава, Тацуя Исигуро, Ясуси СугитаПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английские, японские хардсабы (надписи)Продолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D936C289E3F73D0019B39314AED6148D9BA8D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329454   (142323) от 28.12.2019
+
+Я жив / Estoy vivo (2019) WEB-DLRip (сезон 3, серии 1-13 из 13) ViruseProject [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьем сезоне жизнь Маркеса в очередной раз переворачивается на 180 градусов. Ему и его близким придётся привыкать к новому положению вещей, новым коллегам, новым проблемам и, разумеется, ловить очередного злодея…Производство: ИспанияЖанр: фэнтези, боевик, триллер, приключенияРежиссер: Хесус Родриго, Ориоль Феррер, Давид Молина ЭнсинасАктеры: Хавьер Гутьеррес, Анна Кастильо, Алехо Саурас, Кристина Пласас, Феле Мартинес, Альфонсо Бассаве, Хесус Кастехьон, Лусия Карабальо, Гойсальде Нуньес и др.Перевод: Двухголосый профессиональный (ViruseProject)Продолжительность: ~01:00:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD5BA4C68F1DB787278FECE14486A406A9C24DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520344   (142324) от 28.12.2021
+
+VA - Something We All Adore (Compilation by Rialians on Earth) (2021) [AAC|~313 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omeria, Batu Boris, Depart - Zaugon (5:14)
+02. Omeria - True Colors (6:37)
+03. Ben Beckman - Arabica (5:34)
+04. Arona - Shawq (9:53)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 02:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712EE60A8A27089E440049A5FCA4F5F0DA213D38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088010   (142325) от 29.12.2016
+
+Кирилл Каланджи | Звездные бойни (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно в одной далекой Галактике происходили звездные бойни…
+Да, вы не ослышались, именно бойни! Валдай Ибн-Аргон, обычный и ничем не примечательный солдат Империи Зла, попал в самый настоящий ад. Рядовой гренадер, он на своей шкуре прочувствовал, каково это – быть на службе у вселенской тирании, оставаясь верноподданным зловещего императора галактик, сражаться (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C351B0B27B60C82A4CD9B970C7CEFA0E5170E5ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970038   (142326) от 29.12.2015
 
 (Linux) Serious Sam 3: BFE (2012) [Ru/Multi] (3.0.3.0.233089/dlc) SteamRip
@@ -6,7 +157,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142326.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ magnet:?xt=urn:btih:7B32F7A6398FD748612AD912F79B6077C6951CE2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142327.jpg" />
 </div>
 
 
@@ -54,7 +205,7 @@ magnet:?xt=urn:btih:9D060A91E7AAE220DE38BEDD5735F99166B71A89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142328.jpg" />
 </div>
 
 
@@ -78,7 +229,7 @@ magnet:?xt=urn:btih:0663710A9F45C8808EB5D889C123F356F2A92159
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142329.jpg" />
 </div>
 
 
@@ -105,7 +256,7 @@ magnet:?xt=urn:btih:83E6C733DE1749100F6152C8CE5C33BB4935619C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142330.jpg" />
 </div>
 
 
@@ -129,7 +280,7 @@ VA - 2 Years of Hoofbeats Music (2019) [AAC|~335 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142331.jpg" />
 </div>
 
 
@@ -156,7 +307,7 @@ magnet:?xt=urn:btih:42A97975B98A083B2B2FC9C42B9ECC0118F8621A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142333.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ magnet:?xt=urn:btih:822A1DCA78D576E5984AE42E706E7EC5C9A06005
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142334.jpg" />
 </div>
 
 
@@ -204,7 +355,7 @@ magnet:?xt=urn:btih:C70030BE5C37B2A80BE0600A8D35DE29A797DB00
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142335.jpg" />
 </div>
 
 
@@ -237,7 +388,7 @@ magnet:?xt=urn:btih:C26D586C4C924511DB5E17AE09BD50B2F552FEE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142336.jpg" />
 </div>
 
 
@@ -261,7 +412,7 @@ magnet:?xt=urn:btih:AF5E9A63C4A48A7A4415E5707A5F5AD0AB402C0C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142337.jpg" />
 </div>
 
 
@@ -285,7 +436,7 @@ magnet:?xt=urn:btih:8B405AC9FF038C42BF6466402B4A269D7234F7F2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142338.jpg" />
 </div>
 
 
@@ -312,7 +463,7 @@ magnet:?xt=urn:btih:F9A433F5A79AF0AB4FC66D0E1C4C56AC74366DEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142340.jpg" />
 </div>
 
 
@@ -336,7 +487,7 @@ GraphicConverter 11 v11.5.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142341.jpg" />
 </div>
 
 
@@ -360,7 +511,7 @@ VA - YANA 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142343.jpg" />
 </div>
 
 
@@ -387,7 +538,7 @@ ActivePresenter Professional Edition 7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142344.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ magnet:?xt=urn:btih:2597AD10444A6D3334F6C305E7352C5E1566DEEB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142345.jpg" />
 </div>
 
 
@@ -436,7 +587,7 @@ magnet:?xt=urn:btih:05E97710FBB7849E1111AE001EF0817092442F24
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142346.jpg" />
 </div>
 
 
@@ -460,7 +611,7 @@ magnet:?xt=urn:btih:EA2905653D2BBFC5ACA831093D79CBCD5D06AF46
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142347.jpg" />
 </div>
 
 
@@ -484,7 +635,7 @@ magnet:?xt=urn:btih:84A44C316E7E193226AA088AFF409CDEE7FCDC91
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142348.jpg" />
 </div>
 
 
@@ -495,166 +646,6 @@ magnet:?xt=urn:btih:84A44C316E7E193226AA088AFF409CDEE7FCDC91
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E230059F87D3178B58A446925298DDC54E753D75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520564   (142349) от 28.12.2021
-
-VA - Sensual Winter Chill, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - The Sun Goes Down (Original Mix) (4:05)
-02. Jens Buchert - Tranquilize (Original Mix) (4:49)
-03. Marc Hartman - Natural Elements (Original Mix) (3:17)
-04. Tapelapse - Walking in the Park (2:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB5EEF47D90BF4E2C1DEAEC26553E712F5DAB88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348498   (142350) от 28.12.2019
-
-VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Маши - Не Буди (Video Edit) (3:59)
-2.Adon - Want You (2:51)
-3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
-4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970044   (142351) от 29.12.2015
-
-Убойный огонек / Mi gran noche (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телезапись зрелищного «новогоднего огонька» оборачивается абсолютным сумасшествием, когда череда несчастных случаев обрушивается на съемочную площадку один за другим. Съемочный кран только что разгромил столик с массовкой… включая массовку. Одержимая фанатка шантажирует Адана, сексапильную сверх всякой меры поп-звезду. За легендарным певцом Альфонсо открывает вооруженную (   Читать дальше...   )Производство: Испания / Canal Plus, Enrique Cerezo Producciones Cinematograficas S.A., Telefonica Studios, TVEЖанр: КомедияРежиссер: Алекс де ла ИглесиаАктеры: Рафаэль, Марио Касас, Пепон Ниэто, Бланка Суарес, Уго Сильва, Кармен Мачи, Луис Кальехо, Карлос Аресес, Энрике Вильен, Сантьяго СегураПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4269B366B277A7D4DC9E4B66195667769B4FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195572   (142352) от 29.12.2017
-
-VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kygo & Selena Gomez - It Ain't Me [03:41]
-02 David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You [03:19]
-03 Robin Schulz & David Guetta & Cheat Codes - Shed A Light [03:12]
-04 The Chainsmokers - Paris [03:41](   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDB95AEDE15A5AB8A8F3FD18706578439A0BD3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087806   (142355) от 29.12.2016
-
-VA - Hits of My Soul Vol. 19 (2016) [MP3|320 кб/с]<Post Rock, Post Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Eleventh Vibration - Whales (05:25)
-02. Lights & Motion - Snow (06:39)
-03. Trifonic - Transgenic (Rust Mix) (03:41)
-04. Code I - The Ending That We Dream Of (04:55)(   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 04:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05020C001D7214E3D44913713447E03F3D99B55B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348595   (142357) от 28.12.2019
-
-Изображая жертву (2006) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия абсурда по одноименной пьесе братьев Пресняковых.
-Молодой человек Валя, закончив университет, ради заработка устраивается в милицию, где изображает жертв преступлений во время следственных экспериментов. Следственная группа в составе харизматичного капитана, вооруженной видеокамерой прапорщицы Люды и туповатого сержанта ежедневно вывозит подсудимых на места (   Читать дальше...   )Производство: Россия / Новые людиЖанр: КомедияРежиссер: Кирилл СеребренниковАктеры: Юрий Чурсин, Виталий Хаев, Александр Ильин (младший), Марат Башаров, Ольга Демидова, Анна Михалкова, Фёдор Добронравов, Марина Голуб, Андрей ФоминСубтитры: ОтсутствуютПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F534FD22699CD7A68D1A1BB16BFA2FE17D2C93DF
 ```
 
 

@@ -6,7 +6,7 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162726.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CG Fast Track | Основы анимации в Blender 2.82 / Blender Animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162741.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skillshare, John Knowles | Введение в анимацию: Основы Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162753.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162788.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A5D67652EE022ACE51D6F884829B035FEEFA6B07
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162823.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162840.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162893.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162915.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162924.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ CG Cookie, Kenan Proffitt | ASTRAY: Environment Building Workflow in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162951.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:32F75C23A198F425C5003EE6D16DE7E38DAAD6E5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163031.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:9569CF3F137A12A370134E51B07C407FDE69667D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163090.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Skillbox, Владислав Прищепов, Андрей Смагин  | Юн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163146.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163161.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Udemy | Полный курс немецкого от А1 до С2 (2019) WEBRip
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163206.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163243.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163272.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163305.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163376.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163384.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Skillbox, Вадим Михалев и др. | Мастер презентаци
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163387.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ All Ears English, Jessica Beck и др. | 3 Keys IELTS Online Course (2020) CamR
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163580.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163586.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:696B742D55D0DADC2E3F580FD3C88DF032CF2212
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163624.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163637.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:7EE0F62C540C76251453D6B3C1A87665086871FF
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163720.jpg" />
 </div>
 
 

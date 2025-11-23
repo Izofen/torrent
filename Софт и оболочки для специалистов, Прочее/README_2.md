@@ -6,7 +6,7 @@ Ultimaker Cura 5.10 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SweetScape 010 Editor 15.0.2 + Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22918.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22918.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stellarium 25.1 (x64) [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23671.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23671.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe XD 58.0.12.9 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23777.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ NetSarang Xmanager Power Suite 8.0.0006 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24373.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Navicat Premium 17.2.2 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24710.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24710.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ JetBrains dotUltimate 2024.1.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25138.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ EarthView 7.11.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25202.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25202.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26295.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26295.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Free Hex Editor Neo 7.50.04.8813 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26319.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ ASIO4ALL 2.16 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27260.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27337.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Crystal Impact Diamond 4.6.8 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27512.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinToHDD 6.6 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27558.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Wolfram Mathematica 14.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27985.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinToHDD 6.6.1 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodak
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28163.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28163.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Turbo Studio 25.1.5 Portable by 7997 (PAF + NSIS) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28891.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ASUS N53SV Driver&Utility ver 5.0 for Windows 7 (оригинальный дис
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28950.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Software Ideas Modeler Ultimate 14.88 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29607.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29607.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ SigmaPlot 15.0.0.13 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29632.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29632.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Altair PSIM 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30117.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Altair PollEx 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30118.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ LDPlayer 9.1.37.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30690.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31313.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ LiraLand ЛИРА-САПР + САПФИР 2024 R2.3 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32574.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:4A0F56E3F7AC22006D6AF482CEC3B34D974B78D8
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34981.jpg" />
 </div>
 
 

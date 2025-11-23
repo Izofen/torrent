@@ -1,3 +1,27 @@
+###  Публикация: 1638915   (193911) от 22.08.2023
+
+Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Дзюн Сакурада совсем отбился от рук - в то время, как родители работают за границей, он забросил школу, не обращая внимания на робкие протесты заботливой старшей сестры Нори. Дни напролёт Дзюн сидит у компьютера, развлекаясь тем, что заказывает через Интернет разные предметы, связанные с магией и колдовством. Однажды среди массы почтовых посланий он находит (   Читать дальше...   )Производство: Япония, NomadЖанр: Экшен, комедия, драма, магияРежиссер: Мацуо КоСубтитры: Русский и английскийПродолжительность: ТВ, 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB99E47BF17AD6ED652A9030148A6B4821E4FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654820   (193974) от 23.08.2023
 
 Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и Юки [2012, Movie] BDRip 1080p raw+rus
@@ -6,7 +30,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193974.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193974.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194490.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194490.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195863.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195863.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:2EBE7CADC74E9911253CBA3B00EEA8E4C8C1E29B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195870.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195870.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ magnet:?xt=urn:btih:6DC01EED7318BAEDE0EBD089FAB104A356880048
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196086.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196086.jpg" />
 </div>
 
 
@@ -128,7 +152,7 @@ magnet:?xt=urn:btih:BAE0FF5F6FED325EE70317DA530E7ACCF892FC25
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196162.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196162.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ magnet:?xt=urn:btih:82193E21171B5410644D308A378F9AFF5E52FAC8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196193.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196193.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ magnet:?xt=urn:btih:80B5FB37335D3DF22909A1C9711951CEBABCF2D0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196201.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196201.jpg" />
 </div>
 
 
@@ -203,7 +227,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196221.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196221.jpg" />
 </div>
 
 
@@ -228,7 +252,7 @@ magnet:?xt=urn:btih:B088F00816FB799EECE152E1A4F7A05C6391C10E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196227.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196227.jpg" />
 </div>
 
 
@@ -253,7 +277,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196312.jpg" />
 </div>
 
 
@@ -277,7 +301,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196519.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196519.jpg" />
 </div>
 
 
@@ -305,7 +329,7 @@ magnet:?xt=urn:btih:A88EC1C6BC142FBA37A6263B27149A452EE4D56A
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196724.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196724.jpg" />
 </div>
 
 
@@ -331,7 +355,7 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196944.jpg" />
 </div>
 
 
@@ -355,7 +379,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197170.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197170.jpg" />
 </div>
 
 
@@ -381,7 +405,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197996.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197996.jpg" />
 </div>
 
 
@@ -406,7 +430,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198215.jpg" />
 </div>
 
 
@@ -433,7 +457,7 @@ magnet:?xt=urn:btih:9AC629D1D6DC8B27215BE596A6AE11C6686924D0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198248.jpg" />
 </div>
 
 
@@ -457,7 +481,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198625.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198625.jpg" />
 </div>
 
 
@@ -481,7 +505,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199249.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199249.jpg" />
 </div>
 
 
@@ -506,7 +530,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199421.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199421.jpg" />
 </div>
 
 
@@ -531,7 +555,7 @@ magnet:?xt=urn:btih:B8FEF5A124C96DCEC4D9BBA52BF7BF1857104204
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199808.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199808.jpg" />
 </div>
 
 
@@ -555,7 +579,7 @@ magnet:?xt=urn:btih:B0996C70E173334AD8D66FBBEB78DA12283C5A82
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200045.jpg" />
 </div>
 
 
@@ -579,7 +603,7 @@ magnet:?xt=urn:btih:3DF4E3B9E9B7DFC3F223F9B244E41F5890DACB43
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200213.jpg" />
 </div>
 
 
@@ -603,7 +627,7 @@ magnet:?xt=urn:btih:5A430E6EF7F9AB2632B199A8C4AD1F742BD5759C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200340.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200340.jpg" />
 </div>
 
 
@@ -618,30 +642,6 @@ magnet:?xt=urn:btih:5A430E6EF7F9AB2632B199A8C4AD1F742BD5759C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:852A5BA6D694557BAECF96AE3370D8E30802951F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624206   (200353) от 05.04.2023
-
-Агент Вексилл / Vexille: 2077 Nihon Sakoku / Vexille [2007, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200353.jpg" />
-</div>
-
-
-###  Подробнее
-
-2077 год. 10 лет назад Япония вышла из ООН и отгородилась от мира магнитным полем. Поводом для этого послужила резолюция ООН, которая запретила дальнейшее развитие робототехники и биотехнологий, угрожающих существованию человечества. Правительство США посылает в Японию спецподразделение SWORD под командованием женщины по имени Вексилл. Задание – узнать, что за 10 (   Читать дальше...   )Производство: Япония / Avex Entertainment, CCRE, OxybotЖанр: аниме, мультфильм, фантастикаРежиссер: Фумихико СориАктеры: Мэиса Куроки, Сёсукэ Танихара, Ясуко Мацуюки, Акио Оцука, Роми Пак, Такахиро Сакурай, Тосиюки Морикава, Тэцуя Какихара, Такая Курода, Такаюки СугоПеревод: Многоголосый профессиональный (Селена Интернэшнл)Язык озвучки: Русский, ЯпонскийСубтитры: РусскиеПродолжительность: 01:45:25Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D9CCE16106B4CF8F905231DC94CFD0BD65A32C
 ```
 
 

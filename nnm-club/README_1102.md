@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29005.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CoolUtils Total Excel Converter 7.1.0.89 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29006.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D2A1EC912561734F6A85996C2BD71816551D9F0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29007.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gaia GPS (Topo Maps) v2025.1 b9029 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29008.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:54005B2A81EB4E042A849971354D7D226E8FF37A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29009.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Camouflage – 7 Albums (1988-2014) [FLAC|Lossless|tracks + .cue] <Electronic, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29010.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C0F792F3106B7D1C58135AA3EC4BB1066095EE08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29011.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C0F792F3106B7D1C58135AA3EC4BB1066095EE08
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29012.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29013.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6CF2F2DB412E2741F2B41B85F06F0D2BE3463644
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29014.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Stone of Madness (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29015.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ IPTV Pro v9.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29016.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E463144EED6876F8F5CA90C20EAE0D43D86E624F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29017.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E463144EED6876F8F5CA90C20EAE0D43D86E624F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29018.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:407324A8B5294DF643083794A0E38AE87FC63BC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29019.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Topaz Video AI Pro 6.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29020.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B9A50FA0F99D003B6E581D9A7B7926AFE30D3110
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29021.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ OCCT 13.1.14 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29022.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.27 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29023.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:6EFA02DA2A5B5815E7FD780C3739E259FB25FA2C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29024.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:48394931ADB224950E2308F401AAAC8F87356149
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29025.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E89DFD180C1BA67CABF140A9BE571A91FED00DA6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29026.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ ES File Explorer File Manager v4.4.2.19 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29027.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.41.6 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29028.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ DtcFix v3.51 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29029.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:A7E0CEBE48B580ED3C469D21AB31B1C3A7EFACBC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29030.jpg" />
 </div>
 
 

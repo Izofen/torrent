@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81782.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:AFD93B1D6254B4672879FB47C26F241058B02308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81783.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81793.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81794.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81795.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mp3tag 2.50 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81796.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MP3Tag - многофункциональная утилита которая п
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81799.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:5A199BD4630F6925A0E17A090DA5E3350EE001AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81811.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:5A199BD4630F6925A0E17A090DA5E3350EE001AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81812.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:5A199BD4630F6925A0E17A090DA5E3350EE001AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81823.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.2 [MIDI, WAV Samles][англий�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81838.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.2 [MIDI, WAV Samles][англий�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81842.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:6BB0674FC678235DA6046AC1E32B6A81C18C3A34
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81845.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81867.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81875.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81876.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81882.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81901.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Diablo III [Mac OS X] (Beta Client) [Native] [Eng]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81955.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81963.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81964.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:6ADA77863FFD7B34ADD7F203FC5E8D1E76851990
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81975.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PhotoLine 17.03 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81978.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81984.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81987.jpg" />
 </div>
 
 

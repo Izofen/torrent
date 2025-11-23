@@ -6,7 +6,7 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69726.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69727.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69728.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69729.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CDE385B6444D2C2F31A16A482052D39A00619DF0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69730.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Armin van Buuren - A State Of Trance 1215 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69731.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Zombie Zombie - Funk Kraut (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69732.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69733.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69734.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:8BC73C3787580F1B5CFA715B86EBC6913D935F5E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69735.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - 3 Years Anniversary House Furia - Music Collection (2025) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69736.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:AD2C6D2AECFE78400092F005254E4BC71BB3B3A0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69737.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69738.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69739.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69740.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:748EDD865B86C655025B1AD390ED6AE2B52D48D4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69741.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69742.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:5D6884AEA98A3A1D9A9A1B068FDB184931ADE4F5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69743.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Ori Uplift - Uplifting Only Episode 630 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69744.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69745.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Lightning Swells Forever - Delirium (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69746.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69747.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69748.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1642B00134A06B61B0B8295B30D3E3484B729A6E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69749.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:8504EC6EAB2FF2A55AE4CB25E748B332E1909BF8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69750.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:6CA57F06805083E36D3EB695310702DE128B3A26
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69751.jpg" />
 </div>
 
 

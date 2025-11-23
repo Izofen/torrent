@@ -6,7 +6,7 @@ Opera One 117.0.5408.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27710.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27710.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 133.0.6943.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27711.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AD3A43B21AF2CE378FD2ED35D198A8F4030A5CA9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27714.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FreeCommander XE 2025 donor v925 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27715.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TreeSize Professional 9.4.1.2001 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27717.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TechSmith Camtasia 2025 25.0.0 (Build 7062) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27718.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ UltraSearch Professional 4.6.2.1105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27720.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ IObit Uninstaller Pro 14.2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27735.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Topaz Video AI Pro 6.1.0.5.b (x64) Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27756.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27756.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vivaldi 7.1.3570.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27818.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Opera One 116.0.5366.127 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27824.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VueScan Pro 9.8.44.09 RePack (& Portable) by elchupacabra (DC 11.02.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27828.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Perfectly Clear WorkBench 4.6.1.2720 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27830.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 09.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27840.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft .NET 9.0.2 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27841.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Any Video Downloader Pro 9.1.16 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27846.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27846.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ NetLimiter 5.3.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27848.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ NetLimiter 5.3.20.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27849.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Microsoft Visual Studio 2022 Professional 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27856.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27856.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.43 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27865.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34823.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27866.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Skylum Aperty 1.2.0.920 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27869.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Vanced Tube v5.3.80.132 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27873.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AnyDesk 9.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27875.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ HDRezka TV v1.2.3 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27881.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Youtube Downloader HD 5.9.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27890.jpg" />
 </div>
 
 

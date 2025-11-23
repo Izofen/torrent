@@ -1,3 +1,78 @@
+###  Публикация: 1085651   (156142) от 22.12.2016
+
+Фитнес-план 30 дней Pro 1.0 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физические упражнения для дома, выполнять которые может кто угодно и где угодно. Разработанный профессиональным тренером по фитнесу на основе научных рекомендаций, фитнес-план 30 дней поможет вам улучшить свою физическую форму и состояние здоровья. Следите за своим прогрессом: результаты вас удивят!
+Фитнес-план 30 дней позволяет постепенно наращивать интенсивность (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 5 ноября 2016Разработчик: NorthPark.AndroidПоддерживаемая ОС: Android 4.0 +Жанр: Здоровье и фитнесЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D234A7C6471C14981AC69B138D0902504BB6D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518499   (156150) от 19.12.2021
+
+Viper FTP 6.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярный протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
+Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Grzegorz StaszczykПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F074389253BE066AEA1DF3171DE6F2EC1A33CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346366   (156151) от 20.12.2019
+
+Minecraft / Майнкрафт 1.14.0.9 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft — это строительная игра жанра «песочница» созданная Маркусом Перссоном, основателем Mojang AB.
+Игра позволяет игрокам создавать и разрушать различные блоки и использовать предметы в трёхмерной окружающей среде. Игрок управляет человечком, который может разрушать или устанавливать блоки, формируя фантастические структуры, создания и художественные работы (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 14.12.2019Разработчик: Mojang ABПоддерживаемая ОС: Android не ниже 4.2Жанр: Аркада, приключенияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461D400AA7E0AEECB0BF0BEEEE6F2533C2FE7234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085720   (156154) от 22.12.2016
 
 Wise Care 365 Pro 4.51.423 Final RePack by D!akov [Multi/Ru]
@@ -6,7 +81,7 @@ Wise Care 365 Pro 4.51.423 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156154.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156165.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ HeavenTools Resource Tuner Console 2.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156169.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Seven: семиминутные тренировки Full 4.3.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156174.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Microsoft  Visual C++ Runtimes AIO v0.77.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156182.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ iReal Pro 2021.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156183.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156211.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:E8C147C7ED9E1001C00DD3CE3721C9F1C023A0CD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156213.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Geekbench 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156215.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Scrollow 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156222.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ WinBin2Iso 2.92 build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156228.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Ashampoo WinOptimizer 12.00.40 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156229.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ GlueMotion 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156234.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ PrivaZer 2.42.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156237.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:4F1C571E62FEB93ACF90860145E063E9EE419F6B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156239.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Viber 14.4.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156255.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ R-Studio 8.9 Build 173593 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156266.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:9F3971265118EC495B238CA011607EF04E2D060B
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156270.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ magnet:?xt=urn:btih:EC90AAD978215B4A61135FF52733ED9A45A1D036
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156284.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ Resolutionator 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156295.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33130.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156302.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ Ottawan - Ottawan 2 (1981) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156306.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156323.jpg" />
 </div>
 
 
@@ -563,78 +638,6 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFBD71188448A85C57224A40F78C9F34B51605D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433626   (156329) от 21.12.2020
-
-WhatsApp 2.2049.10.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156329.jpg" />
-</div>
-
-
-###  Подробнее
-
-WhatsApp Messenger - это кросс-платформенное приложение, позволяющее обмениваться сообщениями и при этом не платить, как за SMS. WhatsApp Messenger использует тот же тарифный план Интернета, что и электронная почта с браузером, поэтому при передаче сообщений отдельная плата взиматься не будет, и вы всегда сможете оставаться на связи с друзьями. Кроме стандартного (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EAFA52D13DE8AC9E49688A4EDAB4240365CCA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346602   (156332) от 20.12.2019
-
-Adobe Acrobat Reader DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader DC — совершенно новое приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4414CA328438FCD6A587D88BF7C673B3412B8A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270528   (156336) от 19.12.2018
-
-Path Finder 8.3.7
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4652FEC05FFAE61C6B89A497237DC0FE05C55A9A
 ```
 
 

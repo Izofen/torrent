@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48923.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Judas Priest - British Steel Live - 30th Anniversary Deluxe Edition (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48924.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2FADB8E486B3270DD952DBE021C7EA22EF5C7710
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48925.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ED0346683CBE352CD8134614D78FC6AD9892304C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48926.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48927.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48928.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:688E64754F5EFE5DAEAF048E5C28E0721276B03E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48929.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AutoSettingsPS 0.5.9fix 12.07.2024 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48930.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AA5D968C8E344BDB7966FF75267EF96342977165
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48931.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:762FBC04931FBEFABA434D261E2E83D3E87028C7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48932.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48933.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:8A4C1A6D4A04D045E98A6A6137616ACC7B5ED233
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48934.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:DF5DCC0599EF1813FAE5B86DEBEE8AB67082AAE1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48935.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:CBF23DE7A7556118B47E37EA81F6CE16A66F9102
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48936.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BD90AA7A0CF5D1B617AE9A0BB2C384C45186B8D4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48937.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:31A7CCF9E9F9C0087301F099FDEB1F2CC4A3B0A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48938.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5E03DD0C20D0D3FF62333CBB549F801EB3C994E6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48939.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DAD74551A50156E1A0D7AA299FD389006CDF5558
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48940.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C292A3EF455229921EBA9FA4C4C80901B46F4EB8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48941.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:047A22915BB13FE52C2A18E96050A0C6A7A231A4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48942.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Photoshop 2024 25.11.0.706 RePack by KpoJIuK (DC 25.07.2024) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48943.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C7475A1C2338BF0F4628CB322234F6E6199488C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48944.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E2B371238969ED79C0AB818226F31C1E01F5E1DF
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48945.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:7B2910DFCA6DA630A18AF56589503F14DE793E45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48946.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:D4EC8262C59F7156F7153DBD6AEAE91991AB3890
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48947.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E09B0EBB732489DEBCF6A6B7CD2BDFD1D0E4266F
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48948.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ES File Explorer File Manager v4.4.2.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37211.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SIV (System Information Viewer) 5.78 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37212.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shazam v15.0.0-241107 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Desktop Calendar 3.19.210.6795 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37220.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Video AI 5.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37243.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Photo AI 3.3.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37298.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Linkin Park - From Zero (2024) Scene [FLAC|Lossless|tracks] <Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37299.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Vivaldi 7.0.3495.14 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37301.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Pencil Photo Sketch : Drawing v2.0.99 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37309.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Photo Lab PRO v3.13.37 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37311.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ashampoo WinOptimizer 27.00.05 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37325.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Capture One 23 Enterprise 16.5.1.2546 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37330.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Topaz Video AI 5.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37335.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DjVu Reader & Viewer (читалка) v1.0.125 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37336.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1 Build 12 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37351.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ CCleaner 6.30.11385 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37355.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ KineMaster - Video Editor & Maker v7.5.7.34030.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37363.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ GIF Maker - GIF Editor v3.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37384.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37385.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.42 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37389.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Exif Pilot 6.26 + Batchplugin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37396.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Google Chrome 131.0.6778.70 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37402.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Opera One 114.0.5282.185 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37404.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Paint.NET 5.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37405.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XnView MP 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37409.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Visual Studio 2022 Professional 17.12.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37417.jpg" />
 </div>
 
 

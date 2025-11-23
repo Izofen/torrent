@@ -6,7 +6,7 @@ GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107845.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107855.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107868.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - DJ Hits Vol. 53 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107948.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - DJ Hits 48 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108027.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - DJ Hits Vol. 50 (Limited Edition) (1996) [OGG Vorbis|480 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108052.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - DJ Hits 49 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108053.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits 51 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108054.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Peter Wilson - Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108091.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Discotron, Sandy's Groove - Crying At The Discoteque (2022) [FLAC|Lossless|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108116.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - DJ Hits 40 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108117.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108119.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108125.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Distance And Franky Miller Feat. Easi - Crying At The Discotheque (2023) [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108136.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ D*Wise Ft Sarah Ann - Crying At The Discotheque [2021 Spacer remix EP] (2021) [F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108138.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108146.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Mephisto - Forever Mine (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108213.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108257.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - DJ Hits Volume 36 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108288.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:34A063AF7DADFD5804B40E8800183A5F7BC9B70D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108309.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108310.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108332.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108336.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108350.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108386.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108408.jpg" />
 </div>
 
 

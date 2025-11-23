@@ -1,3 +1,83 @@
+###  Публикация: 470144   (83257) от 20.03.2012
+
+Книжные серии Амфора 2003 ... Амфора 2007 [2003-2007] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжные серии "Амфора" по годам - это художественная литература высокого класса! Множество лауреатов различных премий и всемирных бестселлеров.2003-2007Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C2B543C1E34EEF3F7A8224DE2E3045FA3CE1D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470850   (83259) от 20.03.2012
+
+Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83259.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pushin' Daisies ... 5:38
+2. Not Disappearing ... 7:12
+3. What U Said ... 6:29
+4. Killed My Ass ...6:27
+5. Inside My Soul ... 5:02
+6. The Leaving ... 8:41
+7. Twisted ...5:24
+8. Maggot I ... 4:02
+9. Sweet Love ... 6:28Жанр: Classic Rock, Hard RockПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470768   (83261) от 20.03.2012
+
+Незабываемый роман / An Affair to Remember (1957) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый сердцеед Никки Ферранте и певица Терри Маккей познакомились на борту роскошного океанского лайнера, пересекавшего Атлантику. Несмотря на скандальную репутацию Никки, и на то, что оба помолвлены, они полюбили друг друга. Понимая непрочность сильных страстей, они договорились: если за шесть месяцев их любовь не угаснет, ровно по прошествии этого срока они встретятся на крыше Эмпайр Стэйт Билдинг… В Нью-Йоркском порту Никки и Терри расстаются: она уезжает с встречавшим ее Кеннетом, а он — со своей невестой Лоис. Проходит шесть месяцев и Никки Ферранте поднимается на крышу небоскреба…Жанр: Драма, мелодрама, комедияРежиссер: Лео МакКэриАктеры: Кэри Грант, Дебора Керр, Ричард Дэннинг, Нева Паттерсон, Кэтлин Несбит, Роберт К. Льюис, Чарльз Уоттс, Фортунио Бонанова, Джордж Уинслоу, Дороти Адамс, Ричард Аллен, Женевьева Амон, Аль Бэйн, Батч Бернард, Дино Болоньезе, Пол Брэдли, Мэри Кэрролл, Норман Чемпион III, Кэтлин Чарни, Брайан КоркоранПеревод: Многоголосый закадровый, АвторскийПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C58F6C5A6CDC38189F47AEA5883BFEA7B18D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470278   (83263) от 20.03.2012
 
 [EN] Дневники мотылька / The Moth Diaries (2011) DVDRip
@@ -6,7 +86,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83263.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:F0A5D308F2368AF554E205FFDEFFA6CBDC182C7F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83264.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ magnet:?xt=urn:btih:331F7CE03BF57A4C3511E2FE7B960A8C7F08CD42
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83271.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ magnet:?xt=urn:btih:331F7CE03BF57A4C3511E2FE7B960A8C7F08CD42
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83272.jpg" />
 </div>
 
 
@@ -102,7 +182,7 @@ magnet:?xt=urn:btih:E51A7D05ED79CDB8D3E397C30F612D687E6F2F31
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83273.jpg" />
 </div>
 
 
@@ -128,7 +208,7 @@ magnet:?xt=urn:btih:10D6849E6CF25515FC882C0345E8DAD58A99DC1B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83274.jpg" />
 </div>
 
 
@@ -152,7 +232,7 @@ magnet:?xt=urn:btih:D7153832BF76F73E66C26817116CC26572ABDFA9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83276.jpg" />
 </div>
 
 
@@ -177,7 +257,7 @@ magnet:?xt=urn:btih:9F31CB981C8FCF9CB14B8B23A57B99FB9207CC16
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83279.jpg" />
 </div>
 
 
@@ -201,7 +281,7 @@ magnet:?xt=urn:btih:DEB731449DDAC914E57D1A32FE9E99FB8C0E18C0
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83280.jpg" />
 </div>
 
 
@@ -227,7 +307,7 @@ magnet:?xt=urn:btih:91E8A918E250EF31641553E399EC48EA1EB99460
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83281.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ magnet:?xt=urn:btih:5311FFA1EE35BBD308DEFEC922545C66E4FDB11D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83283.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ VA - Sensation "Innerspace" -  Belgium'12 (17-03-2012)(Hasselt’s Ethias Arena)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83284.jpg" />
 </div>
 
 
@@ -310,7 +390,7 @@ magnet:?xt=urn:btih:6D0BBB4FCA5FD7EBCCEB750EB89A3DF27D42E8EB
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83285.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ magnet:?xt=urn:btih:D22835A5431B3D2996BBF4FF64C1035DF4F8BB09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83289.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ magnet:?xt=urn:btih:D22835A5431B3D2996BBF4FF64C1035DF4F8BB09
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83291.jpg" />
 </div>
 
 
@@ -384,7 +464,7 @@ magnet:?xt=urn:btih:D01BA243AAED1D8504264F9AB3F74D48BF5A00F7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83292.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ magnet:?xt=urn:btih:D01BA243AAED1D8504264F9AB3F74D48BF5A00F7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83293.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ magnet:?xt=urn:btih:D01BA243AAED1D8504264F9AB3F74D48BF5A00F7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83294.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ magnet:?xt=urn:btih:B3B98769567D57FB4274142505E5F678997EED99
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83295.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ magnet:?xt=urn:btih:DCB319BA0C0B0A349EB9D12B52029E0444189F7B
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83296.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ magnet:?xt=urn:btih:9849D8C413EB8BA7BEEF2F33108766DAFCB1CFF0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83299.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ magnet:?xt=urn:btih:9849D8C413EB8BA7BEEF2F33108766DAFCB1CFF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83300.jpg" />
 </div>
 
 
@@ -552,93 +632,13 @@ magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83301.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Самый вкусный торт - это торт, приготовленный своими руками. И он никогда не будет похож на изделие другой хозяйки, потому что, даже строго соблюдая все пропорции, каждый привносит что-то свое. Если вы побаиваетесь делать первые шаги самостоятельно, давайте готовить вместе.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470438   (83303) от 20.03.2012
-
-Беспечный ездок / Easy Rider (1969) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое байкеров на деньги от контрабанды мексиканских наркотиков пускаются на поиски свободы по южным штатам Америки — из Калифорнии в Луизиану, чтобы успеть на марди-гра. В дороге они понимают, что Америка отнюдь не свободная страна. Чем дальше они заезжают, тем больше рушится у них представление о полной свободе. Никто не подозревал что все так закончится, разрушится как карточный домик их вера, свобода. Люди не могли воспринимать тех, кто хочет жить не так как все. К ним относятся как к преступникам, хотя от тех кто их ненавидит они отличаются только внешним видом, своей индивидуальностью, и непременно тягой к свободе...Жанр: Драма, КриминалРежиссер: Деннис ХопперАктеры: Питер Фонда, Деннис Хоппер, Антонио Мендоза, Фил Спектор, Уоррен Финнерти, Тита Колорадо, Люк Аскью, Луана Андерс, Сэнди Браун Уайет, Роберт Уокер мл., Роберт Болл, Кармен Филлипс, Элли Вуд Уолкер, Майкл Патаки, Джек Николсон, Джордж Фоулер мл., Кейт Грин, Хейярд Робиллард, Арнольд Хесс мл., Даффи ЛафонтПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: Русский, Английский, Английский (SDH)Продолжительность: 01:35:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470271   (83304) от 20.03.2012
-
-Зубная фея 2 / Tooth Fairy 2 (2012) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв девушку, Ларри пытается все исправить, но случайно ему удается обидить одного ребенка сказав, что Зубной Феи не существует. За это Ларри наказывает 500-летняя Зубная Фея. Теперь ему предстоит отработать неделю феей и принести им 10 молочных зубов, иначе его лишат лучшего воспоминания в жизни.Жанр: КомедияРежиссер: Алекс ЗаммАктеры: Ларри Кейбл Гай, Дэвид Маккей, Брэйди Рейтер, Люсиус Бастон мл., Джейкоб Бертран, Шерил КарбонеллПеревод: Любительский многоголосыйЯзык субтитров: АнглийскийПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469792   (83306) от 20.03.2012
-
-Вспоминая Титанов / Remember the Titans (2000) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83306.jpg" />
-</div>
-
-
-###  Подробнее
-
-При виде этих могучих статных парней девушки падают в обморок, а их кавалеры от зависти проливают свое пиво. Это игроки в одну из самых жестких и динамичных спортивных игр мира - американский футбол.
-
-Для них нет большей радости в жизни, кроме как с победным ревом «тачдаун!» впечатать мяч в зачетную зону соперника, оставив за спиной живописную композицию из сшибленных с ног вражеских защитников. Победа!
-
-Но мало кто знает, как труден их путь к славе. Герой этого фильма, тренер Герман Бун - из тех, кто знает. Он пришел в школьную команду «Титаны» когда она совсем не заслуживала свое название.
-
-Преодолевая сопротивление местного тренера Билла Йоста, Бун приступает к превращению банды лоботрясов в дружную команду.
-
-И аутсайдеры «Титаны» постепенно становятся уверенными в себе грозными игроками, готовыми биться за звание чемпионов штата...Жанр: ДрамаРежиссер: Боаз ЯкинАктеры: Дензел Вашингтон, Уилл Пэттон, Вуд Харрис, Райан Херст, Дональд Фэйсон, Крэйг Кирквуд, Этан Сапли, Кип Парду, Хайден Панеттьери, Николь Ари ПаркерПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:53:26
 
 ## Скачать торент
 ```bash

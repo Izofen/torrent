@@ -1,3 +1,80 @@
+###  Публикация: 1680868   (133707) от 30.11.2023
+
+simplewall 3.7.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
+Поддерживаются два режима работы: фильтрация по белому или черному списку.
+Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6347B20C283AFACC46468EEE37BE9D1D498C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680761   (133708) от 30.11.2023
+
+Teorex Inpaint 10.2.3 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inpaint - позволяет умно удалять нежелательные элементы на цифровой фотографии, такие как ненужные объекты, текст, случайно попавшие элементы, а также пыль, царапины и грязь. Программа реконструирует фоновую поверхность. Вам необходимо только обвести объект контурной линией или выделить прямоугольное поле (Lasso, Rectangular) и запустить режим Inpaint. Teorex Inpaint (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CBFC153D3400D5797AB6A60737233451591524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680708   (133710) от 30.11.2023
+
+Русский Размер - Ю-А-Ю (1995) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Techno, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интроспектр
+02. Бэтмен (Ю-А-Ю) I
+03. Врубаем рок I
+04. Звeздный полицай I(   Читать дальше...   )Жанр: Techno, PopПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680816   (133712) от 30.11.2023
 
 Все любят Жанну / Tout le monde aime Jeanne / Everybody Loves Jeanne (2022) BDRemux [H.264/1080p]
@@ -6,7 +83,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133712.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Topaz Video AI 4.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133714.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ VA - Christmas Chillout: 20 Smooth & Holy Lounge Tunes (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133715.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133716.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ magnet:?xt=urn:btih:76ACFE4DA72FC472A669E30A34DFBDC6BD10954A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133719.jpg" />
 </div>
 
 
@@ -144,7 +221,7 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133722.jpg" />
 </div>
 
 
@@ -177,7 +254,7 @@ VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133723.jpg" />
 </div>
 
 
@@ -204,7 +281,7 @@ magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133725.jpg" />
 </div>
 
 
@@ -228,7 +305,7 @@ Music Folder Player Full 3.1.31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133727.jpg" />
 </div>
 
 
@@ -252,7 +329,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133728.jpg" />
 </div>
 
 
@@ -285,7 +362,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133729.jpg" />
 </div>
 
 
@@ -309,7 +386,7 @@ WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133731.jpg" />
 </div>
 
 
@@ -333,7 +410,7 @@ ToonMe 0.6.95 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133733.jpg" />
 </div>
 
 
@@ -357,7 +434,7 @@ AnyBurn 6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133734.jpg" />
 </div>
 
 
@@ -381,7 +458,7 @@ magnet:?xt=urn:btih:6B01D73F884F4D2556B4D66CC680D6DB75C6AAF0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133736.jpg" />
 </div>
 
 
@@ -406,7 +483,7 @@ Ableton Live Suite 12 Beta 12.0b20 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133737.jpg" />
 </div>
 
 
@@ -430,7 +507,7 @@ Mirillis Action! 4.38.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133739.jpg" />
 </div>
 
 
@@ -455,7 +532,7 @@ magnet:?xt=urn:btih:934E27AE7182A10B020D629EE75BF69B4622B191
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133740.jpg" />
 </div>
 
 
@@ -479,7 +556,7 @@ magnet:?xt=urn:btih:FF02A02980700308F8E865BEBE966D68B2ECA100
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133741.jpg" />
 </div>
 
 
@@ -503,7 +580,7 @@ magnet:?xt=urn:btih:A72FF04F39F9396E1927A1E65B3D18A42D46B9DD
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133743.jpg" />
 </div>
 
 
@@ -527,7 +604,7 @@ Peter Gabriel - i/o (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133744.jpg" />
 </div>
 
 
@@ -554,7 +631,7 @@ magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133745.jpg" />
 </div>
 
 
@@ -578,7 +655,7 @@ Glary Disk Explorer 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133746.jpg" />
 </div>
 
 
@@ -590,78 +667,6 @@ Glary Disk Explorer - небольшая утилита, которая нагл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E345A6025122ED479B5BBD6DC5F1FE859FF939
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680598   (133747) от 30.11.2023
-
-Лемон Дроп Кид / The Lemon Drop Kid (1951) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133747.jpg" />
-</div>
-
-
-###  Подробнее
-
-У мошенника из Нью-Йорка Лемона Дроп Кида есть время до Рождества, чтобы заработать 10 000 долларов, которые он должен гангстеру Муса Морану, что побудило его заняться мошенничеством в ускоренном режиме. К счастью, скоро Рождество, время, когда людей можно убедить расстаться с деньгами ради "правого" дела.Производство: США / Hope EnterprisesЖанр: мелодрама, комедия, криминал, музыкаРежиссер: Сидней Лэнфилд, Фрэнк ТэшлинАктеры: Боб Хоуп, Мэрилин Максвелл, Ллойд Нолан, Джейн Дарвелл, Андреа Кинг, Фред Кларк, Джей С. Флиппен, Уильям Фроули, Гарри Беллэвер, Сид МелтонПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские (forced - на песни, full)Продолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D63A99791B941BFBC4A4B204A97863E4DB4DFDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680772   (133748) от 30.11.2023
-
-Affinity Photo 2 v.2.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2023Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: OS X 10.15 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E5B9A55644FC0AAFD97EF45AB2564B85902934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680659   (133749) от 30.11.2023
-
-Пройдёт (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о молодой паре, которая столкнулась с проблемами по кредиту.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Алексей ТарасовАктеры: Александра Китабова, Альберт Шафигуллин, Ярослава Мянчинская, Евгений ЯкушевСубтитры: отсутствуютПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A2D75E2DA88A092B857A7EFE8B8E76151F5254
 ```
 
 

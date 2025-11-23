@@ -1,3 +1,86 @@
+###  Публикация: 482154   (87974) от 12.04.2012
+
+Глаза дракона / Dragon Eyes (2012) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Орлеан, наши дни. Как и любой другой процветающий мегаполис мира, — это город контрастов, где есть и блеск, и грязь, встречаются роскошные дворцы и нищенские трущобы, где есть место великим возможностям и невероятным шансам самореализации, а вместе с тем — рискованным случайностям и проблематичным ситуациям.Жанр: Боевик, Драма, КриминалРежиссер: Джон ХайамсПродюсер: Алан Амиел, Стив Ричардс, Джоэл СилверАктеры: Жан-Клод Ван Дамм, Питер Уэллер, Кунг Ле, Кристофер Ван Варенберг, Луис Да Силва мл., Кристал Мантекон, Моника Акоста, Эрик Браун, Эдди РоусПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2671FC8A0BADEF08A8FCB577CC04D35FE87B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482073   (87975) от 12.04.2012
+
+The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  The Crusaders -  Stomp And Buck Dance  (5:50)
+02..  Down to the Bone -  Staten Island Groove  (6:46)
+03..  The Crusaders -  Creepin'  (6:57)
+04..  Down to the Bone -  The Zodiac  (7:49)
+05..  The Crusaders -  Soul Shadows  (6:21)
+06..  Down to the Bone -  Black Choice  (5:53)
+07..  The Crusaders -  Honky Tonk Struttin  (4:23)
+08..  Down to the Bone -  Gotta Get Back To You  (5:11)
+09..  The Crusaders -  Spiral  (6:10)
+10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481816   (87976) от 12.04.2012
+
+[Программа] (Андроид 2.1+) Dolphin Rainbow - Резвящиеся дельфины в радужном океане.
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dolphin Rainbow - Это красивая радуга в голубом небе.
+Резвящиеся дельфины в красивом синем океане.
+Фантастические обои в мире фантазий.2011
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481913   (87978) от 12.04.2012
 
 Deep Purple - Phoenix Rising (2011) DVD9
@@ -6,7 +89,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87979.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ magnet:?xt=urn:btih:50F9B5A5A325AA4D3CB590BBD024F3E66FE2C6A6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87981.jpg" />
 </div>
 
 
@@ -85,7 +168,7 @@ magnet:?xt=urn:btih:BED508452CE2412BE35E6B8AC8E9BBA3668F7663
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87982.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ magnet:?xt=urn:btih:5F76AFBB536EA523036B6834F076B73932A2E588
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87986.jpg" />
 </div>
 
 
@@ -134,7 +217,7 @@ Elsiane - Mechanics of Emotion (2012) [MP3|320 кб/с]<Trip-Hop, Dream-Pop, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87989.jpg" />
 </div>
 
 
@@ -167,7 +250,7 @@ magnet:?xt=urn:btih:F667F556FC7B31CFA2555854F8B23F1F56BB497C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87993.jpg" />
 </div>
 
 
@@ -192,7 +275,7 @@ Captain Morgane and the Golden Turtle [Multi3/-] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87995.jpg" />
 </div>
 
 
@@ -217,7 +300,7 @@ VA - Музыка для успокоения и отдыха (2001) [MP3|192 к
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87998.jpg" />
 </div>
 
 
@@ -250,7 +333,7 @@ Cherry Laine - Greatest Hits (2000) [MP3|256 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87999.jpg" />
 </div>
 
 
@@ -283,7 +366,7 @@ magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88000.jpg" />
 </div>
 
 
@@ -309,7 +392,7 @@ magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88001.jpg" />
 </div>
 
 
@@ -333,7 +416,7 @@ NoName | Защита флешки [2012] [EXE]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88004.jpg" />
 </div>
 
 
@@ -357,7 +440,7 @@ VA - Top 100 Зайцев.нет (11.04.2012) (2012) [MP3|128-320 kbps]<Alternat
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88005.jpg" />
 </div>
 
 
@@ -390,7 +473,7 @@ magnet:?xt=urn:btih:5D64B2F8EEC5BAC7204B936CAFFB5CD1340A4588
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88009.jpg" />
 </div>
 
 
@@ -414,7 +497,7 @@ magnet:?xt=urn:btih:327A5CE68232340AEEE366CE5C23AE44989438FE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88010.jpg" />
 </div>
 
 
@@ -438,7 +521,7 @@ Noella - Beautiful Sorrow (2010) [MP3|192 кб/с]<Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_88015.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_88015.jpg" />
 </div>
 
 
@@ -471,7 +554,7 @@ Bahh Tee - Ты Меня Не Стоишь (2011) [MP3|320 кб/с]<Rap, Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88016.jpg" />
 </div>
 
 
@@ -504,7 +587,7 @@ Lichtmond (2010) BDRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88017.jpg" />
 </div>
 
 
@@ -538,7 +621,7 @@ magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88018.jpg" />
 </div>
 
 
@@ -562,7 +645,7 @@ magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88023.jpg" />
 </div>
 
 
@@ -587,7 +670,7 @@ magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88025.jpg" />
 </div>
 
 
@@ -614,7 +697,7 @@ magnet:?xt=urn:btih:61FEA1DACA1E34B8B5F3FF60722C57A8E2A7FD64
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88026.jpg" />
 </div>
 
 
@@ -625,78 +708,6 @@ magnet:?xt=urn:btih:61FEA1DACA1E34B8B5F3FF60722C57A8E2A7FD64
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482225   (88027) от 12.04.2012
-
-Глаза дракона / Dragon Eyes (2012) HDRip [ЛД]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый Орлеан, наши дни. Как и любой другой процветающий мегаполис мира, — это город контрастов, где есть и блеск, и грязь, встречаются роскошные дворцы и нищенские трущобы, где есть место великим возможностям и невероятным шансам самореализации, а вместе с тем — рискованным случайностям и проблематичным ситуациям.Жанр: Боевик, Драма, КриминалРежиссер: Джон ХайамсПродюсер: Алан Амиел, Стив Ричардс, Джоэл СилверАктеры: Жан-Клод Ван Дамм, Питер Уэллер, Кунг Ле, Кристофер Ван Варенберг, Луис Да Силва мл., Кристал Мантекон, Моника Акоста, Эрик Браун, Эдди РоусПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4964871FFB8EDF6F8DB5B42218DA29BE0946BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481979   (88031) от 12.04.2012
-
-Conquest: Frontier Wars (RePack) [Ru] 2001 | Pilotus
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquest: Frontier Wars — космическая стратегия реального времени. В отличие от других игр этого жанра, уровни в «Conquest» играются на нескольких различных картах одновременно, соединённых точками перехода.Базы могут быть построены на орбите планет любой системы, но для этого игроку необходимо установить линии снабжения между системами. Каждый корабль имеет ограниченное количество единиц снабжения, которые исчерпываются по мере использования оружия и спец-устройств. Корабли истощившие свой запас являются летающими мишенями пока не вернутся на базу для перезарядки. Поэтому использование кораблей снабжения является важной частью эффективного нападения. В кампании присутствуют адмиралы которые функционируют как герои. В многопользовательских играх, адмиралы являются лидерами флота (воеводы для мантисов и магистраты для селареонов). Целые эскадры могут быть сгруппированы челноком адмирала; это даёт определённые бонусы всему флоту и позволяет более успешный контроль кораблей.Тип издания: RePackЖанр: Космическая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481470   (88032) от 12.04.2012
-
-Юрий Шатунов - 3 альбома (2002-2004) [MP3|192 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88032.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002-2004Жанр: PopПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FB5CDF7AF1D207BAC2E795488E599FBF897826
 ```
 
 

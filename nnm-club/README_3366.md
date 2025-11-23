@@ -1,3 +1,80 @@
+###  Публикация: 1733875   (107198) от 01.07.2024
+
+Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melancholic Drone, Drone Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer [00:19:42]
+02. Distance [00:16:42]
+03. Return [00:02:39]Жанр: Melancholic Drone, Drone AmbientПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733911   (107199) от 01.07.2024
+
+Джозеф Шугерман | Искусство создания рекламных посланий (2021) [MP3, Jo]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся американский копирайтер, стоящий в одном ряду с такими рекламными личностями, как Дэвид Огилви, Джон Кейплс, Лео Барнетт, совершенно справедливо утверждает, что несмотря на технологические перемены, несмотря на развитие телевидения, Интернета, основные рекламные подходы остаются неизменными. Как остаются неизменными потребители – это, прежде всего, сами (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 04:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245084FCF5E306F480843E99854324BD4989C226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733908   (107200) от 01.07.2024
+
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Испания - Грузия (30.06.2024) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Испания - Грузия (30.06.2024)
+СУДЬЯ Летексье Франсуа (Франция)
+Судья на линии 1: Мюнье Сириль (Франция)
+Судья на линии 2: Рамуни Меди (Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733806   (107201) от 01.07.2024
 
 Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +83,7 @@ Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107201.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:5E0B284EEBB62EC190A1E639506439260C43131C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107202.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107203.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107204.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107205.jpg" />
 </div>
 
 
@@ -138,7 +215,7 @@ magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107206.jpg" />
 </div>
 
 
@@ -164,7 +241,7 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107207.jpg" />
 </div>
 
 
@@ -191,7 +268,7 @@ magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107208.jpg" />
 </div>
 
 
@@ -218,7 +295,7 @@ VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107209.jpg" />
 </div>
 
 
@@ -245,7 +322,7 @@ magnet:?xt=urn:btih:0792BF1E6BE289BD2D65990B41B409E011E416B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107210.jpg" />
 </div>
 
 
@@ -271,7 +348,7 @@ VA - Strolling - Rock & Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107211.jpg" />
 </div>
 
 
@@ -298,7 +375,7 @@ VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107212.jpg" />
 </div>
 
 
@@ -325,7 +402,7 @@ Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107213.jpg" />
 </div>
 
 
@@ -352,7 +429,7 @@ magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107214.jpg" />
 </div>
 
 
@@ -379,7 +456,7 @@ Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107215.jpg" />
 </div>
 
 
@@ -406,7 +483,7 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107216.jpg" />
 </div>
 
 
@@ -433,7 +510,7 @@ Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107217.jpg" />
 </div>
 
 
@@ -460,7 +537,7 @@ magnet:?xt=urn:btih:5B84A6E3991B388B3636154C092E0E3265165784
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107218.jpg" />
 </div>
 
 
@@ -485,7 +562,7 @@ VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107219.jpg" />
 </div>
 
 
@@ -512,7 +589,7 @@ Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107220.jpg" />
 </div>
 
 
@@ -539,7 +616,7 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107221.jpg" />
 </div>
 
 
@@ -566,7 +643,7 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107222.jpg" />
 </div>
 
 
@@ -593,7 +670,7 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107223.jpg" />
 </div>
 
 
@@ -607,87 +684,6 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35187B843C4226331385972204AFCCE87D820A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733840   (107224) от 30.06.2024
-
-Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sands (4:02)
-02. Push (6:07)
-03. Back At It Again (4:58)
-04. Mode (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339ACCB456FCFE4FE8C838B2946FE7FA08046552
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733821   (107225) от 30.06.2024
-
-Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:59)
-02. Confidential (4:27)
-03. Midnight In Mid City (5:22)
-04. La Dolce Vida (6:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2B75E596834415F3F46B3611CEB0434EB6F393
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733734   (107226) от 30.06.2024
-
-James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save The Savior [00:04:05]
-02. In Grey [00:06:10]
-03. Midnight [00:04:58]
-04. Woo [00:02:49](   Читать дальше...   )Жанр: Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-HopПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F829BBD9544D8D39EC89C232EE91B5FB7149A4
 ```
 
 

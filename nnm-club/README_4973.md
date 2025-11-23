@@ -1,3 +1,180 @@
+###  Публикация: 1600943   (154082) от 29.12.2022
+
+Strike '85 - Tears in Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Cassette (Intro) [00:01:55]
+02. Strike 85 [00:03:18]
+03. Vague Dreams [00:03:36]
+04. Tears in Rain [00:04:18](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645C6E9E10BCB2797D53B6B14D6F7763A3A2E9BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518680   (154083) от 20.12.2021
+
+TechSmith Snagit 2022.0.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154083.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8715F9ABD071B4ED0B09437DE11157DE181EC4B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194895   (154084) от 26.12.2017
+
+enCAPSULAte (aka Capsula) - Alan Watts Encapsulated (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beep (It’s A Memory Cue Signal) (08:15)
+02. This Is Yourself (It’s A Happening) (09:52)
+03. Relax (It’s The Ultimate Attainment Of The Human Being) (08:47)
+04. It Starts Now (So Cheer Up) (09:23)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02097AE41C9923BFB499D34CCC9001FC621D6167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434003   (154085) от 22.12.2020
+
+AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154085.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9446A74AD5B93CAB898A525FBC04C508B1CBEF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347120   (154086) от 22.12.2019
+
+PhotoScape X Pro 4.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154086.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoScape X Pro – это простой и быстрый инструмент для редактирования фотографий. Помимо основных функций, таких как изменение размера, обрезка и повороты, вы можете применять различные эффекты и корректировки с помощью всего одного клика. Вы также можете украсить свои фотографии с помощью таких инструментов, как фреймы, наклейки (стикеры) и кисти.
+
+В качестве более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Mooii TechПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B57CE15E3C7A6A667A3BE19E9A476FB3556BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086075   (154087) от 23.12.2016
+
+Проекты - Motion Array - Epic Neon In The Night Street - 21707 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Neon In The Night Street - это потрясающий и уникальный шаблон, который легко настроить. Он имеет 2 версии. Добавьте ваш текст, поместите ваш логотип и жмите рендер для получения фантастического результата. Бесплатный VC Saber плагин необходим для данного проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C30FB06CBC8B00F86537D30B35FD0BAA6EB89F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676923   (154088) от 15.11.2023
+
+Исповедь / Une confession (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тело Мод лежит у подножия одной из скал горной гряды Сент-Виктуар. На допросе в полиции ее муж Жан объясняет: во время их совместной утренней прогулки она оступилась и упала. Дело закрыто без дальнейших разбирательств. Спустя неделю показания мужа ставят под сомнение...
+Адаптация романа британского писателя Джона Уэйнрайта / John Wainwright "Тупик / Cul-de-sac" (   Читать дальше...   )Производство: Франция / Albertine Productions, France Télévisions, BE-FILMSЖанр: триллер, драма, криминалРежиссер: Элен ФийерАктеры: Лоран Жерра, Катрин Фро, Диана Руксель, Антуан Дюлери, Тео Ожье, Лола Девэр, Гийом Арно, Эммануэль Салинже, Кристель Барде, Клод-Александр Эклар и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: НетПродолжительность: 01:26:57Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EDA955BC4811EB4D0ACB41EA540F49BD825180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271038   (154089) от 21.12.2018
 
 Кумбалгарх и Ранакпур / Kumbhalgarh and Ranakpur (2018) WEBRip [VP9/2160p] [4K, HDR]
@@ -6,7 +183,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154089.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:4F1E8811DF44EBF6B6B6578C0EB9880158E785C8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154090.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ ACDSee Photo Studio 8 v8.0.2283 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154091.jpg" />
 </div>
 
 
@@ -79,7 +256,7 @@ magnet:?xt=urn:btih:F2E728659FD2515E7EC1004C12BE00BF83A5636D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154092.jpg" />
 </div>
 
 
@@ -104,7 +281,7 @@ magnet:?xt=urn:btih:1550CA3A6A94B40222E4C3A05B819B0CB345EE1D
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154093.jpg" />
 </div>
 
 
@@ -131,7 +308,7 @@ magnet:?xt=urn:btih:85A68C11117A1709014AFD5C9655270923E4D62B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154094.jpg" />
 </div>
 
 
@@ -155,7 +332,7 @@ magnet:?xt=urn:btih:24727F1D00AB93F8C69136A3483F4CF18A470741
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154095.jpg" />
 </div>
 
 
@@ -181,7 +358,7 @@ magnet:?xt=urn:btih:633CFEFEF0D8B42F51D77308142FEBE1AA4CAB86
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154096.jpg" />
 </div>
 
 
@@ -205,7 +382,7 @@ magnet:?xt=urn:btih:20A74754313A13445E4C460916B5028E1BF19293
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154097.jpg" />
 </div>
 
 
@@ -229,7 +406,7 @@ magnet:?xt=urn:btih:A3A9B3EA6232648CC2575B832C48FEF82BBE472B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154098.jpg" />
 </div>
 
 
@@ -255,7 +432,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154099.jpg" />
 </div>
 
 
@@ -282,7 +459,7 @@ magnet:?xt=urn:btih:D61B53A01819F7AC57A2B1F3FCB235DB95C0F968
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154100.jpg" />
 </div>
 
 
@@ -309,7 +486,7 @@ magnet:?xt=urn:btih:D2CA45313C76637C2E70D7F4E5937E225DC85A3E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154101.jpg" />
 </div>
 
 
@@ -336,7 +513,7 @@ The Bat! Voyager 7.4.0.1 Final Portable by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154102.jpg" />
 </div>
 
 
@@ -360,7 +537,7 @@ VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154103.jpg" />
 </div>
 
 
@@ -387,7 +564,7 @@ Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154104.jpg" />
 </div>
 
 
@@ -414,7 +591,7 @@ Mozilla Thunderbird 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154105.jpg" />
 </div>
 
 
@@ -438,7 +615,7 @@ magnet:?xt=urn:btih:0505F323BF9A2132F47589673BBE28ABF5AEFA2C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154106.jpg" />
 </div>
 
 
@@ -462,7 +639,7 @@ magnet:?xt=urn:btih:5ECB4138F3A5374BB681F05C90A061C090423E58
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154107.jpg" />
 </div>
 
 
@@ -474,183 +651,6 @@ magnet:?xt=urn:btih:5ECB4138F3A5374BB681F05C90A061C090423E58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85938EF0C550FC62818E58FD72CCC2CDA32748B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518537   (154108) от 20.12.2021
-
-SolarFlow - Zodiac (2021) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capricom (Original Mix) (4:00)
-02. Aquarius (Original Mix) (5:20)
-03. Pisces (Original Mix) (4:22)
-04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DCA7905661A365E0BF61D449D0A4016436959F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086122   (154109) от 23.12.2016
-
-VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Леонид Утёсов - Всюду вас ожидают друзья (02:32)
-02. Людмила Гурченко - Пять минут (03:32)
-03. Майя Кристалинская - Новогодняя песня (02:10)
-04. Нина Бродская - Русская зима (03:05)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600995   (154110) от 29.12.2022
-
-Джудит Герман | Травма и исцеление. Последствия насилия – от абьюза до политического террора (2021) [MP3, Наталья Карпинская]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это основополагающий текст о понимании людей, переживших психологическую травму. Помещая индивидуальный опыт в более широкие политические рамки, психиатр из Гарварда Джудит Герман утверждает, что психологическая травма неотделима от её социального и политического контекста. Опираясь на своё собственное исследование насилия над детьми, а также обширную литературу (   Читать дальше...   )Жанр: клиническая психология, о психологии популярно, психотерапияПеревод: Элеонора МельникПродолжительность: 15:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485ACB2DDC3931861890FADB4EEBE7BECAE6E8A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676855   (154111) от 15.11.2023
-
-Кристина Милославская | Курс по основам композиции «Истина в пятне 3.0» (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154111.jpg" />
-</div>
-
-
-###  Подробнее
-
-КУРС ПОДХОДИТ ДЛЯ ВСЕХ ТВОРЧЕСКИХ ЛЮДЕЙ.
-ЗДЕСЬ ДАЕТСЯ БАЗА, ПЕРВЫЙ ВАЖНЫЙ ШАГ К СОЗДАНИЮ ЛЮБОЙ КАРТИНЫ.
-
-1 Изучение пятна, основ понимания гармонии и красоты больших форм(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 07:37:29Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347233   (154112) от 22.12.2019
-
-Сто к одному (22.12.2019) WEB-DL [H.264] [MP4|1280x720]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D6D1D52AEB3BA2C0B0647FCF801953E5D1E899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518655   (154113) от 20.12.2021
-
-Повешение в Джефферсон-Сити / Pendaison a Jefferson City / Hanging at Jefferson City (1910) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три друга — Джо, Бёртон и Билл — работают в шахтёрском посёлке. Биллу поручено доставить зарплату шахтёрам в отдалённый пункт, и он просит Бёртона сопроводить его. Джо уговаривает Бёртона не идти с Биллом, и на обратном пути с Биллом случается несчастье — он тонет в болоте. Теперь Бёртона подозревают в том, что он утопил Билла и украл деньги шахтёров, и только Джо (   Читать дальше...   )Производство: Франция, Société des Etablissements L. GaumontЖанр: Короткометражный, вестерн, немое киноРежиссер: Жан ДюранАктеры: Жоэ Амман, Гастон Модо, Берт Дагмар, Joaquim Renez, Гюстав Хэмилтон, Раймон ЭмосПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские встроенные отключаемые (Gellard)Продолжительность: 00:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D640FC706882962D382AEB17DEBE37306C35E8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676833   (154114) от 15.11.2023
-
-Юрий Москаленко | Перекрёсток судьбы (Книга 2). Пустышка - 2 (2023) [MP3, Вадим Ерофеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бояре анимэ. Альтернативная история России. Приключения почти простолюдина. Антимаг, но какой-то неправильный. Без войн… просто развитие и жизнь по приколу…Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5942D6E4C77E106AF998979D3C7CADD81C1822D8
 ```
 
 

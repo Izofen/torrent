@@ -1,3 +1,77 @@
+###  Публикация: 1684267   (127873) от 15.12.2023
+
+Гномы. Новогодний беспредел / There's Something in the Barn (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Нового года, когда принято палить в воздух из бутылок шампанского, взрывать хлопушки и записывать тиктоки, есть те, кто не любит тиктоки и взрывы. Это амбарные гномы. Они мечтают о миске овсяных хлопьев и тишине. А любого, кто нарушит их покой и забудет покормить, ждёт страшная участь. Они будут иметь дело с целым полчищем гномов, вооруженных (   Читать дальше...   )Производство: Норвегия, Финляндия / 74 Entertainment, Charades, Don FilmsЖанр: ужасы, фэнтези, комедияРежиссер: Магнус МартенсАктеры: Мартин Старр, Амрита Ачария, Киран Шах, Таунс Баннер, Зои Винтер-Хансен, Калле Хеллеван-Ларсен, Генриетта Стинстрап, Йеппе Бек Лаурсен, Эльдар Воган, Марианн ЮнгерПеревод: Дублированный (звук с ТС)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:16Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684399   (127874) от 15.12.2023
+
+Ableton - Live 12 12.0b22 (x64) Beta [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ableton Live позволяет вам легко создавать, производить и исполнять музыку в одном интуитивно понятном интерфейсе.
+Live синхронизирует все и работает в режиме реального времени, поэтому вы можете воспроизводить и изменять свои музыкальные идеи, не прерывая творческий процесс.
+Но Live также имеет революционный Session View: уникальный блокнот для импровизации, игры (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (Русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E69A88915B9A86687FE7D449A1DC8FC617FB0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684526   (127875) от 15.12.2023
+
+Glary Utilities Pro 6.3.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F405068BB13E9B1BF4960BD194A370597FC9F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684093   (127876) от 15.12.2023
 
 Блеск (2023) WEBRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-8 из 8)
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127876.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Malwarebytes Windows Firewall Control 6.9.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127877.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ MEmu 9.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127878.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127879.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Air: Большой прыжок / Air (2023) BDRip [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127880.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:75E62131D3356FE62BA64E3351C45DFDD1715A78
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127881.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7111 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127882.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Doom отмечает 30 лет: как игра завоевала сердца
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127883.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Doom отмечает 30 лет: как игра завоевала сердца
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127884.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:8B3AE0496378356CBE03148A19A50A89D44A0FC2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127885.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:B694981A77D6181ED181B1A5ED7A53BAB395DCF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127886.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:51085E927FEC53C007A649D75E38AFD1AE4CBA64
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127887.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ magnet:?xt=urn:btih:26A0DA1D533C7AFE97C7B978FC737192D1B5789B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127888.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:29E09821B1FB3588B28A009569AB194F27710A02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127889.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:1C4D31D4F17E16DE1CDF1F90552FE31750D140E3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127890.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:E40B87F1EC4263D317A888B390D1FB314FC431CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127891.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ magnet:?xt=urn:btih:6BC541FE398D903A73A0045F4D3D23BF827CBFC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127892.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ Capture One 23 Enterprise 16.3.3.1813 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127893.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ magnet:?xt=urn:btih:877CB9DD94B28A93A1BE46AE8DF14BE25E114F34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127894.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:C6709541162A5E1CED3A532A1CE04FC3B2A5AE2F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127895.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:27FE826F54A95B068ACDC2C41E4869B6E1022805
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127896.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ Far Manager 3.0.6226 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127897.jpg" />
 </div>
 
 
@@ -538,7 +612,7 @@ magnet:?xt=urn:btih:7D1753814F2BC19F7C5AF487A153A29A30E2B95A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127898.jpg" />
 </div>
 
 
@@ -549,81 +623,6 @@ magnet:?xt=urn:btih:7D1753814F2BC19F7C5AF487A153A29A30E2B95A
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426672   (127899) от 15.12.2023
-
-Маргарет Митчелл | Унесённые ветром (2005) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Истории любви».
-«Говорящая книга» – явление для всех нас с детства знакомое, и, одновременно, совершенно новое. XXI век позволил на легком маленьком CD уместить толстый книжный том, на много часов чтения. Сберегая время и драгоценное зрение, теперь можно получать информацию самым простым и естественным способом. Именно на слух младенец начинает постигать (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПродолжительность: 28:25:12
-
-Проходят годы и годы, но «Унесенные ветром» не стареют, и теперь уже новым читателям и читательницам, а вернее для «Говорящей книги» – слушателям и слушательницам, предстоит смеяться и плакать, любить и страдать, бороться и надеяться вместе с великолепной Скарлетт О'Хара.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEA526CA8AEF3AEFCBD83A709E3162178722C18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684290   (127900) от 15.12.2023
-
-Гардемарины 1787. Война (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители западных держав в очередной раз начинают свои козни против России, но возмужавшие гардемарины и их повзрослевшие дети снова встают на защиту Родины. Проделав рискованный путь с острова Мальта до Крыма, они неожиданно становятся участниками исторического сражения при Кинбурне под началом генерала Александра Суворова.Производство: Россия, Сагиттариус - ДЖанр: приключения, историяРежиссер: Светлана ДружининаАктеры: Дмитрий Харатьян, Александр Домогаров, Михаил Мамаев, Владимир Суровцев, Ольга Машная, Ника Здорик, Андрей Лаптев, Федор Гамалея, Даниил Зайцев, Фёдор ДобронравовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AB9B887F99BA9B33726D132C519DCE428FEB0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684430   (127901) от 15.12.2023
-
-Cookie Cutter (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cookie Cutter - жестокая постапокалиптическая 2D-Метроидвания. Бездна. Материя. Мегаструктура. Мир-антиутопия, где безумный лидер жаждет раскрыть секреты вселенной. Корпорация ИНФОНЕТ пообещала построить утопию на плечах без устали трудящихся андроидов, называемых Дензели. Это была ложь. 200 лет спустя: планета находится в упадке, а загадочное Красное семя украдено. (   Читать дальше...   )Тип издания: SceneРазработчик: Subcult Joint LTDЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
 ```
 
 

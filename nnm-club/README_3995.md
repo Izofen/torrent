@@ -1,3 +1,79 @@
+###  Публикация: 1691063   (123552) от 10.01.2024
+
+Снимок / Snapshot (1979) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать-пуританка выгоняет 19-летнюю Анжелу из дома за легкомысленное поведение и страсть ко всевозможным тусовкам Девушка не отчаивается и вскоре находит себя в модельном бизнесе. Помимо неплохого заработка новое место работы дарит ей и множество поклонников, одним из которых оказывается её бывший бойфренд, начинающий преследовать Анжелу по всему городу.Производство: Австралия / Australian International Film Corp. (AIFC), Filmways Australasian Distributors, F.G. Film ProductionЖанр: ужасы, триллер, драмаРежиссер: Саймон УинсерАктеры: Шанталь Контури, Роберт Брюнинг, Сигрид Торнтон, Хью Кияс-Бёрн, Денис Дрисдейл, Винсент Джил, Джон Сидни, Жак Гордон, Джулия Блейк, Питер СтрэтфордПеревод: Авторский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские (forced - на песни, full), английские (full, SDH)Продолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772AE9E5639267D06F27B2AA447FDC219437768F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691067   (123553) от 10.01.2024
+
+V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj X-perience - Moon Beat (5:12)
+02. The Black Mighty Orchestra - Ocean Beach (Cybophonia Cinematic Remix)
+03. Le Berry - El Verde Amanacer
+04. Zeb - From The Distance(   Читать дальше...   )Жанр: Chill Out, Downtempo, Nu JazzПродолжительность: 05:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA65035E8432CC5F0C5559A83ADDBA3FBDDD41B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690988   (123554) от 10.01.2024
+
+Joplin 2.13.13 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joplin - это бесплатное приложение для создания заметок и дел с открытым исходным кодом, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
+Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409A5FBC0702A92EEE045B7BF739A5F4F55BD103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691071   (123555) от 10.01.2024
 
 Дмитрий Вострецов | Колода карт геймдизайнера. 127 игровых механик для брейншторминга (2023) [PDF]
@@ -6,7 +82,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123555.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:35B48EF8D313B9F848C4BC686A7226EB1BEBAAC3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123556.jpg" />
 </div>
 
 
@@ -59,7 +135,7 @@ Adobe Acrobat Pro 23.8.20458 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123557.jpg" />
 </div>
 
 
@@ -83,7 +159,7 @@ magnet:?xt=urn:btih:00DF9C2A11B8AC71F7D5F1EDF34C0A6D74F380F7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123558.jpg" />
 </div>
 
 
@@ -107,7 +183,7 @@ magnet:?xt=urn:btih:5EAD47B301EB0D0BBA67167E83A65246A0F14C43
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123559.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ Topaz Photo AI 2.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123560.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ WifiInfoView 2.92 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123561.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:D9F5179A3B735EF98749051AA736B67023D9126C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123562.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123563.jpg" />
 </div>
 
 
@@ -232,7 +308,7 @@ Topaz Video AI 4.0.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123564.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ magnet:?xt=urn:btih:76CC486B73C80D7B3838AEE135EA5A207B7E243B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123565.jpg" />
 </div>
 
 
@@ -281,7 +357,7 @@ magnet:?xt=urn:btih:5039A95A36FF7B4F894FA47B9F3A255AFBC1135B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -308,7 +384,7 @@ Red Button 5.98 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123567.jpg" />
 </div>
 
 
@@ -332,7 +408,7 @@ PDF-XChange Editor Plus 10.2.0.384 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123568.jpg" />
 </div>
 
 
@@ -356,7 +432,7 @@ Serif Affinity Photo 2.3.1.2217 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123569.jpg" />
 </div>
 
 
@@ -380,7 +456,7 @@ Duplicate File Detective 7.2.74.0 (x64) Professional / Enterprise / Site Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123570.jpg" />
 </div>
 
 
@@ -404,7 +480,7 @@ Master PDF Editor 5.9.81 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123571.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ Wondershare PDFelement 10.2.4.2612 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123572.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ VueScan Pro 9.8.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123573.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ PhotoLine 24.01 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123574.jpg" />
 </div>
 
 
@@ -501,7 +577,7 @@ magnet:?xt=urn:btih:64332DC1771775C81D1EFA0148509C1E462C3847
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123575.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:9EB7EF2199FDCD2F0D9CA6806BD5C861FB0BC47C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123576.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ magnet:?xt=urn:btih:12959A6D2DBBE30E8FA79C391F3CEE94D7D313D1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123577.jpg" />
 </div>
 
 
@@ -562,80 +638,6 @@ magnet:?xt=urn:btih:12959A6D2DBBE30E8FA79C391F3CEE94D7D313D1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE15051C5A6F299CA9698C885D8E3B0BF70C6701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691038   (123578) от 10.01.2024
-
-Продавцы боли / Pain Hustlers (2023) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиза Дрейк бросила колледж и отправилась на поиски лучшей жизни для себя и своей маленькой дочери. Получив работу в обанкротившемся фармацевтическом стартапе, она, благодаря мужеству и напористости, вдохнула в компанию новую жизнь. Однако с большими деньгами приходят и риски.Производство: Великобритания, США / Grey Matter Productions, Wychwood MediaЖанр: Драма, криминалРежиссер: Дэвид ЙейтсАктеры: Эмили Блант, Крис Эванс, Кэтрин О’Хара, Энди Гарсиа, Хлоя Коулмэн, Джей Дюпласс, Амит Шах, Valerie LeBlanc, Обри ДолларПеревод: Многоголосый профессиональный (Jaskier 18+)Язык озвучки: русскийСубтитры: Русские, английские (отдельно)Продолжительность: 02:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84557931BF504EF686D4125141CFF529DF0FCC7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385134   (123579) от 10.01.2024
-
-Михаил Салтыков-Щедрин | Господа Головлёвы (Радиоспектакль) (2005) [MP3, Аркадий Смирнов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда.
-Спектакль «Господа Головлевы» по роману великого русского сатирика Салтыкова-Щедрина ярко, образно и с большим мастерством преподносит нам дух той эпохи, которую Н.Некрасов определил как: "Бывали хуже времена, но не было подлей". Отчетливо проступает образ нынешней России, хотя произведению уже более 130 лет. Главный (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C92D12D19C7E528F80DCE353311186529C33B7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365829   (123580) от 10.01.2024
-
-Зиновий Высоковский | Мой Высоцкий (2006) [MP3, Зиновий Высоковский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неутомимый, любознательный и простодушный Пан Зюзя из популярнейшего телевизионного «Кабачка 13 стульев», автор и исполнитель эстрадных монологов, с легкой руки которого чуть ли не в каждой семье появился свой «Люлёк» – это наиболее узнаваемые проявления Народного артиста России Зиновия Высоковского.
-Более внимательные зрители помнят и ценят его обаятельного Мишку-фотокорреспондента (   Читать дальше...   )Жанр: Жизнь замечательных людей, мемуары, поэзияПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1971651AF4F7668C7EE6B7A044F3428C4959127F
 ```
 
 

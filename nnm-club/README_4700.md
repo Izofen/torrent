@@ -1,3 +1,181 @@
+###  Публикация: 1087183   (145687) от 27.12.2016
+
+Substance Painter 2.4.1 build 1383 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Substance Painter - современное решение для 3D-рисования с невиданными возможностями и оптимизированным рабочим процессом, позволяющее создавать текстуры проще, чем когда-либо.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6521F42F0382175E4403BAB969844C58F76FF83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969975   (145688) от 28.12.2015
+
+VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illuminus - The Purrts Of Navarone [06:55]
+02. Lemonchill - I Missed a Heart Beat - Deep in Mind Remix [06:09]
+03. Argus - Elenya [07:13]
+04. Flux Natura - Reconnect to Our True Elves [12:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E7D7EAD97457965022049D389B0A5EB68872E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520126   (145689) от 26.12.2021
+
+Cocktail Monterey Edition 15.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2021Разработчик: © 2021 MaintainПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347847   (145691) от 26.12.2019
+
+Противостояние / The One (2001) BDRip [H.264/1080p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если твой мир рушится, когда в него вторгается безжалостный пришелец из параллельных миров? Стремясь стать сверхчеловеком, агент Межпространственного Бюро Расследований Юло совершает головокружительное сафари по параллельным мирам, охотясь за своими двойниками.
+Силы его растут с каждой новой жертвой, их жизненная энергия аккумулируется в нем, наделяя (   Читать дальше...   )Производство: США / Revolution Studios, Hard Eight PicturesЖанр: фантастика, боевик, триллерРежиссер: Джеймс ВонгАктеры: Джет Ли, Джейсон Стэтхэм, Карла Гуджино, Делрой Линдо, Джеймс Моррисон, Дилан Бруно, Ричард Стейнметц, Стив Рэнкин, Такер Смоллвуд, Харриет Сэнсом ХаррисПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759F6DA5E359EEC0BF544F9B80B7E8615BC2E810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086484   (145692) от 27.12.2016
+
+Одноклассницы (2016) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три подруги Вика, Света и Даша бросают свои дела и едут в Сочи на девичник к бывшей однокласснице Кате, чтобы как следует там оторваться. Веселье в разгаре и шампанское льется рекой, но тут случается то, чего никто не мог ожидать — в самый разгар праздника Катя застает своего жениха с пышногрудой блондинкой. Невеста в истерике. Она запирается в номере и говорит, (   Читать дальше...   )Производство: Россия / Russian World Vision, КинофирмаЖанр: КомедияРежиссер: Дмитрий СуворовАктеры: Светлана Ходченкова, Екатерина Вилкова, Валентина Мазунина, Ольга Кузьмина, Арарат Кещян, Роман Юнусов, Илья Любимов, Антон Макарский, Денис Косяков, Дмитрий ХрусталевПеревод: Не требуется (Русский, лицензия)Субтитры: ОтсутствуютПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04B255314BD4DB8C6322D935C3F3B1E6BAB64A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272058   (145693) от 26.12.2018
+
+VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserlight - Intro (1:26)
+02. AlimkhanOV A. - Cold Winter (4:40)
+03. Spacehawk - From The Shadows (4:02)
+04. NeoSpace - Hibernation (6:16)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB97F0E58CBFDB88D9914620AF48805BCC53B866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969448   (145694) от 28.12.2015
+
+VA - Chilled Christmas (Finest Chill Out & Ambient Christmas Tunes) (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Mars - Only Time (Dub Mars Remix) (04:12)
+02. Newton - Media France (05:29)
+03. PNFA - Roots (05:13)
+04. Weathertunes - Happy Birthday (05:47)(   Читать дальше...   )Производство: City LoungeЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1256E21C48AE9C3A1078CA8D18204C3154CE793D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435089   (145695) от 27.12.2020
 
 Гримм / Grimm (2012-2013) BDRip [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) LostFilm
@@ -6,7 +184,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145695.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ magnet:?xt=urn:btih:4324967709CE1A7D71811AD68B2798A988947DE7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145696.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ magnet:?xt=urn:btih:4324967709CE1A7D71811AD68B2798A988947DE7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145698.jpg" />
 </div>
 
 
@@ -79,7 +257,7 @@ magnet:?xt=urn:btih:36D20D221181C7DEAFE1A55DD4BF78373064B0F4
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145699.jpg" />
 </div>
 
 
@@ -103,7 +281,7 @@ magnet:?xt=urn:btih:3DA4094B859126CE4E197121B1C516D3995EA03C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145700.jpg" />
 </div>
 
 
@@ -128,7 +306,7 @@ magnet:?xt=urn:btih:06D5CA306347FB952E6F358362A3883E2676FDF7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145701.jpg" />
 </div>
 
 
@@ -154,7 +332,7 @@ magnet:?xt=urn:btih:4D398366F66D5896131B7E7B8F85F336EA659687
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145702.jpg" />
 </div>
 
 
@@ -179,7 +357,7 @@ magnet:?xt=urn:btih:BA30AAD484C1D76EF14461FA35DB413739925C2C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145703.jpg" />
 </div>
 
 
@@ -212,7 +390,7 @@ magnet:?xt=urn:btih:E3BE1619F3339EE59252D09AC5CC2D757E62EFF2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145704.jpg" />
 </div>
 
 
@@ -236,7 +414,7 @@ VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145705.jpg" />
 </div>
 
 
@@ -263,7 +441,7 @@ magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145706.jpg" />
 </div>
 
 
@@ -287,7 +465,7 @@ magnet:?xt=urn:btih:9B18A81077CDB3D4A04C4DE90F782ABDF11E88ED
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145707.jpg" />
 </div>
 
 
@@ -311,7 +489,7 @@ magnet:?xt=urn:btih:6F4B6B2A8E07AE896382C6C075DA749791153282
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145708.jpg" />
 </div>
 
 
@@ -335,7 +513,7 @@ magnet:?xt=urn:btih:805753C735102AC6B41D41DC56C5D8BB8896B689
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145709.jpg" />
 </div>
 
 
@@ -362,7 +540,7 @@ magnet:?xt=urn:btih:DBF3EE2B52C868A592FFE62998C93270983056BD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145710.jpg" />
 </div>
 
 
@@ -389,7 +567,7 @@ magnet:?xt=urn:btih:FBAB2A0B6B040848E30845E38AA63E2B1BD625A0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145711.jpg" />
 </div>
 
 
@@ -413,7 +591,7 @@ VA - Dubai Chill Lounge Vol.1,2,3 (Сomplеte Сollection) (2007) [MP3|320 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145712.jpg" />
 </div>
 
 
@@ -446,7 +624,7 @@ magnet:?xt=urn:btih:607DDADACF0F6B816FE27689BABFD6D6B30CBA74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145713.jpg" />
 </div>
 
 
@@ -470,7 +648,7 @@ VA - Deep Reflections, Session 3 (Deep House Vibes) (2021) [AAC|~322 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145714.jpg" />
 </div>
 
 
@@ -484,183 +662,6 @@ VA - Deep Reflections, Session 3 (Deep House Vibes) (2021) [AAC|~322 Kbps] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E4E8C0AFA43EE49724141A4E9E362A46C5AE1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347958   (145715) от 26.12.2019
-
-Того / Togo (2019) WEBRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пёс Того в 1928 году помог предотвратить эпидемию дифтерии в городе Ном, Аляска. В упряжке с другими ездовыми собаками Того, несмотря на страшные погодные условия, смог доставить в город посылку с антитоксином, остановившим распространение болезни.Производство: США / The Walt Disney Company, Walt Disney PicturesЖанр: ДрамаРежиссер: Эриксон КорАктеры: Уиллем Дефо, Джулианна Николсон, Кристофер Хейердал, Ричард Дормер, Эдриан Дорваль, Madeline Wickins, Майкл Грейес, Нив Нилсен, Николай Николаефф, Торбьорн ХаррПеревод: Двухголосый любительский (MUZOBOZ )Субтитры: ОтсутствуютПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7551688AC213C53427D31D68EA25A23756541B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272065   (145717) от 26.12.2018
-
-Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Post-Punk, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ligeti's Breath / Hilflos Kind (22:17)
-02. Ich Sehe Die Alle In Einer Reihe (04:47)
-03. Surrogate Drones (02:56)
-04. YRP (08:51)(   Читать дальше...   )Жанр: Industrial, Post-Punk, ExperimentalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969744   (145718) от 28.12.2015
-
-Сесил Битон | Зеркало моды (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесил Битон – культовый английский фотограф, автор портретов монархов, звезд экрана и сцены. Он превосходно рисовал, создавал костюмы и декорации к фильмам и театральным постановкам, много путешествовал, снимал страны и людей, писал статьи и мемуары. Книга «Зеркало моды» имела огромный успех, ее не раз переиздавали и переводили на другие языки. Она поистине уникальный (   Читать дальше...   )Жанр: История модыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C03F9BFB7ECC15B4BB943D53DF936BA1CBA7DC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435151   (145719) от 27.12.2020
-
-Cent Browser 4.3.9.241 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9522EE098FDEAA9B9218656C68B35A9EA5EAA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519657   (145721) от 26.12.2021
-
-VA - Deep Reflections, Session 2 (Deep House Vibes) (2021) [AAC|~328 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol, Darles Flow - Feel the Rain (Original Mix) (6:10)
-02. Ian Otta - Sunshine Airlines (Original Mix) (5:47)
-03. DMTunes - Ocean Drive (3:50)
-04. Monodeluxe - When the Time Will Come (5:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4019281A8E64DC13B71B491689E5AB0B421CAFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271994   (145722) от 26.12.2018
-
-Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery the Angels Rose (01:34)
-02. Thunderborn (02:03)
-03. Dragon Rider (02:21)
-04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087366   (145723) от 27.12.2016
-
-Гибби / Gibby (2016) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьница Кэти (Шелби Лион) никак не может избавиться от депрессии после смерти матери. У нее буквально всё валится из рук, нет интереса ни к учёбе, ни к общению с друзьями, даже любимая гимнастика не доставляет былой радости. Но ситуация меняется,, когда летом Кэти просят присмотреть за маленькой обезьянкой-капуцином. Забота об этой веселой зверушке начинает менять (   Читать дальше...   )Производство: США, Half Moon FilmsЖанр: Семейный, Комедия, ПриключенияРежиссер: Фил ГорнАктеры: Кристал Манки, Шеннон Элизабет, Пейтон Мейер, Шелби Лион, Ysa Penarejo, Шон Патрик Флэнери, Вивика А. Фокс, Тесс Картел, Эрин Николь ПабликоПеревод: Профессиональный многоголосый | iTunesСубтитры: ОтсутствуютПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB4D08E2A43435967052B093D683CA8E72BAD3B
 ```
 
 

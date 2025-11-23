@@ -1,3 +1,76 @@
+###  Публикация: 352892   (116454) от 21.02.2024
+
+Исаак Бабель | Одесские рассказы (2006) [MP3, Максим Пинскер]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена.
+«Избранные рассказы» – по сути, Бабель написал два небольших тома рассказов, но по своей художественной ценности они могут заменить целую библиотеку. В этих произведениях описаны лишь короткие фрагменты происходящих событий, сложив которые получаешь монументальную мозаику человеческой жизни.Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD3A642DCFCF6ED44F92AE43B16D17E3F2C3416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692078   (116455) от 21.02.2024
+
+Месье Спейд / Monsieur Spade (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Novamedia, HDRezka, ColdFilm (обновляемая)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, 1963 год. В монастыре городка Бозуль кто-то убивает шестерых монахинь. Детектив Сэм Спейд, сменивший привычное ему обращение «мистер» на «месье», берется за это дело. Пока горожане скорбят о погибших, всплывают всё новые и новые секреты, появляются зацепки и вереница подозреваемых. А Сэм узнает, что убийства каким-то образом связаны с ребенком, который, (   Читать дальше...   )Производство: США / Black BearЖанр: Детектив, триллер, криминал, драмаРежиссер: Скотт ФрэнкАктеры: Клайв Оуэн, Ребекка Рут, Кара Боссом, Оскар Лесаж, Инес Мелаб, Клотильд Молле, Каролин СиольПеревод: Многоголосый профессиональный (Novamedia, HDRezka Studio), многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9F0FDB6331D75C4161B4362ABFD47F158F6640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449673   (116456) от 21.02.2024
+
+Иван Царевич и Серый Волк (2011) [H.264/1080p-LQ] BDRip
+
+>>След.
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная история от создателей богатырской трилогии, в которой героев русских народных сказок ждут новые приключения, опасности и забавные ситуации.Производство: Россия, Анимационная студия «Мельница»Жанр: детский, компьютерная анимация, приключения, ФэнтезиРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Татьяна Бунина, Артур Смольянинов, Иван Охлобыстин, Виктор Сухоруков, Сергей Гармаш, Михаил Боярский, Сергей Русскин, Александр Боярский, Лия Ахеджакова и др.Субтитры: ОтсутствуютПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05ECC2C30A6B4B99C24B4343D1B92779155BEE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701105   (116457) от 21.02.2024
 
 CyberYozh Academy, LastByte, Евгений Ивченков | Анонимность и безопасность 2.0. Тариф Unnamed (2023) WEB-DL [RU]
@@ -6,7 +79,7 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116457.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116458.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ Microsoft Windows 10 [10.0.19045.4046], Version 22H2 (Updated February 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116459.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116460.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116461.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ magnet:?xt=urn:btih:A635B83F238EBAD665AE202F3382CAA713275C9C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116462.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Total Commander 11.03 LitePack & PowerPack + Portable 2024.3 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116463.jpg" />
 </div>
 
 
@@ -183,7 +256,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116464.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116465.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116466.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ Total Commander 11.03 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116467.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ magnet:?xt=urn:btih:4F06FDDA013619A8FF7680CD6C81A84FD9457AFC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116468.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ magnet:?xt=urn:btih:C4190FF0724368625CFFB04252FE60BA19FCAF67
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116469.jpg" />
 </div>
 
 
@@ -331,7 +404,7 @@ magnet:?xt=urn:btih:7DB7C3C748E0CEAEA771EA1FE0F98BC858CA7389
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116470.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ magnet:?xt=urn:btih:E71CC00D62908F2B798D5DB49C1C9D40F5CC7585
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116471.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ magnet:?xt=urn:btih:12B2AF8FBAB1BFCED202531D29004F0FF9FFFBEB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116472.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ CPUID HWMonitor Pro 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116473.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116474.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ Labels and Databases 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116475.jpg" />
 </div>
 
 
@@ -476,7 +549,7 @@ Iris 1.6.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116476.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116477.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116478.jpg" />
 </div>
 
 
@@ -554,7 +627,7 @@ Mp3tag 1.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116479.jpg" />
 </div>
 
 
@@ -565,84 +638,6 @@ Mp3tag - мощный и простой в использовании инстр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2323012DDF12ACA558454F0E0775310B5717EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701341   (116480) от 20.02.2024
-
-djay - DJ App & AI Mixer 5.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116480.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC289DAE2555C8D02CC07FCDFDF672BEF685B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701165   (116481) от 20.02.2024
-
-Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The 4th Power (00:03:57)
-02 - Desktop Activist (00:02:57)
-03 - A Waste Of Human Being (00:03:27)
-04 - The Cycle (00:02:14)(   Читать дальше...   )Жанр: Death 'n' RollПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8DA01DA422E5A7FA28472DF84B67F8F2B01C85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701294   (116482) от 20.02.2024
-
-Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Wild [7:08]
-02. Bye Bye Blackbird [4:34]
-03. Take Off Blues [7:30]
-04. I Loves You Porgy [7:28](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291EEA5823DFF2946B281C31B312A89211FDF82D
 ```
 
 

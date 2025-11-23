@@ -6,7 +6,7 @@ Skype 8.129.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1BC5A726D91D15019F2FF63343E5934404A3F839
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 09.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9740FEA8F71EA8C16DFE2D2B9E59B4D556C5F09F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42270.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:203D767A1BCB1101E8395742F9452E82154EE29A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42271.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42272.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tensei Shitara Slime Datta Ken 3 | О моём перерождении в сл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42273.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0FDA4F1B3661B388ECB19BABBE61F4D5050B130C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42274.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42275.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3E81286DE0B5757C461CA4FDFCF1284AC8BB84EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42276.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7749BCEBAA0DDA5771829EAACB7D640A8184D9D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42277.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r17 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42278.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E6BF90FD8E2BB568A853FEEF07A62F5727194561
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42279.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B3D5812AC150BFDBF1AFC0F3F4073C7EB01F57D0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42280.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:53FBBB39C0BC1ECEC9D528A3CD268E085E403F7C
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42281.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:28D2E5A94A5CBBB50B56399A9016CA542ECA9E85
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42282.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:28D2E5A94A5CBBB50B56399A9016CA542ECA9E85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42283.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C69EB063B933C630EF0A10567A464093679F9CA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42284.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0925BB35ECC58E4DEF9BB7EB9D3DE8EE100397D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42285.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:2293AE0BF53E7EF10DACECED72FC83D8A4DAADC2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42286.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:09784DDD5C30E80269F1985A9C4315AF541B03D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42287.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Kraftwerk - The Fairfield Four (UK Broadcast 1975) (2022) [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42288.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:F7553E96BD2F1DA125C981C4B478EB8FD60B923F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42289.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Krita 5.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42290.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Google Chrome 129.0.6668.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42291.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Deep-House Devotion, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42292.jpg" />
 </div>
 
 

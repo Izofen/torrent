@@ -6,7 +6,7 @@ Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64994.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B0A31F4DF08041E2B906BEB6D0CF8E3054DD656F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64995.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64996.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Loin Hammer - Before the Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64997.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Split Chain - motionblur (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64998.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:CBA15BCE46BE912D77DBA2C3001D20F9B89F7FC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64999.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:3BCF3F09A624415F876C72A808FF7F54CB061797
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65000.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F5E7CD96DEAC9CF770675B1C7B0C7DA66A16F0DE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65001.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65002.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:95754CF9C83162D0F18F3A89EC21DAC392938CAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65003.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:98E8AA800279934E0F763C37BA55A36ECEC842A1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65004.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ MultiTimer: МультиТаймер v1.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65005.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:7090F9A1E16E92A7E7D1B25A10D88AE2923199A2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65006.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:4499FAFAE46171C6D0E8093C8983C3F5BF323D41
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65007.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:48FB1DFAC6A0F3CBC6C4FC77D3B2A9962DB07D47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65008.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Milk & Sugar Summer Sessions 2025 (2025) [FLAC|Lossless|tracks] <House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65009.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65010.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65011.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CD69B02D0D20855302174F463D119AC0DB414A0A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65012.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B1C2323AA364D92AF79642DD4FA8941EA818FB36
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65013.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Iain Hornal - Return To The Magic Kingdom (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65014.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Alex G - Headlights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65015.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Eric Essix - My Heartbeat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65016.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65017.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Sculptured - The Liminal Phase (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65018.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65019.jpg" />
 </div>
 
 

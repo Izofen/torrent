@@ -6,7 +6,7 @@
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E5E41FE5D03F4F8124835A445D86565811600DE4
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC41F2127203E14CDCFD2F4CFBEB823ABA581054
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20347.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NekoBox for Android 1.3.9 [Ru] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20348.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20349.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20350.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20351.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20352.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7D3247FDDBD82E90345E965FA743577BE61C1DF0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20353.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Activation Program 1.11 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20354.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20355.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:19470A677BBB58AC36BA27F6A07424F95F68DAC4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20356.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20357.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20358.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20359.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1301B655A5F2EF1FF5D5B14DFB81C018ED4AC473
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20360.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:8472CE4CDEA75FF51C39D1CB901E966D049BF331
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20361.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:5F9F68BBA76AA28A56C202C24B4D5A6024C35C1A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20362.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:5EEADA8F539AA0D197565DA26E0066F38D321B06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20363.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20363.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20364.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20365.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20365.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Rosario to Vampire | Розарио + Вампир (2004) [10 томов, 40 г�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20366.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Smart AudioBook Player Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20367.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ PhotoDirector v20.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20368.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20368.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sante DICOM Editor 10.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20369.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20369.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Mr Salama - Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20370.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20370.jpg" />
 </div>
 
 

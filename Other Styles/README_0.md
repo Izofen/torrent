@@ -6,7 +6,7 @@ Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17663.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17665.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E6EB070475ED1CB8A1071A5EEC6335313898483A
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20065.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20701.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4941AC4CB3E95EE0E6E69E8CAD56950F582AC75A
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21667.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23574.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24764.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27290.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27292.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27316.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28023.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28238.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28261.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28900.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29793.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29923.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30868.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31364.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31364.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31566.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31567.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31954.jpg" />
 </div>
 
 

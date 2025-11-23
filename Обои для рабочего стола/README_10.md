@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253635.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253635.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:CDB2D168C26F7B3821A396FB92DDE29857D3BD55
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253665.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:2BD76935A3927E28348D5882763D16C8506CB4B3
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253668.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:C171628097EDCA9824C006DD86EC61004760AE0F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256361.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256361.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:768743C3E17D27594F7BC9FD3A6CACA5B1731A79
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256895.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9C8A99221568D770A46F42E3757888D43575014F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256941.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256941.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:EA3894DC117FEC4C8B03075D14BAB828B27EDE54
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257107.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:570B59956307EE72FE6B964AEFEA1F78095A79AE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257182.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257182.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FB07B094595C5F641B29ECD8EF7D2C9FD847B0D5
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257407.jpg" />
 </div>
 
 
@@ -237,6 +237,110 @@ magnet:?xt=urn:btih:FB07B094595C5F641B29ECD8EF7D2C9FD847B0D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831A30AA62A73AAF88CA5C6E8B96CCF403AD5F85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501030   (258138) от 24.05.2012
+
+[Wallpapers] Природа. Изумительные Full HD обои (200 снимков)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258138.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Природа. Изумительные Full HD обои (200 снимков)
+Название: Природа. Изумительные Full HD обои (200 снимков)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи:  c 17-00 до 5-00 (время Киевское (GMT+02:00))
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F342C067CBD7FBD4CE125423AC38E478716402A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501008   (258178) от 24.05.2012
+
+[Wallpapers] Обои по сериалу Игра Престолов / Game of Thrones Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258178.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Обои по сериалу Игра Престолов / Game of Thrones Wallpapers
+Название: Обои по сериалу Игра Престолов / Game of Thrones Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1000 - 2560х1600
+Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979D904AE098B3548F1B92DCA8830FF6516D25B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502235   (258714) от 27.05.2012
+
+[Wallpapers]Tropical Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F49BC2D2BC02578C3AF3AC558208576378ACAE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504169   (260187) от 01.06.2012
+
+[Wallpapers] Abstract HD Wallpapers (31.05.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C5FC85FAA5664E994F4B9B6712BDAD2C325787
 ```
 
 

@@ -1,3 +1,150 @@
+###  Публикация: 1832954   (230432) от 31.10.2025
+
+Шаблоны - Mockup Cloud - Premium MacBook Mockup 1 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои веб-дизайны, пользовательские интерфейсы и презентации брендов с помощью этого профессионального мокапа MacBook от Unknown Supply. Этот мокап с чистым фоном, реалистичными тенями и текстурами высокого разрешения станет идеальной площадкой для вашей работы. Независимо от того, представляете ли вы целевые страницы, веб-приложения или цифровые продукты, (   Читать дальше...   )Формат: PSDРазрешение файлов: 6500x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F032F625EA68EE502CBD197D40A59D601EE940DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832952   (230440) от 31.10.2025
+
+Растровый клипарт - Adobe Stock - Makeup Collection [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230440.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 стоковых изображений женщин с ярким макияжем.Формат: JPGРазрешение файлов: 2952x2876 - 5120x4830
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8038942B7485D22E31A8246611932C24BD6D6F3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832949   (230485) от 31.10.2025
+
+Шрифты - Creative Market - Diraga || Modern Serif Font - 291785207 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diraga Serif — современный и стильный шрифт для любого дизайна брендинга и логотипов. Этот современный и стильный шрифт с засечками обладает красивым характером. Он подходит для дизайна пригласительных открыток, стильных логотипов, названий фильмов, визитных карточек, названий книг, названий брендов и различных других дизайнов. Diraga Serif — это плавный шрифт с (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832910   (230512) от 31.10.2025
+
+Шрифты - Gooova Fonts - Vernon Adams - Nunito Sans [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
+В феврале 2023 (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A81B597CDB55B77100E0CAF5D101D52808BE461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832905   (230518) от 31.10.2025
+
+Шрифты - Google - Vernon Adams - Nunito [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
+Материал раздаётся (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832893   (230521) от 31.10.2025
+
+Шрифты - Behance - Dmytro Kifuliak - LEZO Display Typeface - Latin & Cyrillic - 142258847 [EOT, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lezo – футуристический акцидентный шрифт с украинским колоритом, вдохновлённый формами мечей XV–XVIII веков. Lezo (лезвие) по определению означает острую часть меча, которой режут, колют или рубят. Целью было создание букв, которые превращаются в слова, прокладывающие путь в неизвестность. Со временем буквы стали заостряться, и это то, что вы видите.
+Шрифт отличается (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226AE0ACAEF403D975B2D4F44427830FBB481A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832891   (230527) от 31.10.2025
 
 Шрифты - Behance - Graviton Font Foundry - Eslava Font Family - 13654125 [OTF]
@@ -6,7 +153,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230527.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230527.jpg" />
 </div>
 
 
@@ -31,7 +178,7 @@ magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231158.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231158.jpg" />
 </div>
 
 
@@ -55,7 +202,7 @@ magnet:?xt=urn:btih:71D65E19D5090BB12BDDD5F5635680ECBF0B7EF9
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231186.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231186.jpg" />
 </div>
 
 
@@ -79,7 +226,7 @@ magnet:?xt=urn:btih:3B761AD4EEADC53F3901BF87BE8615D31F9D0C32
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231563.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231563.jpg" />
 </div>
 
 
@@ -104,7 +251,7 @@ magnet:?xt=urn:btih:331BC489D42FE5070285BEB0A70E8D0F3B88B1B9
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231887.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231887.jpg" />
 </div>
 
 
@@ -128,7 +275,7 @@ magnet:?xt=urn:btih:76301ADF252D58B820939D6991FC5007B1A61596
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231901.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231901.jpg" />
 </div>
 
 
@@ -152,7 +299,7 @@ KitBash3D - Valhalla [BLEND]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233156.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233156.jpg" />
 </div>
 
 
@@ -176,7 +323,7 @@ magnet:?xt=urn:btih:E694110E9C699519DE0E5315658AE73AC78BD186
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234621.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234621.jpg" />
 </div>
 
 
@@ -200,7 +347,7 @@ magnet:?xt=urn:btih:6D722F03CCE41ECD58985AD08BF8321E8D70DA97
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235003.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235003.jpg" />
 </div>
 
 
@@ -224,7 +371,7 @@ magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237033.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237033.jpg" />
 </div>
 
 
@@ -248,7 +395,7 @@ magnet:?xt=urn:btih:05DA4B2C44088FFFC552751AC2A3CF1715CE7714
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240743.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240743.jpg" />
 </div>
 
 
@@ -272,7 +419,7 @@ magnet:?xt=urn:btih:1E1ED818743029A3B375DB9E1567F6DB6D469586
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240808.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240808.jpg" />
 </div>
 
 
@@ -296,7 +443,7 @@ magnet:?xt=urn:btih:2650822C239C5282A6B6C8415ABE0EE85424014D
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240826.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240826.jpg" />
 </div>
 
 
@@ -320,7 +467,7 @@ magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240856.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240856.jpg" />
 </div>
 
 
@@ -344,7 +491,7 @@ magnet:?xt=urn:btih:B4FF15D9B755493EFA34D9E5D03C0044DAE55CE8
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241486.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241486.jpg" />
 </div>
 
 
@@ -368,7 +515,7 @@ magnet:?xt=urn:btih:6EF2AE1D7667E4A6A209AFCB52BDBFF73DAF546A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243529.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243529.jpg" />
 </div>
 
 
@@ -392,7 +539,7 @@ magnet:?xt=urn:btih:097EF53F967E7E7849AE90682ADB0693425CF60A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243942.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243942.jpg" />
 </div>
 
 
@@ -416,7 +563,7 @@ magnet:?xt=urn:btih:7B0634836DD2E9825561E921538E0C1ABF8713BD
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244179.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244179.jpg" />
 </div>
 
 
@@ -440,7 +587,7 @@ magnet:?xt=urn:btih:4A0738BEAFB91D4198B5894A5E1067F35C1F06FD
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244199.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244199.jpg" />
 </div>
 
 
@@ -464,7 +611,7 @@ magnet:?xt=urn:btih:F571AD683CFBD609EDE2F8A42E44FA48ECBAF403
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244526.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244526.jpg" />
 </div>
 
 
@@ -475,150 +622,6 @@ magnet:?xt=urn:btih:F571AD683CFBD609EDE2F8A42E44FA48ECBAF403
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B46A9A59655B869EA20A432D913DBE07414E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540247   (245532) от 29.03.2022
-
-Звуковые библиотеки - Unreal Engine - Ultimate SFX Bundle [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245532.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Наш долгожданный ремастеринг наконец-то вышел! Мы полностью переработали некоторые из наших самых востребованных пакетов, используя совершенно новую настройку микрофона, чтобы обеспечить максимально высокое качество пакетов! Вы можете использовать звуки в своих играх, видео, стримах или где-либо еще! Когда мы начинали этот пакет, у нас было всего (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540121   (245613) от 28.03.2022
-
-Звуковые библиотеки - SOUNDPUNCH Ultimate Suite [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245613.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUNDPUNCH Ultimate Suite - Звуковая библиотека, состоящая из эффектов перехода TRANSITIONPUNCH, нагнетающих напряжение звуковых эффектов TRAILERPUNCH, и различных окружающих звуков SOUNDPUNCH, подходящих для фильмов ужасов, триллеров и боевиков, трейлеров, игр, музыки и многого другого!Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC11073C8E8ED147396C2CAB03FFFDAD5706D398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833611   (246073) от 01.11.2025
-
-Оверлеи - Creative Market - Lightning Transparent PNG overlays - 280451561 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246073.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 реалистичных прозрачных PNG-оверлеев с эффектами освещения и ударов молнии.Формат: PNG, JPGРазрешение файлов: 4096x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2C9E304392AC36813D1E35406C2ABB20E90FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833499   (246075) от 01.11.2025
-
-Оверлеи - Envato - Realistic Fireworks Overlays - 52437936 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя завораживающую магию прозрачных PNG-наложений Fireworks. Эти высококачественные прозрачные PNG-наложения добавят вашим изображениям нотку праздника, радости и яркости. Идеально подходит для создания атмосферы на фотографиях или в дизайн-проектах.Формат: PNG, JPGРазрешение файлов: 4096x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E10EF5A3B632518DF5E08FD72CC4D60CF182B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833609   (246076) от 01.11.2025
-
-Сборник - Nerd or Die - Synthwave Stream Pack [PSD, PNG, WEBM]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неоновые огни и темы 80-х. Synthwave предлагает множество цветовых вариантов, мощную ретро-тему и полностью анимированные компоненты наложения.Формат: PSD, PNG, WEBM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833607   (246087) от 01.11.2025
-
-3D print - Cults3D - NachoCG - Storm Shadow from GI Joe [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это мой фан-арт по Шторм Шэдоу из GI Joe. Модель поставляется с двумя вариантами головы: с капюшоном и без него. Эта работа была создана в ZBrush и полностью детализирована. Масштаб модели составляет 1:8, ее высота составляет приблизительно 9,4 дюйма (24 см).Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16474A0081C9DE4020888628144241BEFA360454
 ```
 
 

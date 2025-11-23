@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fast Video Cutter Joiner 4.9.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mullvad Browser 13.0.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53506.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Files Inspector Pro 4.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53511.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Double Commander 1.1.15 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53513.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Vivaldi 6.7.3329.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53514.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Floorp Browser 11.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53524.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ TranslucentTB 2024.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53535.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AIMP 5.30 Build 2554 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53537.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ IPTV Pro v8.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53541.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ HWiNFO 8.04 Build 5470 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53542.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Google Chrome 126.0.6478.57 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53546.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Guru Maps Pro & GPS Tracker v5.5.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53550.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Topaz Video AI 5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53551.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tor Browser Bundle 13.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53558.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ aCalendar+ Calendar & Tasks v2.8.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53569.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ uTorrent Pro 3.6.0 Build 47116 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53579.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Topaz Photo AI 3.0.5 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53585.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ NetLimiter 5.3.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53631.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53635.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ GeoGebra 6.0.845.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53637.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53650.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Firefox Browser ESR 115.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53655.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Firefox Browser 127.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53657.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9BF9EA19247EADF0A8AB5440EBC52B738EA62765
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53658.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53661.jpg" />
 </div>
 
 

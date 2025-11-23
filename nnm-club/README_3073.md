@@ -1,3 +1,84 @@
+###  Публикация: 471843   (97516) от 23.03.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Madison & Simon J. feat. Aelyn - Angel (Willem De Roo Remix) (7:45)
+02. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix) (6:31)
+03. Cosmic Gate & Cathy Burton - Drifting Away (Original Mix) (5:21)
+04. Woody van Eyden & Steve Anderson - Everything’s Twisted (Steve Anderson Mix) (8:07)
+05. Mark Pledger vs. Matt Hardwick feat. Melinda Gareh - Fallen Tides (Mat Zo Vocal remix) (8:43)
+06. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix) (7:55)
+07. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Album Extended Mix) (6:36)
+08. Sasha Virus feat. Dilara - I Still Fall (Stero Jackers Remix) (7:30)
+09. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix) (7:02)
+10. Benya feat. Emma Lock - Loved To Be (Nuera Remix) (7:22)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559B9FD65AD9103D539AF0B126983EE0DB5D1DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472046   (97518) от 23.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (22.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB96F2EDA4F2FAAD7F86068F76AC564790485174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472268   (97520) от 23.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (24.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7C36647E8419D5F370BC5DB3A5ED661588D634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471519   (97522) от 23.03.2012
 
 Overkill - The Electric Age (2012) scene [FLAC|Lossless]<Thrash Metal>
@@ -6,7 +87,7 @@ Overkill - The Electric Age (2012) scene [FLAC|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97522.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97522.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ VA - Держи Ритм На Хит FM 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97523.jpg" />
 </div>
 
 
@@ -72,7 +153,7 @@ magnet:?xt=urn:btih:D2049D2B2C03310001ABCE1A54347CD2A7DD7A81
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97527.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ VA - XXXL Шоферской Весна (2012) [MP3|256 кб/с]<Шансон>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97529.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ VA - Luxurious Cold Lounge (2012) [MP3|320 kbps]<Lounge | Ambient | chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97530.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Bandizip 2.03 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97531.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Bandizip – это легковесный архиватор с симпати�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97532.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ magnet:?xt=urn:btih:48CC3EC35A000AF8F01A1E96AA932A723695194E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97533.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ Lullacry - Where Angels Fear (2012) [FLAC|Lossless]<Gothic Metal, Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97535.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ Herbie Mann, Phil Woods -(2 альбома) [WMA, MP3|128 - 192 Кбит/сек]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97536.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ magnet:?xt=urn:btih:2608B0965A0CA6DB6FF1543B32D27E915AE4BB8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97539.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ magnet:?xt=urn:btih:C790B284E590678D95A0E301350A875E5B6CF489
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97541.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ magnet:?xt=urn:btih:BE6A688D3668EE4AB2DEFF58FF6EC7563E3DAAD8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97542.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ magnet:?xt=urn:btih:22E6B97D8B980E5ABBEE2D6084DAB4F306381783
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97543.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ magnet:?xt=urn:btih:CF2D41044D362C542F4A771EEC7C7EA8EA7C15CF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97544.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ magnet:?xt=urn:btih:237F475001BD7DA51BF7DE760E848D2E84AB7FC0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97545.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ VA - XXXL Best Russian DJ (2012) [MP3|192 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97546.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:C35DA812E9A30BEFFFA4296A0E0CC9DCA1DF1C8C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97547.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ magnet:?xt=urn:btih:C35DA812E9A30BEFFFA4296A0E0CC9DCA1DF1C8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97548.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ magnet:?xt=urn:btih:AA4D27972C02B5BE3153FB87D2C9C2AEDB247000
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97549.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ magnet:?xt=urn:btih:68EFC6C15079328613556B2DF759B0124199B92F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97552.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ magnet:?xt=urn:btih:A566F46B376EFA0DDB4F550837F3901DE0C7DC8F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97553.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ magnet:?xt=urn:btih:2763245A16FD395284255C155354BB82D9D132D4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97555.jpg" />
 </div>
 
 
@@ -611,86 +692,6 @@ magnet:?xt=urn:btih:2763245A16FD395284255C155354BB82D9D132D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D63B84C8271D896EC9C8AB6B81E7FEEC87BB32D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472699   (97556) от 24.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (25.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F977AE8EED488A0F3F8C9EBB0214B7068725668D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472866   (97557) от 24.03.2012
-
-[Wallpapers] Nature Pictures №35
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97557.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №35
-Название: Nature Pictures №35
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5111B8C985527751B59087A29C08158B2125873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472402   (97559) от 24.03.2012
-
-[Wallpapers] HD Wallpapers Pack 14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97559.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 14
-Название: HD Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B54EDCDC24B32DB65039FEFEE0A19ECD7737728
 ```
 
 

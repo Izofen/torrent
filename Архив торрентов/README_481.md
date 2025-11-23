@@ -6,7 +6,7 @@ OCCT 13.1.0 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106871.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Glary Utilities Pro 6.12.0.16 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106872.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BurnAware Professional 17.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106876.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wondershare PDFelement 10.4.6.2776 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106877.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Image Uploader 1.4.1 Build 5176 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106880.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106883.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Draw.io 24.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106884.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ EarthView 7.9.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106914.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ HDCleaner 2.076 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106930.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106931.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ EF Commander 24.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106934.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106938.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Music Collection 3.6.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107002.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ OneCommander Pro 3.86.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107005.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Process Lasso Pro 14.2.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107006.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ R-Studio Network 9.4 Build 191332 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107007.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Radiant Photo 1.3.1.477 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107011.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Perfectly Clear WorkBench 4.6.1.2671 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107012.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ R-Wipe & Clean 20.0.2464 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107015.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ reaConverter Pro 7.817 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107016.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ RJ TextEd 16.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107017.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Steinberg - WaveLab 12 Pro 12.0.20 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107025.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ YT Downloader 9.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107033.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ R-Studio Network / Technician 9.4 Build 191332 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107035.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2992 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107041.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ XYplorer 26.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107042.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Electronic Music Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22162.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22162.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ State Azure - The Light That Remains (2025) [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22256.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - SYNTHPOP NOSTALGIA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22598.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22598.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Chillout Escape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23003.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PanteRa - Bad Angel (2025) [MP3|320 Kbps] <Eurodance, Eurobeat, Europop>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23203.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - A State of Trance 2025 (Mixed by Armin van Buuren) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23205.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23205.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Armin van Buuren - Live at Seven Wonders, Pillars of Creation ... (2025) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23531.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23531.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - The Perfect Lounge Music Playlist 2025 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23630.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Declaration - Behind Your Smile (2025) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23631.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23631.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Keep It Trance Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24138.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Buddha Bar XIV (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24151.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24151.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 40 Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24155.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Organic Yoga (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24156.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24156.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Deep Chill Vibes: Orange Cafe Edition by Marga Sol (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24775.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Black Hole Trance Music 03-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24781.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Deep On The Beach (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24882.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chill Synthwave Mix - Synth Wave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24884.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cosmic Force - Future Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24887.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Zeds Dead - Return to the Spectrum of Intergalactic Happiness (2025) [FLAC|Lossl
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24891.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Smooth Moods Chill Out, Vol. 4 (2025) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24894.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cosmic Force - Future Mind (2024) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24895.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Lounge Gallery (30 Beautiful Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24984.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nostalgia Mix - 90s Synthwave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25012.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25089.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Mortal Kombat: More Kombat (1996) [FLAC|Lossless|image + .cue] <Techno, Ind
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25518.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organ
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25630.jpg" />
 </div>
 
 

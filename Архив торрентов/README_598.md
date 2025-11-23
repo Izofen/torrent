@@ -6,7 +6,7 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129799.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Total Commander 10.0 MAX-Pack 2021.11.30 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129815.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:261816E92D4959F999005370A2A0C5C4BE89F27E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129845.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mozilla SeaMonkey 2.9.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129848.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129848.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129857.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Vladimir Bozar 'n' Ze Sheraf Orkestar - Universal Sprache (2010 Re-release) (200
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129859.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Skype 8.110.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129866.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:B09BAF983CBED5EF8D5199FD474D1CD9BCAE85BD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129900.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:B09BAF983CBED5EF8D5199FD474D1CD9BCAE85BD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129907.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hanging Doll - The Sacred and Profane (2012) [MP3|320 кб/с]<Symphonic / Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129914.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Anjunabeats Worldwide04 mixed by Maor Levi & Nitrous Oxide (2012) [MP3|~245
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129923.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129925.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129932.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Boxy SVG 3  v3.75.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129937.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129938.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ AYVY 1.18.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129940.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Action 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129943.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129944.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129948.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Artstudio Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129949.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Smooze Pro 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129951.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ One Switch 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129954.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129956.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ MarkMyWords 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129957.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129959.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Dropzone 4 Pro v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129960.jpg" />
 </div>
 
 

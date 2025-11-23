@@ -1,3 +1,76 @@
+###  Публикация: 1823742   (126130) от 12.10.2025
+
+Дзига Вертов. Шестая часть мира (1926) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был профинансирован государственной монополией внешней торговли — Экспорт и импорт Госторга СССР. Госторг заказал фильм для продвижения своего имиджа и популяризации своей деятельности в годы новой экономической политики (НЭП).
+Госторг предложил Вертову щедрый бюджет, достаточный для финансирования десяти экспедиций в отдаленные районы Советского Союза и съемки (   Читать дальше...   )Жанр: документальный, история, немое кино, советский киноавангардРежиссер: Дзига ВертовЯзык озвучки: фильм немойСубтитры: русские интертитрыПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EC690066B04ED523EC4EF049AD09783FD5C294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823704   (126131) от 12.10.2025
+
+Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (2024) WEB-DL [EN / En Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс. Меня зовут Онер . Большинство из вас знают меня по моим обучающим видео и видеоурокам на YouTube. На моём канале YouTube более 400 обучающих видео и видеороликов с рабочими процессами. У меня более 16 лет опыта в архитектурной визуализации и 3D-дизайне. Я работал над многими проектами по визуализации архитектуры интерьера и экстерьера, а (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 03:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DBDE9CE0CFA8D264CB417281EB7CD94D754EF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753275   (126133) от 13.10.2025
+
+Честь дракона 2 / Tom yum goong 2 (2013) DVDRip [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126133.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Влиятельного владельца слоновьего заповедника Сучарта убивает неизвестный эксперт по боевым искусствам, использовавший три удара по смертельным для жизни точкам, и Кхам становится основным подозреваемым в убийстве, так как он был последним, кого видели на месте преступления. Ему пришлось бежать от властей, тем временем за ним начали охоту двойняшки — племянницы (   Читать дальше...   )Производство: Таиланд | Sahamongkolfilm Co.Жанр: БоевикРежиссер: Прачья ПинкаюАктеры: Тони Джа, Маррезе Крамп, Йанин Висмитананда, Винс Макилинг, Уджал Тхапа, Эдди Руис, Эдгар Варгас, Джон Данг, Джавед Эль Берни, Рэйден Интегра, RZA, Патрик Тэнг, Петчтай ВонгкамлаоПеревод: Одноголосый закадровый, любительский (Zelesk)Субтитры: ОтсутствуютПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57F0E6775139B16B0648FED9902D6735584EA06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687088   (126134) от 25.12.2023
 
 Bandicam 7.0.2.2138 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +79,7 @@ Bandicam 7.0.2.2138 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126134.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126135.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Сто девуш
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126136.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126137.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:C3082DE51E015D5878D8817D68F2A3C746990B9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126138.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126139.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:A6B481F0674BA27456354D472E786A4F7BC4707C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126140.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ PIONER будет распространяться по модели Buy-to-play
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126141.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:AABB0DE2E3AAB58856010448D040058FE094AADD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126142.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:9755464FBC9A8A05075E425A12E3DFCB5216F552
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126143.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126144.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Advanced Niagara (2023) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126145.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ magnet:?xt=urn:btih:5152D8F4338971BACC002694F49D774A665E767B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126146.jpg" />
 </div>
 
 
@@ -326,7 +399,7 @@ magnet:?xt=urn:btih:D568E0387320ECC67D3089BBF40E4ECB308609FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126147.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126148.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126149.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126150.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ magnet:?xt=urn:btih:E3BE6971CCBA465BF1FF4C2120B67CCCCFB0B891
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126151.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126152.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:CBBB54A30D5798559E49666EB80FFE3DDAEC4CD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126153.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ Alan Wake 2 (2023) [Ru/En] (1.0.14/dlc) Repack Other s [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126154.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ magnet:?xt=urn:btih:A9F8E65E06E476DB63EB00237DBDC44C026BE594
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126155.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:995305B9BDBDDF37A710C59DFFC8FDA7542257D4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126156.jpg" />
 </div>
 
 
@@ -555,81 +628,6 @@ magnet:?xt=urn:btih:995305B9BDBDDF37A710C59DFFC8FDA7542257D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3A6DB85FE0889C4B85125075E85BF223252C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680460   (126157) от 25.12.2023
-
-1С:Предприятие платформа 8.3.24.1342 [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сервер 8.3.24.1342 технологическая платформаЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7159D66B5ADF6E214D2BB665316BD91889C3478C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686846   (126158) от 25.12.2023
-
-Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 12.2023 1DVD
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126158.jpg" />
-</div>
-
-
-###  Подробнее
-
-64-х битная операционная система Windows® 7™ максимальная (x64) с интегрированными обновлениями, оформлением в темно-голубом стиле и стандартной ручной установкой на 1 DVD. Содержит удобное предзагрузочное меню для проверки компьютера.   Дополнительно в образ системы добавлена профессиональная редакция для установки на GPT диски.   Сборка предназначена для тех, кто предпочитает (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A6606BA477912DAA649743EB3B59C18EF870BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370785   (126159) от 25.12.2023
-
-Ten Years After - 12 Studio, 5 Live Albums, 10 Compilation, 3 Box Set (1967 - 2019) 71 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Classic Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английская группа, исполняющая блюз и хард-рок с джазовыми элементами и вошедшая в историю с классическими синглами «I’m Going Home» и «Love Like A Man». Группа прославилась сверхактивной концертной деятельностью: подсчитано, что в период с 1968 по 1975 годы она в среднем еженедельно выступала перед 75,000 новых зрителей. Привлекала, в основном, благодаря игре гитариста (   Читать дальше...   )Список альбомов:
-1967 - Their First Album
-1969 - Ssssh
-1969 - StonedhengeЖанр: Classic Rock, Blues-RockПродолжительность: 60:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001A50D993A4C5BCD2B2AB241D3D97F89EECCDE7
 ```
 
 

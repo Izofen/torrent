@@ -6,7 +6,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60125.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A5512EE7163DEDDA962B12B553DDC5FB05A9F381
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60139.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5E2E39F07B76D05EB88BBF84B7732246B10C37B5
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60153.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:45D75722CAFC91C3054E6902321D7CFECF8015BA
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60268.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Character Animator 2024 24.2.0.80 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61585.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F4B63137CF52DC1CA5D7EA95A053BA671726EF82
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62388.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Adobe Photoshop 2025 26.11.0.18 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63872.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Adobe Illustrator 2025 29.8.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63932.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ OnOne Perfect Resize Professional Edition 7.0.6 [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64439.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Just Color Picker 6.1 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70707.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79275.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Perfect Icon 2.40 [Rus] RePack
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85993.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Photo Objects Eraser 1.0 [Rus] Portable
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86022.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Perfectly Clear WorkBench 4.8.0.2857 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94621.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Photoshop 2025 26.11.0.18 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94653.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ScreenToGif 2.42.1 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100716.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ reaConverter Pro 8.0.141 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100769.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Pop Art Studio 6.2 Batch Edition x32/x64 Portable by Boomer  [Русский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102292.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106038.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Darktable 4.8.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106043.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Darktable 4.8.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106056.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Radiant Photo 1.4.1.501 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106182.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FotoJet Collage Maker 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106303.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ FotoJet Designer 1.3.5 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106309.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Adobe InCopy 2024 19.5.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106381.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Exposure X7 7.2.0.25 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106445.jpg" />
 </div>
 
 

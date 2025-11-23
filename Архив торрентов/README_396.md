@@ -6,7 +6,7 @@ Emika - 3 Hours EP (2012) [MP3|320 kbps]<Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94393.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Armin van Buuren - A State of Trance 549 SBD (23.02.2012) [MP3|320 кб/с]<Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94404.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94414.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94414.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94418.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Dj VoJo - CLUB DESIRE vol.10 - Dancing Humanity (2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94424.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:CB353CF9B0781DC554FFFDDBA8E98A84EF01939E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94432.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D267F5C5CCEA013062E0ABB8A33F20B06716FBDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94464.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94484.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Nat Geo Wild: Американская пума / American Cougar (2011) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94530.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Markus Schulz - Global DJ Broadcast Top 20 February (25.02.2012) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94541.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:ADDE8185109B2499364334F36913A27A46A1ABA4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94545.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Beauty Guide 1.4.2 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94554.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94554.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Beauty Guide - позволяет нанести макияж и устрани�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94589.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Comodo Dragon + Portable 17.4.1.0 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94596.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94596.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Comodo Dragon - это новый браузер, использующий по�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94598.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:74F0AA89EDEE6FC27BDACB5D9064D00C2887AEC4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94632.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:74F0AA89EDEE6FC27BDACB5D9064D00C2887AEC4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94648.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6D536CC6894830230BFB76E7E62EC73B2C0630BC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94656.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94656.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:6D536CC6894830230BFB76E7E62EC73B2C0630BC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94695.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94738.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94741.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94744.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94748.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94762.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94763.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94764.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1696991   (119288) от 05.02.2024
+
+Internet Download Manager 6.42 Build 3 RePack by elchupacabra (04.02.2024) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0665CD5448B7ECEBD1C0B93D36AADA2F23BF9B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696558   (119289) от 05.02.2024
+
+Банши / Banshee (2013) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-10 из 10) TVShows, DadLab, NewStudio, 2x2
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лукас Худ — отбывший наказание в тюрьме вор, который некогда предал своих подельников. После отсидки он приезжает в небольшой городок в Пенсильвании, носящий название Банши, где обманом получает пост местного шерифа. Но это не значит, что он забыл своё криминальное прошлое и теперь служит закону. Гангстеры, которых он когда-то предал, всё еще помнят про него и стремятся (   Читать дальше...   )Производство: США / Cinemax, Your Face Goes Here EntertainmentЖанр: боевик, триллер, драма, криминал, детективРежиссер: Оле Кристиан Мадсен, Грег Яйтанс, Лони ПеристерАктеры: Энтони Старр, Ивана Миличевич, Ульрих Томсен, Хун Ли, Фрэнки Фэйзон, Лили Симмонс, Триесте Келли Данн, Рас Блэквелл, Мэтт Сервитто, Деметриус ГроссПеревод: Многоголосый профессиональный (TVShows, DadLab, 2x2), двухголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4347E217B5C8FDC05E6D6B01B5C1E7C57C5B685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696942   (119290) от 04.02.2024
+
+Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel (7:29)
+02. High Tides (6:27)
+03. Black Limba (7:53)
+04. Pocket Sauce (6:27)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9908145C9DD937086C7FC4C9E35928C9C2751A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696975   (119291) от 04.02.2024
 
 Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +81,7 @@ Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119291.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119292.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Kings of Gehenna - Return To Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119293.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Metralion - The Rest is Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119294.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Metralion - Requiem for a Society (2021) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119295.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119296.jpg" />
 </div>
 
 
@@ -168,7 +243,7 @@ Oromet - Oromet (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119297.jpg" />
 </div>
 
 
@@ -194,7 +269,7 @@ Sore - Gruesome Pillowbook Tales (2007) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119298.jpg" />
 </div>
 
 
@@ -221,7 +296,7 @@ Metralion - Quo Vadis / A Mosh In Brazil (2019) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119299.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ Reapter - M.I.N.D (2010) Reissued-2013 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119300.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Suture - Morbid Sculpture Demonology (2004) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119301.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ magnet:?xt=urn:btih:F6784A261BB1AC0E7342C81FEE71D2224B860B36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119302.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ Madness - Madness, by Mike (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119303.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:824E9999D41F613354DA18792BDC55FAC82D6B64
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119304.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119305.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119306.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ magnet:?xt=urn:btih:524140069E745245C4F475777E096CCC3EDE5DA0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119307.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119308.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Brian Tarquin & Heavy Friends - Beyond The Warrior's Eyes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119309.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ New York Jazz Ensemble - Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119310.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Joe Pass - Virtuoso In New York (1975) Victor Entertainment [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119311.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ Gojira - Fortitude (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119312.jpg" />
 </div>
 
 
@@ -589,7 +664,7 @@ SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119313.jpg" />
 </div>
 
 
@@ -603,86 +678,6 @@ SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:717E525E74577843A8B206BBAB8B32F473C084D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696743   (119314) от 04.02.2024
-
-Oromet - Oromet (2023) [MP3|320 Kbps] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Familiar Spirits
-02. Diluvium
-03. AlpenglowЖанр: Funeral Doom MetalПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72FE92C842B2D71330B4EA4A06809EAA823E1BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696830   (119315) от 04.02.2024
-
-Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation (Meditacao) [4:52]
-02. Shadow Waltz [2:06]
-03. Mood Indigo [3:24]
-04. More Than You Know [3:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CA487108EDA048F7749853C26B4872564AC24E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696946   (119316) от 04.02.2024
-
-The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Systems, Go! (5:08)
-02. The Archimedean Point (6:06)
-03. The Electrics Were Down (5:55)
-04. Lacus Temporis (10:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
 ```
 
 

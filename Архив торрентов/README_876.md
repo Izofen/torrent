@@ -1,3 +1,100 @@
+###  Публикация: 1669668   (172670) от 17.10.2023
+
+Imagenomic Noiseware for PS (Mac) 6.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagenomic Noiseware - плагин для коррекции шумов на цифровых фото. Имеется функция мульти-предпросмотра, позволяющая сравнить результаты работы фильтра с разными настройками, и функция брекетинга основных параметров фильтра, генерирующая серию превьюшек в автоматическом режиме. Удобный интерфейс позволит легко выполнить обработку изображений перед публикацией или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2023 ImagenomicПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7919F26B8A2FFF77C8409FF9B72ECE69CB528A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669607   (172675) от 17.10.2023
+
+Default Folder X 6.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DAB19BE28181C42BC32AE0C9193A2AA799AC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669579   (172687) от 17.10.2023
+
+EdgeView 4.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172687.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E231BE79DC9135F89607604D085B146494F42734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669580   (172688) от 17.10.2023
+
+SiteSucker 5.1.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172688.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669455   (172702) от 16.10.2023
 
 Futuremark 3DMark 2.27.8177 Professional Edition RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +103,7 @@ Futuremark 3DMark 2.27.8177 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172702.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ Microsoft Activation Scripts (MAS) 2.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172707.jpg" />
 </div>
 
 
@@ -54,7 +151,7 @@ Corona Renderer 10.2 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172710.jpg" />
 </div>
 
 
@@ -78,7 +175,7 @@ Adobe Premiere Pro 24.0.0.58 (x64) Full / Lite Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172725.jpg" />
 </div>
 
 
@@ -102,7 +199,7 @@ Adobe Acrobat Pro DC 23.6.20360 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172733.jpg" />
 </div>
 
 
@@ -126,7 +223,7 @@ Reg Organizer 9.31 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172736.jpg" />
 </div>
 
 
@@ -150,7 +247,7 @@ Office Tool Plus 10.3.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172745.jpg" />
 </div>
 
 
@@ -174,7 +271,7 @@ Adobe Media Encoder 2024 24.0.0.54 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172747.jpg" />
 </div>
 
 
@@ -198,7 +295,7 @@ MathType 7.7.0.237 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172757.jpg" />
 </div>
 
 
@@ -222,7 +319,7 @@ Duplicate File Finder Pro 2317 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172758.jpg" />
 </div>
 
 
@@ -246,7 +343,7 @@ AOMEI Backupper Technician Plus 7.3.2 (16.10.2023) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172759.jpg" />
 </div>
 
 
@@ -270,7 +367,7 @@ Advanced SystemCare Pro 17.0.1.107 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172762.jpg" />
 </div>
 
 
@@ -294,7 +391,7 @@ LosslessCut 3.58.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172766.jpg" />
 </div>
 
 
@@ -318,7 +415,7 @@ OCCT 12.1.10 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172768.jpg" />
 </div>
 
 
@@ -342,7 +439,7 @@ Wondershare UniConverter 15.0.3.14 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172769.jpg" />
 </div>
 
 
@@ -366,7 +463,7 @@ Reg Organizer 9.31 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172770.jpg" />
 </div>
 
 
@@ -390,7 +487,7 @@ VSDC Video Editor Pro 8.3.2.486 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172771.jpg" />
 </div>
 
 
@@ -415,7 +512,7 @@ Topaz Video AI 3.5.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172776.jpg" />
 </div>
 
 
@@ -439,7 +536,7 @@ BitComet 2.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172778.jpg" />
 </div>
 
 
@@ -463,7 +560,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172779.jpg" />
 </div>
 
 
@@ -488,7 +585,7 @@ Reg Organizer 9.31 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172780.jpg" />
 </div>
 
 
@@ -512,7 +609,7 @@ Adobe Audition 24.0.0.46 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172788.jpg" />
 </div>
 
 
@@ -523,102 +620,6 @@ Adobe Audition 24.0.0.46 (x64) Portable by 7997 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0CC034C1C46FB55E3764ADA4B1AF766BBCF5E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669562   (172793) от 16.10.2023
-
-Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94552F540C23EF4F0DC3C2665F207D0C99A3A851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669306   (172799) от 16.10.2023
-
-FastCopy 5.4.2 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172799.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, китайский, японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D294954328B4E2775C0BC25C374CC820A7786C20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669309   (172801) от 16.10.2023
-
-Resource Hacker 5.2.3.379 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resource Hacker - программа для просмотра, извлечения, изменения и добавления ресурсов для Win32-приложений, т.е. по своей функциональной направленности схожая с широко известной программой Restorator (внешностью, кстати, тоже), но бесплатна... Resource Hacker может применяться как для простого "выдергивания" иконок, музыки и прочего, находящегося в исполняемых (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C447FF3190278E7122948787BA9E9F2CC508E90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669464   (172802) от 16.10.2023
-
-Room Arranger 9.8.0.640 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D213605CF3B82958A63F7E555EBCF8B288BAA7
 ```
 
 

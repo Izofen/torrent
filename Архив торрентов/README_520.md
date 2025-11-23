@@ -6,7 +6,7 @@ QLab 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Navicat Data Modeler Essentials for Mac 3.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114486.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Photo AI 2 for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114497.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Topaz Gigapixel AI for Mac 7.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114498.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Affinity Photo 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114500.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Navicat Premium 16.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114501.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wondershare Recoverit for Mac 12.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114503.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BBEdit 15.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114505.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Topaz Video AI for Mac 4.2.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114524.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ OfficeSuite Pro + PDF v14.3.51248 Extra Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114544.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Kodi 20.5 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114557.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Duolingo: изучай языки 5.141.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114562.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ QOwnNotes 24.2.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114639.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PdfFactory Std & Pro 8.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114654.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CudaText 1.210.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114655.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Calibre 7.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114669.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sumatra PDF 3.6.15974 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114672.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ HiPER Calc Pro (Scientific Calculator) 10.4.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114674.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FinePrint 11.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114676.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Filmora - Редактор видео с AI 13.1.85 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114689.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Imagine 1.5.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114701.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Sense V2 Flip Clock & Weather v6.54.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114704.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Tixati 3.22 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114712.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Sense Flip Clock & Weather v6.54.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114718.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Lightroom - Фоторедактор 9.2.0 Mod by frost_ua [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114726.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ KMS Tools Portable by Ratiborus 01.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114780.jpg" />
 </div>
 
 

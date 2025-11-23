@@ -1,3 +1,78 @@
+###  Публикация: 477749   (98592) от 04.04.2012
+
+Тяжелый вторник / Tuesday (2007) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три группировки грабителей решают обокрасть один и тот же банк в один и тот же день. Кому же из них посчастливится уйти с наживой, а кому отвечать по полной за совершенное преступление?..Жанр: Боевик, Триллер, КриминалРежиссер: Саша БеннеттАктеры: Филип Гленистер, Эшли Уолтерс, Кристиан Солимено, Кевин МакНэлли, Джон Симм, Кейт Магован, Кирсти Митчел, Линал Хафт, Алекс МакКвин, Дилан Браун, Эмил Марва, Мик Барбер, Ричард Браун, Вероника Браун, Дэвид Гарри, Бет Годдар, Роджер Лэйтон, Джеймс Миллман, Джонатан Парсонс, Дэвид Гарри, Энди Коуди, Пол Форнел, Найджел Блисс, Джим Александр, Брайан Босли, Делл ТейлорПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822131   (98593) от 05.10.2025
+
+Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of Ophelia [00:03:46]
+02. Elizabeth Taylor [00:03:28]
+03. Opalite [00:03:55]
+04. Father Figure [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478048   (98594) от 04.04.2012
+
+Журнал | Вяжем сами №7 (апрель 2012) [JPEG]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция модной женской одежды, выполненной на спицах и крючком: жилеты, болеро, пуловеры, жакеты, платья, а также сумочки – красиво, романтично, современно!Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841408AC9DFAE884B9D7E6722C2EA86256013C94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822164   (98595) от 05.10.2025
 
 Re: Minimal Firewall 2.4 Portable [En]
@@ -6,7 +81,7 @@ Re: Minimal Firewall 2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98595.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98596.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ magnet:?xt=urn:btih:E47C968E2E651ED8D2CEE31A0EB87485C0EA6237
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98597.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98598.jpg" />
 </div>
 
 
@@ -120,7 +195,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98599.jpg" />
 </div>
 
 
@@ -145,7 +220,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98600.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98601.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ FK - Музыка сильных (Mixtape) (2012) [MP3|320 кб/с]<Rap, Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98602.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:C7F4466947AA1AF2216606F2117ED77FDB44EFD6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98603.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ magnet:?xt=urn:btih:09E1D15445DB131B771E186E4E7257CE1DFB7C22
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98604.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ Sparks - MADDER! (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98605.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ magnet:?xt=urn:btih:148E6D222494EFE4DB8AF097E6DDEFC8E04712A5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98606.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ magnet:?xt=urn:btih:3D3EBA47A1612E962BDB33648CF95209E4D44277
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98607.jpg" />
 </div>
 
 
@@ -365,7 +440,7 @@ VA - Весенний Кураж Европы Плюс (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98608.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ magnet:?xt=urn:btih:31C294B1EC11B59BEFE9556AA9E42A30F8E9E080
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98609.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:E0596D6B99F01021D9C87C53FF0B1B3CEE4013C4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98611.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ magnet:?xt=urn:btih:E8951FFD738374506C71FCA41D120CBC84F8BF68
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98612.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:1B6B9AB43FC82340A30AC98BB7A54B9C9451BEB5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98613.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:C7905F9043F1B46F021E0D06F843E8751338821D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98614.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ Paul Van Dyk - Evolution (2012) [MP3|192 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98616.jpg" />
 </div>
 
 
@@ -557,7 +632,7 @@ VA - Coca-Cola Music Чарт 1 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98618.jpg" />
 </div>
 
 
@@ -590,7 +665,7 @@ magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98620.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98620.jpg" />
 </div>
 
 
@@ -614,7 +689,7 @@ magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98622.jpg" />
 </div>
 
 
@@ -629,84 +704,6 @@ magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC8B59928483340258BE13B43B83BE255EB007F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477900   (98623) от 04.04.2012
-
-Журнал | Золотая коллекция рецептов № 22. Сытные блюда без вреда для фигуры [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Золотая коллекция рецептов» - это журнал, созданный по лучшим рецептам читателей.
-В этом номере вы найдете вкуснейшие блюда:
-• Селедочный салат с хреном
-• Грибы тушеные с помидорами
-• Закуска «Посейдон»
-• Рассольник грибной
-И множество других вкуснейших рецептов.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEEF150A9C5A3A98661B7ABA9A10A639E4BD5BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476218   (98625) от 04.04.2012
-
-[Wallpapers] Обои для рабочего стола
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка обоев различной тематики(природа,животные,креатив),хорошего качества.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB793A0AC39AFEA0A462D305A7AD6D720A42E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476944   (98628) от 04.04.2012
-
-[Wallpapers] Обои для рабочего стола
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола,  в темных тонах
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F606D5A64ED6957F6F464140E39C90E980E74BDF
 ```
 
 

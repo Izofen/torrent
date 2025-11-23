@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86100.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86106.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86107.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86112.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E483EA24A48A45FF8F60E6B370A6253007938FB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86113.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86114.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Drum & Bass Antology Volume #2 - SQUASH SESSION (2005) [FLAC|Lossless]<Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86122.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:7B6DACAC10881C24E4B18A164524DCC29889E07A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86135.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:7B6DACAC10881C24E4B18A164524DCC29889E07A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86137.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:69C47E41712BDC2FCB258CD38B5CE6C35868CEE1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86138.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86139.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86144.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86149.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:3B0154F9B08C95F5F058547F61AC9305CC631C29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86152.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ AnvSoft Photo Flash Maker Platinum 5.45 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86153.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ AnvSoft Photo Flash Maker - программа для создания аним�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86155.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ AnvSoft Photo Flash Maker - программа для создания аним�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86161.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fuduntu 2012.2 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86162.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:748BA3390EACDAAC1878A201A18998414349DB32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86163.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Longhorn Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86165.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Longhorn Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86170.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86180.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86183.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86188.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kaspersky World 1.3.3.95 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86192.jpg" />
 </div>
 
 

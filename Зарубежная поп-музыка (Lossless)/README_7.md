@@ -6,7 +6,7 @@ Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68614.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68822.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69436.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69540.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69992.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70555.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70849.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71131.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71186.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71256.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71261.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cock Robin - Precious Dreams (2024) 3xCD [FLAC|Lossless|image + .cue] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71628.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73499.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77584.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78217.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79641.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81386.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82711.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83950.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86326.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86568.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90517.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91219.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100617.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101301.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101356.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1704677   (114114) от 05.03.2024
+
+Mama Kandy - The Whitening (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casbah Cowboy (6:16)
+02. Pastures of Plenty (5:01)
+03. The Double (5:00)
+04. Life Change (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15507985B6BF7DA7CC0090FCAEC3ED031C46559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704576   (114115) от 05.03.2024
+
+Cycleam - Dream Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Close Your Eyes (00:01:44)
+02 - Followers of Light (00:05:30)
+03 - Dream Cycle (00:04:33)
+04 - Human Stupidity (00:03:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9DA7754648C14F87345EA641BC5CB1C702F99A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704702   (114116) от 05.03.2024
+
+BetterMouse for Mac 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114116.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20825348115154B25830C131C00C9FB8E4E0D50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704577   (114117) от 05.03.2024
 
 AList Desktop for Mac iNTEL 3.32.0 [En]
@@ -6,7 +84,7 @@ AList Desktop for Mac iNTEL 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114117.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ ForkLift 4 v.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114118.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Text Workflow 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114119.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ magnet:?xt=urn:btih:945AB8E445037B06005758FBBA040773B2A8CB2A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114120.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Tragedian - Seven Dimensions (2021) [FLAC|Lossless|image + .cue] <Melodic Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114121.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:86277552DA7252A3CDF184B01DBEB641DD91D92E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114123.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114124.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ Tinsley Ellis - Naked Truth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114125.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ Blind Illusion - Wrath Of The Gods (2022) [FLAC|Lossless|image + .cue] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114126.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114127.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ magnet:?xt=urn:btih:960F6B15D651A38E60D624919A8EBEAB181999FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114128.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Ric Ocasek - Fireball Zone (1991) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114129.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:085C9645B948AE1AF28B864641601A1EF234F3FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114130.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114131.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ CJ Redan - VOL. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114132.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ magnet:?xt=urn:btih:62467993225A63F023CA54E4A8D669841D0D7CCD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114133.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ Twisted Tower Dire - Wars In The Unknown (2019) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114134.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ AList Desktop for Mac ARM 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114135.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ magnet:?xt=urn:btih:60176B4D3559EFCBA3FD2E9DEAC8F56A74A810EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114136.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ TechSmith Camtasia 2023 Studio 2023.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114137.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ Menuwhere 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114138.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ magnet:?xt=urn:btih:98274FED96BD08F2D08B4651F57057522B6C9F9F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114139.jpg" />
 </div>
 
 
@@ -581,78 +659,6 @@ magnet:?xt=urn:btih:98274FED96BD08F2D08B4651F57057522B6C9F9F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEAE660C5854C4B85C04455E172D5C460722E07A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704707   (114140) от 05.03.2024
-
-iA Writer 7.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2010–2024 Information Architects GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0991E4F0FB7FFD3CE12235BAEE25A120FCF90CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704679   (114141) от 05.03.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Темные делишки (2022) [MP3, Святой]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кои-то веки выбралась частный детектив Татьяна Иванова в театр не по делу, а на премьеру, которой открывался сезон. Одну из главных ролей должна играть ее старая знакомая Аня Зорина. И надо же – замена. Молодая талантливая актриса так и не появилась насцене. В ночь перед премьерой она заснула… и не проснулась. Передозировка снотворного. Татьяна Иванова ни минуты (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F82F71700DA351C72FD0C722BB31510AD26291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704651   (114142) от 05.03.2024
-
-Дом, который кричит / La residencia (1969) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на рассказе Хуана Тебара... Мадам Фурно управляет школой для девушек во Франции. В школе царит строгая дисциплина, порядок - суровые наказания, издевательства и пытки учениц... У мадам Фурно есть юный сын Луис, которого она старается держать подальше от девушек... В школе начинают происходить странные исчезновения учениц...Производство: Испания / Anabel Films S.A.Жанр: ужасы, детектив, триллерРежиссер: Нарсисо Ибаньес СеррадорАктеры: Лилли Палмер, Кристина Гальбо, Джон Маулдер-Браун, Марибель Мартин, Мэри Мод, Кандида Лосада, Полин Чэллонер, Томас Бланко, Виктор Исраэль, Тереса УртадоПеревод: авторскийЯзык озвучки: русский, испанскийСубтитры: русские, английскиеПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7DF8320207AFC41D832EBC65E47CB23863503B
 ```
 
 

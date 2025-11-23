@@ -6,7 +6,7 @@ Google Chrome 128.0.6613.114 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FB089F5BB5A2047AA3993A7AE308AE8A99F30630
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45284.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6847609C822EA7EE0954B8E422AED881CBED9690
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45285.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 113.0.5230.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45286.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skype 8.127.0.200 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45287.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:51EBD99124C1B51CF74599347F7CD160D7954123
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45288.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:51EBD99124C1B51CF74599347F7CD160D7954123
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45289.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3586607F4F718FBC79571426DD91A6F3B6822593
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45290.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Adobe Character Animator 2024 24.6.0.66 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45291.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:58BAEE1D6A4D186CFD2C0F83D8F8F81E43AE1276
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45292.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:1703B4BBCD5BA77B104AEB39812062F703E83A2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45293.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:8C0DF7710760B3FE26DC26B9F26FEFBB57BB6742
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45294.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B488AABDC2EBB68EAEB5001CB38FE0F057755AC3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45295.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:B488AABDC2EBB68EAEB5001CB38FE0F057755AC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45296.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45297.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Capture One 23 Enterprise 16.4.5.2312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45298.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:4B4B937639B55786A0DCA9265D93564C99CBEF14
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45299.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:531D31BBED1F6B47FC31F129D921A3BC8D495A15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45300.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Wondershare PDFelement 11.0.6.3108 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45301.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45302.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45303.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.6 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45304.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:37D1894F2969DCE555E57E61509B137CAFDBB424
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45305.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:37D1894F2969DCE555E57E61509B137CAFDBB424
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45306.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Adobe Media Encoder 2024 24.6.1.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45307.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:8DF0DD7D13667FC635DAEEF2F40A67F01A291294
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45308.jpg" />
 </div>
 
 

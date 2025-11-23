@@ -6,7 +6,7 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85509.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85679.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 �
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85697.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Joan Jett & The Blackhearts - Greatest Hits [2CD] (2010) [WavPack|Lossless]<Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85719.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Shadows - Platinum Collection 2CD (2006) [MP3|320 кб/с]<Instrumental Guit
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85722.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Rammstein - LIFAD Demos Edition (2008) [MP3|128-320 kbps]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85757.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85766.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85823.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:5484C551559DABFFBDDA953E9EB94BEC587BA953
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85865.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85870.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85908.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85931.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Yngwie Malmsteen - Best Ballads (1996) [MP3|320 кб/с]<Neo-classical metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85937.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86026.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86104.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86105.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86123.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86124.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86212.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86299.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86481.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Brian Johnson - Brian Johnson And Geordie (1981) [MP3|320kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86541.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86619.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Jeff Scott Soto - Damage Control [Deluxe Edition] (2012) [MP3|320 кб/с]<Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86749.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ magnet:?xt=urn:btih:9C1950927FAEB6BD4E2BF29BD99532B5C9B647F1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86816.jpg" />
 </div>
 
 
@@ -800,7 +800,7 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86969.jpg" />
 </div>
 
 

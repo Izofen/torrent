@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120318.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D88C54011FBB4C5C9BE53C07B85DA19192148EE5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120584.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120641.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4F4902E2DF38C6D830CC2C5888E99B8A3DDD14F3
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121737.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3F54BCC7A42D089E25668D00D8506ED15948CCEA
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122429.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122472.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122996.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123119.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123364.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123888.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124261.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:631FC97FD472DAD0046C7EC943E2C03071D2CFC8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124275.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A664C3D3579D42035CBFC654A6580F5AF8673DCB
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124566.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124598.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124931.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125052.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:4D0CEF00B69D5F82B994216CDE397BB3E52504B8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125082.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:97C14AF97098A2B534FD5009AF857B88BAEF4EC5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125206.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2767EE88CA562B0185C86808FA1497273702C5EC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125224.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:7BC27DBC101ED3442A3916D69E17506BA33ABF37
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:5CB0E7E44D6357629758F50CC6BE4DF1F9D605F1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125342.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125344.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125373.jpg" />
 </div>
 
 

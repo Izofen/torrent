@@ -1,3 +1,123 @@
+###  Публикация: 1651421   (194640) от 06.08.2023
+
+Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Межгалактические искатели приключений ярко и с шумом возвращаются! Отправляйтесь в путешествие по измерениям в компании Рэтчета и Кланка, которые впервые решили заглянуть на ПК. Помогите им одолеть злого императора из параллельной реальности, перемещаясь по удивительным мирам и даже за их пределами. На очереди измерение Рэтчета и Кланка, поэтому стряхните пыль со (   Читать дальше...   )Тип издания: SceneРазработчик: Insomniac Games, Nixxes SoftwareЖанр: AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651316   (194644) от 06.08.2023
+
+13:ORIGIN - Chapter One (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194644.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере того как Эдмон Лавье делал больше шагов, он чувствовал, что погружается все глубже в прошлое своего отца и Юсуфа. Смерть за ним, записки в доме, где он провел свое детство, и бесконечные вопросы - с каждой разгаданной тайной он приближался к конечному ответу. Ловушки, вопросы, головоломки и тень в погоне за ним. Когда он все это оставит позади, он обнаружит, (   Читать дальше...   )Тип издания: SceneРазработчик: Corvus Studio Yazilim Anonim SirketiЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D400C09EC2912398A3C1E409C8F9D3E48CC0FBCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651178   (194786) от 05.08.2023
+
+Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunacy: Saint Rhodes - хоррор на выживание от первого лица, в котором вам предстоит выяснить правду о чудовищном убийстве вашей семьи. Исследуйте историю своего родового поместья и деревни Сент-Родс и попытайтесь противостоять грозящей ему опасности. Раскройте мрачные тайны своей семьи, пока вас не поглотило безумие. В Lunacy: Saint Rhodes вам предстоит отправиться (   Читать дальше...   )Тип издания: SceneРазработчик: Stormling StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969FEBAB5504C968BA881D0C69993616B33E8E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650830   (194801) от 04.08.2023
+
+Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Welcome to Kowloon — хоррор от первого лица, в котором Вы в поисках дешёвого жилья попадаете в мрачный район Коулун (Kowloon). Жители этого места только на первый взгляд кажутся обычными людьми, но если копнуть поглубже, Вы увидите их настоящие лица. Вам предстоит побывать в пугающем месте, населенном жуткими личностями. Красивая графика и высококачественный 3D звук (   Читать дальше...   )Тип издания: RepackРазработчик: a1esska, Notex, N4bA, AdmiaЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9636AE5964F3AFAB8EBC381AE8CCC211DD33714E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649747   (195006) от 29.07.2023
+
+Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15_112496/dlc) Repack DjDI
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Nights at Freddy’s: Security Breach - очередной эпизод в серии игр-хорроров для всей семьи, снискавших популярность у миллионов игроков во всем мире. Вам предстоит проследить за судьбой мальчика Грегори, оказавшегося запертым на ночь в «Мегапиццаплексе Фредди Фазбера». Грегори должен заручиться поддержкой самого Фредди Фазбера, чтобы уйти от своих преследователей (   Читать дальше...   )Тип издания: RepackРазработчик: Steel Wool StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F8D6D7C695412545B57C5D600CBB3AA7BBB9D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650023   (195036) от 30.07.2023
 
 The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
@@ -6,7 +126,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195289.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195289.jpg" />
 </div>
 
 
@@ -54,7 +174,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195366.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195366.jpg" />
 </div>
 
 
@@ -78,7 +198,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195387.jpg" />
 </div>
 
 
@@ -102,7 +222,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195473.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195473.jpg" />
 </div>
 
 
@@ -126,7 +246,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195532.jpg" />
 </div>
 
 
@@ -150,7 +270,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195563.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195563.jpg" />
 </div>
 
 
@@ -174,7 +294,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195589.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195589.jpg" />
 </div>
 
 
@@ -198,7 +318,7 @@ magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195622.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195622.jpg" />
 </div>
 
 
@@ -222,7 +342,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195684.jpg" />
 </div>
 
 
@@ -246,7 +366,7 @@ Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195961.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195961.jpg" />
 </div>
 
 
@@ -270,7 +390,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195974.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195974.jpg" />
 </div>
 
 
@@ -294,7 +414,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196026.jpg" />
 </div>
 
 
@@ -318,7 +438,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196276.jpg" />
 </div>
 
 
@@ -342,7 +462,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196286.jpg" />
 </div>
 
 
@@ -366,7 +486,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196310.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196353.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196353.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196453.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196565.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196592.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196728.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196728.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ The Case of the Golden Idol - это детективная приключенч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05DA63A587E4C1C38262592C0420556D2D17D36B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640768   (196905) от 19.06.2023
-
-Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая инди-игра в формате симулятора ходьбы с большим количеством головоломок. Вырвавшийся из лаборатории неизвестный вирус быстро уничтожил больше половины населения всего земного шара из-за чего люди в альтернативной России были вынуждены спуститься в бункеры в попытках оградить себя от смертоносной болезни. С течением времени обстановка лишь накалялась, (   Читать дальше...   )Тип издания: SceneРазработчик: AktamiaЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Русский, Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4600FA163C41310180D8EB61440D876979E2665E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639964   (196974) от 15.06.2023
-
-Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в уникальную сюжетную историю и отправьтесь в потрясающее путешествие, которое разбудит ваши чувства и наилучшие воспоминания. Примерьте на себя роль Мими и погрузитесь в детские воспоминания о тех временах, когда бабушка была жива. Прошлое сталкивается с настоящим: столкнитесь с последствиями решений, принятых во взрослом возрасте, и окунитесь в воспоминания (   Читать дальше...   )Тип издания: SceneРазработчик: Un Je Ne Sais Quoi, UmanimationЖанр: Adventure, Simulation, 3rd PersonЯзык озвучки: Английский, Немецкий, Французский, Окситанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAFE541675F6780916E037B4A0BECDE6C036060
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639246   (197127) от 12.06.2023
-
-Deadly Delivery (2023) [En] (Build 11444090) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deadly Delivery — хоррор от первого лица. Ваша цель - доставить посылку в заброшенную психиатрическую больницу. Может адрес неверный? Или, может быть, больница ремонтируется? Кто знает… Вам лучше доставить посылку как можно скорее.Тип издания: RepackРазработчик: Rodrigo De La MoraЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3C4228F2A5913FC7481119033E9A39D4380E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638814   (197187) от 10.06.2023
-
-Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amnesia: The Bunker - хоррор от первого лица от создателей игр SOMA и Amnesia. Вы остались в одиночестве с единственной пулей в барабане револьвера в опустевшем бункере времен Первой мировой войны, где вам предстоит столкнуться с ужасом, таящимся во тьме. Любой ценой не дайте погаснуть свету и выберитесь живым. Погрузитесь в неподдельно гнетущую атмосферу ужаса.Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure, FPP, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE2B18C44759378E350A1B2843B9BCFD1EDFA3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638841   (197205) от 10.06.2023
-
-Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtrack Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harmony: The Fall of Reverie - это увлекательная приключенческая игра с многогранным и крайне трогательным сюжетом, который откроет удивительную вселенную. Спустя несколько лет Полли возвращается в родной город, чтобы отыскать пропавшую мать, но вместо этого сталкивается с тотальным изменением знакомого края. Теперь на месте небольшого городка находится огромный (   Читать дальше...   )Тип издания: SceneРазработчик: Don't Nod EntertainmentЖанр: Visual Novel, Adventure, Fantasy, MysteryЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5C97484DEB674729628A813237699815A3A4FD
 ```
 
 

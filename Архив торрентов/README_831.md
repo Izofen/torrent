@@ -1,3 +1,76 @@
+###  Публикация: 1672963   (166992) от 30.10.2023
+
+Media Player Classic Home Cinema (MPC-HC) 2.1.0 + Portable (unofficial) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F277A0AAF5430D3926B1A4165FE2A7B7E1514A30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516230   (166994) от 10.12.2021
+
+UltraCompare 22.00.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166994.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraCompare — это текстовый редактор, оптимизированный для работы одновременно с несколькими файлами, с целью нахождения отличий в этих файлах. Поддерживает построчное сравнение (Binary Compare) отдельных файлов. В строке состояния отображается количество различных блоков, также предусмотрена возможность поиска различий в папках путём рекурсивного сравнения директории (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 IDM Computer SolutionsПоддерживаемая ОС: MacOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E68DDBE4C1A2D702C511BD793E92B67064DA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431561   (166996) от 14.12.2020
+
+Ink2Go 1.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
+Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: EyePower Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D96429E87BA3DBB9E55488FF1D17F3166B3725E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672981   (166998) от 30.10.2023
 
 Imagine 1.3.4 + Portable + Plugins [Multi/Ru]
@@ -6,7 +79,7 @@ Imagine 1.3.4 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166998.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Jettison 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167000.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Deliver 2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167005.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Q-Dir 11.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167009.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ SQLPro for SQLite 2021.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167010.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ PageEdit 2.0.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167013.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ FX Player Pro 3.7.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167025.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ Deliver Express 2.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167026.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ uTorrent Pro 3.6.0 Build 46612 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167027.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167030.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ JRiver Media Center 31.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167034.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167036.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ Topaz Video AI 4.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167052.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167054.jpg" />
 </div>
 
 
@@ -352,7 +425,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167055.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Chromium 118.0.5993.118 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167083.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Seal 1.10.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167097.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ OpenNumismat 1.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167100.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ DiskTrix UltimateDefrag 6.0.50.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167111.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ Any Video Converter  6.3.7 Professional RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167114.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Wondershare PDFelement 10.1.4.2521 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167122.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Listen Audiobook Player v5.2.0 (977) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167130.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ InShot - Фото и видеоредактор v1.980.1422 Mod by maxi123444 [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167140.jpg" />
 </div>
 
 
@@ -556,80 +629,6 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDAE500B828C7AA9359AF1858D37BD50582BACBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672859   (167145) от 30.10.2023
-
-VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167145.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2023Разработчик: © 2023 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D2010872DC66F117BEDF98129020944206B239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672988   (167150) от 30.10.2023
-
-K-Lite Codec Pack Update 17.9.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167150.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B2D6855F4B66D6F166313C67AAA3B04A0688F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672984   (167153) от 30.10.2023
-
-Telegram Desktop 4.11.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821F3F9B15C7E72D96504F1050371EDD608D3FFE
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1753724   (103765) от 06.10.2024
+
+VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marko Ib - The Last of Us [06:31]
+02. Aquaella - Seeking Summer (VendettaX Remix) [06:10]
+03. SLIDER (SL) - Ghandinagar [07:52]
+04. jUjU (SE) - Zero Tolerance [06:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2356D0440B336C19E40B0D2D89D80CE1758598E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753677   (103766) от 06.10.2024
+
+Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Air Music And Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There’s No Business Like Show Business [3:21]
+02. Oh, What A Beautiful Mornin’ [2:34]
+03. Soliloquy [8:09]
+04. Time After Time [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753795   (103767) от 06.10.2024
+
+VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. t.Roy & The Smoking Section - Cute Little Thang (2:57)
+02. Chicken House Purple - That I Was Back Then (3:25)
+03. Suzanne's Band - Kick It to the Curb (2:52)
+04. Laura Vida - I Sing My Own Kind of Blues (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6CBA2AF6B13A4F09173ECEB5D0FBA5F8F32751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753606   (103768) от 06.10.2024
 
 VA - Pretty Little Deep-House Friends, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -6,7 +87,7 @@ VA - Pretty Little Deep-House Friends, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103768.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:123CC63196131AEE55D2A1C90CA21071379DC564
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103769.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ magnet:?xt=urn:btih:2C1AD89F2ABF9D116FD12C50BAFCAD3231B353F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103770.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:B1B2F8A28C2A02038427C6E135B82BEEF29C7973
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103771.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:EFAE332CF58711047F53E43E08C18D48FB9115F8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103772.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Гонка (06.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103773.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ magnet:?xt=urn:btih:EF945C6E8F93D1244EF478B0593E057FFB05EDF5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103774.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ Lemon Pepper Hangover - Lemon Pepper Hangover (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103775.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ Twelve Foot Ninja - Studio Albums (6 releases) (2008-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103776.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ Airborne Blues Virus - Get on Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103777.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ Travis Bowlin - Hooks & Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103778.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Harlem Lake - The Mirrored Mask (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103779.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:B93B6E4D9A7C3EDB051E6DB865FF0A63FCD942B1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103780.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ Dennis Herrera - Four (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103781.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ The Heavy Hitters - The Heavy Hitters (2023) Cellar Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103782.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) Portable b
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103783.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ VA - The Best Ethnic Deep Tribal House Rhythms (2024) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103784.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ magnet:?xt=urn:btih:F1026E9F97C65B523B018961ACF267A63E6CECA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103785.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ VA - Sexy Money on a Friday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103786.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Telegram Desktop 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103787.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ magnet:?xt=urn:btih:ADFD9EB5E118F3FEF36444E3CD7DC341984AE371
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103788.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ PrivaZer Pro 4.0.94 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103789.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ VA - Blues In My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103790.jpg" />
 </div>
 
 
@@ -583,81 +664,6 @@ VA - Blues In My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CDF5DB3D6733F4C26CFD9989AC8CC846AD33515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753659   (103791) от 06.10.2024
-
-PrivaZer Pro 4.0.94 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103791.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0079FCC6BEFD443E00973E69A180EE61C3445C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753712   (103792) от 06.10.2024
-
-Однажды в России (27.09.2024) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1231903E675E1BF39F43547FA582822B18A29DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753749   (103793) от 06.10.2024
-
-VA - Deep House Essentials: Edition 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eigenart - Moonrise [06:44]
-02. Claus Pieper - Reincarnate [06:50]
-03. Alex Lo Faro - I'm Feeling Good [04:47]
-04. Juan Domecq - Whispers of the Wind [06:40](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0422E958F81BD899DA16C60296AC8AAA97D21926
 ```
 
 

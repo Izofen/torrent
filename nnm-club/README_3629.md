@@ -1,3 +1,75 @@
+###  Публикация: 1704937   (114036) от 06.03.2024
+
+Opera One 108.0.5067.20 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6544FC27ADAB363E2BF130E6D9FB061A586E9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704914   (114037) от 06.03.2024
+
+Firefox Browser 123.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383EAEA85E8D604F3222867926D59F09A38AFD0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704972   (114038) от 06.03.2024
+
+IObit Uninstaller Pro 13.4.0.2 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114038.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9BADD2EA24AB4D1EC3880ED174AFD0D3CE72EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705009   (114039) от 06.03.2024
 
 Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -6,7 +78,7 @@ Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114039.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Comodo Dragon 121.0.6167.140 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114040.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Zakk Sabbath - Doomed Forever Forever Doomed (2024) 2 x CD [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114041.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:86172170E3DEB7FA4F6527DB0602C43C3150DAC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114042.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114043.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114044.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ magnet:?xt=urn:btih:25A4C6E035C3148B38BB1050E60741E0377CACCA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114045.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Music Collection 3.6.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114046.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:47ECD880760630F9E720B56C56C049BC8F5CE59C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114047.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Vivaldi 6.6.3271.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114048.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:0D8BF9CF8D81EFF08C90001FE0F924D5AFE14FCC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114049.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:66163556EB990744FF0918EE7AF1D172A1EE0236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114050.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:3BC3FC9DE376394222A3CC29D2F5CAF9F7A21D01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114051.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Adobe Photoshop 2024 25.5.1.408 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114052.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ magnet:?xt=urn:btih:98C9CFC996A3ED93C817F2423540559C559D48F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114053.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:98C9CFC996A3ED93C817F2423540559C559D48F6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114054.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:C378E6FD5F7F7C4B4DC7C785E91C21C813145F10
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114055.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:6558D4A81389C8A19887B61838ABDFCDEA58554E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114056.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:0EE92642A8918C120F0C680A887CD55DC050F6B6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114057.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ Hasleo Backup Suite 4.2 Portable by Игорь2011 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114058.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:F5CEE8B3789DA08011BB08437EB1BDFEABAD47CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114059.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:968F1CF55ADEBE1391DBB9689CD7B9D3E72F1AAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114060.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:C29615D9638EF01A7E752FFC5849B7306651E84D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114061.jpg" />
 </div>
 
 
@@ -560,78 +632,6 @@ magnet:?xt=urn:btih:C29615D9638EF01A7E752FFC5849B7306651E84D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61832237EDACBFD65A9CBD424BBC37680C93751F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704853   (114062) от 06.03.2024
-
-Мистер Блейк к вашим услугам / Completement crame / Mr. Blake at Your Service! (2023) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чопорный английский джентльмен приезжает погостить во французский замок, где он некогда встретил свою первую любовь. С тех пор имение опустело, прислуга разбежалась, а гостя принимают за долгожданного дворецкого. Чтобы вернуть замку и его прекрасной хозяйке былое величие, в распоряжении Мистера Блейка есть видавшее виды оборудование, (   Читать дальше...   )Производство: Франция, Люксембург / Bidibul Productions, SuperprodЖанр: драма, мелодрама, комедияРежиссер: Жиль ЛегардиньеАктеры: Джон Малкович, Эмили Декенн, Фанни Ардан, Филипп Бас, Евгения Анселен, Аль Гинтер, Кристел Хенон, Anne Brionne, Дэниэл КовачПеревод: Дублированный (Пифагор)Язык озвучки: Русский, ФранцузскийСубтитры: РусскиеПродолжительность: 01:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22DA63D23FC3FB98FED90786A35EBB5FC51E73D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704986   (114063) от 06.03.2024
-
-Роман Прокофьев | Звездная Кровь (Книга 5). Вечность (2024) [MP3, Олег Кейнз, Алиса Тверская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астроинженерную штуку, что построена вокруг черной дыры, местные называют Небесный Трон. А внутри него находится Вечность. Это вроде как загробный мир, в который после смерти уходят избранные Восходящие, чтобы обрести бессмертие. Но, в отличии от земного, он абсолютно реален, и оттуда иногда снисходят гости, называющие себя эмиссарами Вечности. Гости? Или хозяева? (   Читать дальше...   )Жанр: Боевая фантастика, киберпанк, литРПГИздательство: ИП Роман ПрокофьевПродолжительность: 09:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B729C4E571FDE8A31A610333FBE88BF138132E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705005   (114064) от 06.03.2024
-
-Семья чёрной мафии / Black Mafia Family (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1 из 10) Jaskier (обновляемая)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114064.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух братьев, создавших одну из самых знаменитых преступных группировок в истории.Производство: США / Emmett/Furla Oasis Films, G Unit, G-Unit Film & TelevisionЖанр: биография, криминал, драмаРежиссер: Солван Наим, Таша Смит, Тимоти А. БертонАктеры: Деметриус «Младший Мич» Фленори, Да’Винчи, Тишон Фриман, Миколь Уайт, Расселл Хорнсби, Стив Харрис, Майлс Труитт, Эрик Кофи-Абрефа, Лайла ПрюиттПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74547EC4E2E31D7E2C6D360A805D5277B5BD93E2
 ```
 
 

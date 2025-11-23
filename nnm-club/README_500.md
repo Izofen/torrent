@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EECB07410FA02C4EFF4D50EFB52DAEDC88E6BE45
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13270.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A2A146675457235576B014B2775BD7D6EE5D1D0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13271.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ UJAM - BEATMAKER 3 3.0.0 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13272.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Armin van Buuren - Breathe (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13273.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13274.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E3C7832A36C4FCD3663A1992DF6B4591D33DF28A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13275.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E1A6E0276945443130A86F25F13E679A41C93AC4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13276.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C69BA31D1F0A1A3592D3A20C0C373D6182C41A0C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13277.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13278.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13279.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9A889E4430A8DB603A2DF44B011E9978A5768273
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13280.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:23998C24F03D32E65791249292499755348876CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13281.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13282.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:BD36A5AC60F664DDE5E7A8A187C176CFBCDCBAA4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13283.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9A2D91915D27138A69028129734A57C3FF12E7A3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13284.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13285.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:3ED368C480F71A6E4FD8F442E067CB52B4A8F21B
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13286.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ D: Жажда крови / Banpaia Hunter D: Buraddorasuto / Vampire Hunter D: B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13288.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:5991F2203DA90871E16B2EF6B3FCE6D7483AE613
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13289.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ D: Охотник на вампиров / Kyuuketsuki Hunter D / Vampire Hunter 
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13290.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ StartAllBack 3.9.12 build 5283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13291.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13292.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:F31ED41DF07F5520A5E2520CA62151549DFE710E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13293.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:165286AD8DB03E8E6DA23814DEBB7FF0B2574A2F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13294.jpg" />
 </div>
 
 

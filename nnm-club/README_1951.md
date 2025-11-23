@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51081.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Gary Rogowski | Столярные работы с ручным фрезером
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51082.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MiniTool Power Data Recovery 12.0 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51083.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FolderSizes Enterprise 9.6.490 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51084.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51085.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1A10221E5989D042B8DE8E08F28F8D1E482516EB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51086.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51087.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B94E0F96F00030604306C728EAE1ADE00B2E1B79
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51088.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4A81F5C99AA8EF8ED344CD84F2D195CE8D133C5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51089.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Auslogics Windows Slimmer 4.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51090.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4DFC60527D8460963475DFEE6390DDEC09F38F22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51091.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:52190AFDD9EB5ABC74F4BEF6141960424952232B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51092.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:52190AFDD9EB5ABC74F4BEF6141960424952232B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51093.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C73516166416C52F5687590FB7F764232084C288
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51094.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D0E962DD3D6C90192AE50F852122C9EC0D6111C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51095.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wolfsheim - Discography 7CDs (1992-2003) 1st German Press / Repress [APE|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51096.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A4920C73493B34D9FB960404D62EA04A971E8288
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51097.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WinToUSB Technician 8.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51098.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Opera One 111.0.5168.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51099.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:243B75D50603ACA5BBB0E6A755E14D3C02D053B6
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51100.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51101.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0C0A99AB7E802D77D773DF1DA61C0E01047DE2FF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51102.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Dance Party 2! (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51103.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ NVIDIA GeForce Desktop Game Ready 475.06 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51104.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:8AA87E3DA6A4BF31E7AC58020D6D3FCBA27F07BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51105.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ CRUELTY (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51106.jpg" />
 </div>
 
 

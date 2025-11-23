@@ -1,3 +1,76 @@
+###  Публикация: 1693621   (121758) от 21.01.2024
+
+Валерия Черепенчук | Флаги мира: история, символика, неизвестные факты. Большая иллюстрированная энциклопедия [2-е изд.] (2024) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение флагов открывает перед нами удивительный мир. За каждым государственным символом стоит долгая история: иногда – трагичная, иногда – романтическая, но никогда не скучная. Книга предлагает познакомиться с историей современных государственных флагов. Как они появились? Что означают изображения, которые они несут на себе? Как отражались на них государственные (   Читать дальше...   )Жанр: Популярно об истории, ЭнциклопедииИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AACAC440D6EB462438A5C94F0397DF65FB606B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689354   (121759) от 21.01.2024
+
+Фриц Cпрингмайер | Сатанинская династия Ротшильдов II (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121759.jpg" />
+</div>
+
+
+###  Подробнее
+
+О становлении Династии Ротшильдов, их воздействии на исторические события, в том числе непосредственно связанных с Израилем и Палестиной и т.д.Жанр: История, публицистикаПеревод: DeepLФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892A07F9F9094DC9ECAD24AE8E1F2A31FB3A5C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689615   (121760) от 21.01.2024
+
+Хроники Риддика / The Chronicles of Riddick (2004) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние пять лет Риддик провел в бегах среди забытых миров на задворках галактики, прячась от наемников, назначивших цену за его голову. Теперь беглец оказался на планете Гелион, где живет прогрессивное многонациональное общество, завоеванное лордом Маршалом, фанатиком, решившим поработить человечество армадой своих воинов, некромонгеров.
+Совершив побег из подземной (   Читать дальше...   )Производство: США / Universal Pictures, Radar Pictures, One Race ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Дэвид ТуиАктеры: Вин Дизель, Колм Фиор, Тэнди Ньютон, Джуди Денч, Карл Урбан, Алекса Давалос, Лайнас Роуч, Йорик ван Вагенинген, Ник Чинланд, Кит ДэвидПеревод: Дублированный (Мосфильм-Мастер, Netflix)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6B182F7B0A221C588F172B672B5832F76B66B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549494   (121761) от 21.01.2024
 
 Saxon - Дискография (33 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
@@ -6,7 +79,7 @@ Saxon - Дискография (33 releases) (1979-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121761.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121762.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:E1CCEB092621CED1E9B7C76A37D762E276D7A5F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121763.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ AVS All-In-One Install Package 5.6.1.185 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121764.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:2B0F2C473864A063588948DE0049E65A736F2755
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121765.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:7EB8D476445C64AC66E8238F5F3FCD2B7B8018BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121766.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:3020CF809FE33D719218DC1B05C84AF390422F0D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121767.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121767.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Resource Hacker 5.2.7.427 Final Portable by alexalsp [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121768.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:5A57106F1C2ACBE2A40AE09921B8197B9CD4E345
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121769.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ VA - Dark Western Country Rock (2024) [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121770.jpg" />
 </div>
 
 
@@ -255,7 +328,7 @@ magnet:?xt=urn:btih:B2C3143267C3AA3136CD2BC3AD7B0D0899ABB328
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121771.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ Photo Lab PRO v3.12.88 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121772.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ magnet:?xt=urn:btih:946A1F53F858CCA0898C9AE2267F79F20D3390E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121773.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ SHAMAN - Сделано в России (2023) 2CD [FLAC|Lossless|image + .cue] 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121774.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:797839CEDE978082DCF2FA8ABF2DC78FD3055EA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121775.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ magnet:?xt=urn:btih:6307A5A8B50FA41505D27C1446CCDBAFD03621A0
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121776.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:8287BFCF182E6DA19B3CBD08BCED27808E470A78
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121777.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ magnet:?xt=urn:btih:56C896851D4B829851CE0AF9611319FEE3A4FBDC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121778.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ VK X 6.8.2 (29200) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121779.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121780.jpg" />
 </div>
 
 
@@ -501,7 +574,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121781.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121783.jpg" />
 </div>
 
 
@@ -560,78 +633,6 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692576   (121784) от 21.01.2024
-
-У ИИ обнаружили удивительные способности к обману человека
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи из компании Anthropic обнаружили, что модели искусственного интеллекта можно научить обманывать людей вместо того, чтобы давать правильные ответы на их вопросы. Причём ИИ демонстрирует удивительные способности к обману.Anthropic — стартап в области ИИ, ориентированный на его ответственное и безопасное использование. В сентябре 2023 года его частичным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571822   (121785) от 21.01.2024
-
-Приключения Паддингтона / Paddington (2014) BDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь, это медведь по имени Паддингтон из дремучего Перу. Он приехал в Лондон, чтобы обрести семью и стать настоящим английским джентльменом. На пути к этой цели его ожидают невероятные приключения, полные юмора и опасностей.Производство: Великобритания, Франция, США, Китай/ Heyday Films, DHX Media, StudioCanalЖанр: комедия, приключения, фэнтезиРежиссер: Пол КингАктеры: Бен Уишоу, Николь Кидман, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Мадлен Харрис, Сэмюэл Джослин, Джим Бродбент, Питер Капальди, Имелда СтонтонПеревод: ДублированныйСубтитры: Английские (full, SDH)Продолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B8CF6A87B30E35C784963CAB65C579B86ED94B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571830   (121786) от 21.01.2024
-
-Приключения Паддингтона 2 / Paddington 2 (2017) BDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121786.jpg" />
-</div>
-
-
-###  Подробнее
-
-В антикварном магазине Лондона обаятельный и хорошо воспитанный медведь Паддингтон находит уникальную старинную книгу. Пока он изо всех своих медвежьих сил старается накопить на нее деньги, редчайшее издание внезапно похищают. Паддингтон оказывается вовлечен в аферу века, затеянную знаменитым, но вышедшим в тираж актером, который ныне рекламирует собачьи консервы, (   Читать дальше...   )Производство: Великобритания, Франция, США, Китай, Канада / Amazon Prime Video, Bona Film Group, Canal+Жанр: фэнтези, комедия, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Хью Грант, Брендан Глисон, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Джим Бродбент, Питер Капальди, Мадлен ХаррисПеревод: Дублированный (iTunes)Субтитры: Английские (full, SDH)Качество: BDRip 1080pПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D675825D4A28AE8870E82B10985D5D8294534AC0
 ```
 
 

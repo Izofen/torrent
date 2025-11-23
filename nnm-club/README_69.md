@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Step Up, Step Up | Перенос онлайн-школы на Salebot (2025) WE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1832.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6B2E8695379D64510F4BEA73C71D756B75A9208A
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1833.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:34B68C0D251AD916AF9C358090F921A1E5F43E22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1834.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Notification Widget v1.5.194 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1835.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F3F7B71943BF5EA19D37B2EA28DE71856B5CA218
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1836.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AEF3BC41FD5E6F4F4884F1848AE896280701C149
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1837.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E0FD5A424022977DBF43DE5E6122CBE26CD9CFD7
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1838.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ AirBrush: ИИ Фоторедактор v7.17.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1839.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Glary Utilities Pro 6.31.0.35 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1840.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B9B5EFE6DB545F3EDFB7870D9EC47DAE26F681B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1841.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - cool hits and cosy music 100 songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1842.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1843.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E5EA8C1FE96354B75A3E9339271581CC339E6224
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1844.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RUTUBE - видео, шоу, трансляции 30.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1845.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:81396621216D15D73713F7C62F91C85FB06E416C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1846.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Stepik, Карпов и Партнёры | Основы управления п�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1847.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Cartoon Photo PRO v1.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1848.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E1418CBE07337FD02A3FFE84A9C73B43CECF1A85
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:A9FA46973BCDD996ED2A7D92F4E723AC6377A6B6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1850.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:F2A8A9D0B6356ED2A0A80EDC4C514751C4E957F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1851.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:22FB2A95D54C2B28597D4844BEA7DFFE9B74CBB8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1852.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7A9A03FB444E5663BD52CDA67EF2B783E6C745DD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1853.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E369CBEEB830DFF10196E67B8A370780972ACA7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1854.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:311BF4C3562C753DF09710D6A2BEC02D6B2A9041
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1855.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:B44A1101A0E9DF38F7033C1A988DBAA33A6D46C6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1856.jpg" />
 </div>
 
 

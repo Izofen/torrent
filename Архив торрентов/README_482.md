@@ -6,7 +6,7 @@ Sumatra PDF 3.6.16388 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107064.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Soft Organizer Pro 9.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107071.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FolderSizes 9.6.490 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107073.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Skype 8.123.0.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107074.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107090.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Fort Firewall 3.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107092.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107094.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107105.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107126.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107127.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Skype 8.123.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107131.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Process Lasso Pro 14.2.0.32 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107138.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Auslogics Driver Updater 1.26.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107144.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Process Lasso Pro 14.2.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107146.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:321C34E875D956B1BD10513DCF6B24BFF60ADDA4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107147.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:3262311A34C4DCA2F7A851BC20A604403F9B72DF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107148.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ HDCleaner 2.075 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107156.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ EarthView 7.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107175.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Opera One 111.0.5168.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107178.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ ApowerREC 1.7.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107180.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Sandboxie 5.69.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107187.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Image Uploader 1.4.1 Build 5175 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107229.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PrivaZer 4.0.88 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107230.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Rainlendar Lite 2.21.2 Build 179 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107253.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PotPlayer 240618 (1.7.22266) (unofficial) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107274.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ HandBrake 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107278.jpg" />
 </div>
 
 

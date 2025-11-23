@@ -6,7 +6,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:23A9BC37B14D02EC1B090696FF0247E5A7C67BC9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51186.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC23F274976BE6EDB55ABE4AA4456B40A6FF7809
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51187.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EC23F274976BE6EDB55ABE4AA4456B40A6FF7809
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51188.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EC23F274976BE6EDB55ABE4AA4456B40A6FF7809
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51189.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DAD0AA102EF91052804FAB24D70ABC73013B3C41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51190.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:779593D30BC83800D9EE912CD70EFA3855D1A952
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51191.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1E064364EFAEAF6EC7C1F6F4E9CCCF1F5D8FFB3C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51192.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:05B623B70009DCD134022D1E3C738D1439945F74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51193.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51194.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:31B09603B06B15D4A862568B24453B177FC303F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51195.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:346928FF8F0120C5B109C9E201110298C7A1CE19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51196.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:346928FF8F0120C5B109C9E201110298C7A1CE19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51197.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Zettlr 3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51198.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D381224B86ACEFC013086A79985059CE17A08DBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51199.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D381224B86ACEFC013086A79985059CE17A08DBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51200.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:1FAA2F7EA73DC50C930D786322BCF60ED56F0046
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51201.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:51972735BDF355EBC646CEC76333450EBAA381D6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51202.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:8AE513DC6BFE4623FAEE03C2BA73B8E4005BF3D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51203.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E4163DE3C3575232A8F7F7AD1A0CFD5953409EDA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51204.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Topaz Photo AI 3.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51205.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F271B5E8BE813C96C0561BAFDF84600E1D25CD35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51206.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:043AD732B4223786224270C6A013335CC2B288B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51207.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51208.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51209.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:E33C66553847A1817A324E09EE81353BD01E4C7D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51210.jpg" />
 </div>
 
 

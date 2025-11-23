@@ -6,7 +6,7 @@ VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Up
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139385.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - No More Games (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139401.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139418.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - December Rock Party (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139424.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Beatport Trance: Sound Pack #386 (2021) [MP3|320 Kbps] <Trance, Electro, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139454.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139538.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139571.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Дискотека 2017 Dance Club Vol. 159 от NNNB (2016) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139605.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139668.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Music News vol.318 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139698.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139703.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139753.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Музыка для машины Vol.43 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139858.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:32C327A307DAF99162C01A5A862DBF9A49AA94C0
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139861.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139946.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The High Dials (2019) [MP3|320 Kbps] <Indie Pop Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139970.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140071.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B7A5DC8098E87A4EF9AB125875541A4C98DC833A
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140156.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Mystical Lounge - The Best Mystical Tunes (2012) [MP3|320 кб/с]<ChillOut
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140208.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Умная Электроника (Музыка Поднимающая На
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140233.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140304.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140385.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140419.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140513.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Новогоднее настроение в СССР (2CD) (1956-1991) о�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140600.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Musi
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140638.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Crusade - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105993.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fractured Truth - Radiopaque (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105994.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skullboogey - Dirty Bones Rolling (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105995.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rathole - Out of Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105997.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Slade Timeline - Timescape (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106002.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Serious Noise Maker - Take Me to the Show (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106003.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Metal Church - The Final Sermon (2024) Live In Japan 2019 [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106012.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Smells Ai Music Project - Broken Hopes (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106015.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grace Potter - Grace Potter's Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106017.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106032.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106073.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:232F1ED48642285F21FDDA7BDD7FABE91224AF73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106079.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106080.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106088.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106089.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается родина (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106092.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106116.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106120.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Yang - Rejoice! (2024) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, RIO, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106147.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:380AD9F724FB8360CBBE442D588FFC1D8A93D707
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106156.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Imperia - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106159.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106162.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106164.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106167.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106168.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Golf Cart Mixtape: Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106171.jpg" />
 </div>
 
 

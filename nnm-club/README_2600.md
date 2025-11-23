@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68348.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sandboxie 5.70.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68349.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E8C18D607F067758A305E5AA0D057BF867D56F06
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68350.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68351.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Tarzen - 2 Albums (1984,1989) Remaster, 2025, Metallic Blue Records [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68352.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68353.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:628879AE56C60B249985B919FD1B4DB3542008F4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68354.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Death Angel - The Art Of Dying / Killing Season (2013) 2 x CD, Compilation, Limi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68355.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Lola Indigo - Nave Dragon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Latin Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68356.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ella Fitzgerald - Three Classic Albums Plus: Second Set (1957 - 1961) 2CD, 2014,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68357.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Ar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68358.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Down
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68359.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kinetikill - Echoes of Oblivion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68360.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68361.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68362.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Within Fractals - Samsara (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68363.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Raven - Leave 'Em Bleeding (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68364.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7DBE591185095D6757CDA7F6918D61773E8E292E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68365.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:57C837C1BDBA59D23B3C4872282AA0DCB661D8B0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68366.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68367.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68368.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tablacus Explorer 25.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68369.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:B3D193FB7366BFCF06A2DE18DE27A4181B900F13
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68370.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:F8779EAC69A39AC72D9370F7941E3528526A8C9B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68371.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:78D7D84958BB0EE40F21CBBEEDD6C4C6417E6469
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68372.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:BF6816EDF9DA4A3AE882DF65ABC70CBD6C993134
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68373.jpg" />
 </div>
 
 

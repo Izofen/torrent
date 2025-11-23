@@ -6,7 +6,7 @@ ApowerREC 1.7.2.11 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:664B57523326DBF24EF06B1E4B5E20FC146D3514
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ reaConverter Pro 7.823 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44505.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4586294A388AF2E77B8143B6F5F3B9BF4015C7EC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44506.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BFBB3D840CEB2ABE80F8601C75A6BE9441758DFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44507.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:ACE84CF6E83167B24C036F0096C0C2B18BC136F5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44508.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ XYplorer 26.40.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44509.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0409) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44510.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44511.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ XYplorer 26.40.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44512.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8B4E8728AE19A00492815DD3F98D8ADEA7214307
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44513.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A72D98468BB4BD1C57FB45112DC2960CC1156CA0
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44514.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E26C1F0257712C7EC35BA0293B8274CB9856F7CD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44515.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lone Fungus (2022) [En] (1.1.14) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44516.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9D3900CEA4D36D033A8BEA0082C80EC0B947F641
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44517.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C3677E5CAB4BD052B87D60CFED2016DA646BEF6C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44518.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0409) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44519.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4437F03C8EE51974074C8446211A84EC874B1895
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44520.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:FD14D8331EEA2E0B30B3FFC59DCDFD4D96EDD7E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44521.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Wondershare PDFelement 11.0.7.3119 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44522.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Blackmagic Design Fusion Studio 19.0.1 Build 5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44523.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6025414293CED45F6066B6D22875FF78DF8224A6
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44524.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44525.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8CD2C5767A77A63F7CC3A0004417F49D8CD72FDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44526.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ TweakNow WinSecret Plus! 5.6.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44527.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:3684702E5D14D1D905B32F70E1E3DE0D7BC2FDBC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44528.jpg" />
 </div>
 
 

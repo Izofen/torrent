@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61725.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blender 4.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61726.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:97CDAC4AE106547656E258C1B239F164BD4F8B62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61727.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Serif Affinity Photo 2.4.1.2344 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61728.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Affinity Designer 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61729.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Macrorit Disk Scanner 6.7.2 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61730.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Wise Care 365 Pro 6.6.6.636 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61731.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2CAE45770B62878DFBB819B94CFA9421E29D56D0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61732.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ AOMEI Backupper Technician Plus 7.3.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61733.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:EF11B62CD2A8D2F38E0397F2A053B2F1B7C9C214
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61734.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ qBittorrent 4.6.4 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61735.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Wise Folder Hider Pro 5.0.5.235 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61736.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BBC: Мир природы - Горы тропических дождей / Natu
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61737.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61738.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Archicad-Master | Создание разверток в Archicad по техн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61739.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:46C9BD82C89CE8AB052DCE617A00F551C93FE0A2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61740.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Archicad-Master | Практическое GDL-программирование 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61741.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:725F479ACD0157F6DC3D43843D08271A060935A4
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61742.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Termius for Mac 8.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61743.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61744.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:35E604D5C09D7DA9D55BBABAC901534A6149CB42
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61745.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:35E604D5C09D7DA9D55BBABAC901534A6149CB42
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61746.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:72D9D2355D4F8ED2423253C92C2F6E4F063B78D5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61747.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:DE02E4622ADEDBC4FE98C447FB5325264FD5182E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61748.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Wondershare PDFelement Pro 10.3.1 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61749.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61750.jpg" />
 </div>
 
 

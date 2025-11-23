@@ -6,7 +6,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E453424909CA5FD734E2AB074ECFE7B48EDDAA59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9523FA6D9A45654BC1D2618F657E6AFED7533E52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47495.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:04EDC5204A2A51A8C3B3C36AD584364BDA56CD51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47496.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E2D5EB708B6C07AA7EEAB60D9C2FF862EAE544B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47497.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47498.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Motordoom (2024) [Ru/Multi] (Build 15256500) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47499.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47500.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6A40F716AC33DCA7CB90376EB6C4125E351D38A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47501.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Callisto Protocol (2022) [Ru/Multi] (Build 14745831/dlc) Repack dixen18 [Dig
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47502.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SnowRunner (2020) [Ru/Multi] (31.0/dlc) Repack dixen18
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47503.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Highrise City (2022) [Multi] (2.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47504.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Contraband Police (2023) [Ru/Multi] (1.0.5.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47505.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4B878178EAD53D06FC1DD31AC784054538D7073F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47506.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CA77C24C515498A814E93D959EBBC4109F73FC1E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47507.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dakar Desert Rally (2022) [Multi] (2.3.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47508.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47509.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:90C5952E1EB925E4B93095C55D3607BF9EB5B853
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47510.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47511.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47512.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Whitesnake - Live In The Still Of The Night (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47513.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D719AEC08B0124EBEE276E1AEADF6B9B53AC2F1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47514.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:4B106DD8690B22C1F8CDAA202FB6547C7B0F36E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47515.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:27E03ED397E3CF557FC3DF5693DC2157D39332BB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47516.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47517.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47518.jpg" />
 </div>
 
 

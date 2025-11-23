@@ -1,3 +1,81 @@
+###  Публикация: 1734277   (107120) от 03.07.2024
+
+Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What For Blues (3:17)
+02. In Yo Soul (3:33)
+03. Jose Maria (4:43)
+04. Slow Jam (3:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6F276FD983CEB83283919200C9D8C02467DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734313   (107121) от 03.07.2024
+
+Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107121.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Kembatinan Premaster
+A2 Pious Breath
+A3 Bloud And Souls
+A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734434   (107122) от 03.07.2024
+
+Владислав Конюшевский | Попытка возврата (Книга 3). По эту сторону фронта (2024) [MP3, Виктор Бабков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107122.jpg" />
+</div>
+
+
+###  Подробнее
+
+До конца войны остаются считанные месяцы и бойцы Особой группы Ставки, нацеленные на поиск объектов Аненербе, неожиданно получают другой приказ. На этот раз действовать им придется не в немецком тылу, а на освобожденной территории. Недовольный Илья Лисов считает это «отрывом от основной работы», не предполагая, во что может вылиться выполнение нового задания.Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 11:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EAD9E68F379EC5EE168BE20AF07AED55C34675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734358   (107123) от 03.07.2024
 
 VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +84,7 @@ VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107123.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107124.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107125.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107126.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107127.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:4BEF59F4D02D758E0A629D0D18266203F8CE0493
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107128.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107129.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107130.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ Skype 8.123.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107131.jpg" />
 </div>
 
 
@@ -229,7 +307,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ Katie Knipp - Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107133.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107134.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ Lightnin' Rod & The Thunderbolts - Another Moment In Time (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107135.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ magnet:?xt=urn:btih:0754700D3C3319854905EB5722106FD87E90B6C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107136.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ magnet:?xt=urn:btih:DCAC3F8EDD61D853ED626BDBE4CDD876534885BC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107137.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ Process Lasso Pro 14.2.0.32 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107138.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107139.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ magnet:?xt=urn:btih:F2D9D76E5978FD6116B7F5C3A021DACAF00E68B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107140.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:3713F5039004D1356E2430FB92C21B96477B1A00
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107141.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107142.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ MagicMouseTrails 3.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107143.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Auslogics Driver Updater 1.26.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107144.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:8601A43B862BBDEFF6A4B5338157968113E39FD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107145.jpg" />
 </div>
 
 
@@ -568,78 +646,6 @@ magnet:?xt=urn:btih:8601A43B862BBDEFF6A4B5338157968113E39FD2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C852BEDFB7213B1A37C101A23DFC4338A46545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734350   (107146) от 03.07.2024
-
-Process Lasso Pro 14.2.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321C34E875D956B1BD10513DCF6B24BFF60ADDA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734509   (107147) от 03.07.2024
-
-Яндекс.Браузер 24.6.2.787 (x32) / 24.6.2.786 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3262311A34C4DCA2F7A851BC20A604403F9B72DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734471   (107148) от 03.07.2024
-
-4K Video Downloader+ 1.7.2.0098 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107148.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA13D386B3E19FD117AA40BF7802B0058FEB6C4E
 ```
 
 

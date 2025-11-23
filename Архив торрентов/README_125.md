@@ -6,7 +6,7 @@ FacePic - AI Face App v2.1.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31291.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Macrorit Partition Expert 8.5.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31293.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31293.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NetLimiter 5.3.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31298.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ eWeather HD - weather app v8.9.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31299.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31299.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Digiarty AIArty Image Matting 2.1 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31300.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31300.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Open Shell (Classic Shell) 4.4.195 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31317.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Total Commander 11.50 Extended 25.1 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31344.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Firefox Browser ESR 115.19.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31355.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Music Collection 3.8.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31360.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ PhotoRoom v5.8.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31362.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Vov Sticky Notes 9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31374.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Telegram Desktop 5.10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31386.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31386.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Desktop Calendar 3.20.220.6960 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31388.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31388.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4CB00469EFCDAC520652A89496355D520A20AFA5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31414.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wondershare Filmora 14.2.9.11061 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31417.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C289265B304B7AB5FC1602B0F082C15E316F1046
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31421.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F49CE66F7A6A6FE25E4E7BABFDEA3FF8571D34E5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31423.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:03C03478D00C30F8260AA77F3660AB007AE423EE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31429.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Red Button 6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31432.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CE76EB74082C55ACD0C0EED37043859E8CD1F452
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31449.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31449.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Telegram Desktop 5.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31457.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PhotoDirector v19.10.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31467.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Music Collection 3.8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31492.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Firefox Browser ESR 128.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31497.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ YT Downloader 9.11.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31511.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ IObit Driver Booster Pro 12.2.0.542 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31530.jpg" />
 </div>
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1676392   (157280) от 13.11.2023
+
+SILKYPIX RAW Converter 1.0.7.1 (x64) Portable by 7997 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157280.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX RAW Converter — это программное обеспечение, которое преобразует данные изображений формата RAW, снятые цифровой камерой, в данные RAW (DNG) с более высоким разрешением и качеством изображения, чем обычные данные RAW. После получения наилучшего изображения его можно импортировать и настроить с помощью программного обеспечения других компаний или старых продуктов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27834081194559F4F18F88F776F72D3F2CB30603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518077   (157503) от 18.12.2021
 
 iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePack by VR (Rev2) [En]
@@ -6,7 +30,7 @@ iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157503.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Hoo Technologies AVI MP4 Converter 6.1 build 1595 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158115.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ EximiousSoft Banner Maker 5.43 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158367.jpg" />
 </div>
 
 
@@ -81,7 +105,7 @@ Aimersoft Video Converter Ultimate 6.8.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158537.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ WidsMob AI Retoucher 2.3.0.112 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158835.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ WidsMob AI Retoucher 2.3.0.112 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158858.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158918.jpg" />
 </div>
 
 
@@ -177,7 +201,7 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158992.jpg" />
 </div>
 
 
@@ -201,7 +225,7 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159160.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159247.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159301.jpg" />
 </div>
 
 
@@ -274,7 +298,7 @@ The Tunes - Navira 1.1.6 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159595.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ Avid Media Composer Enterprise 22.10 RePack By PooShock [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159690.jpg" />
 </div>
 
 
@@ -323,7 +347,7 @@ DAZ Studio Pro Edition 4.22.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160338.jpg" />
 </div>
 
 
@@ -347,7 +371,7 @@ SILKYPIX Developer Studio Pro 11.0.12.1 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160372.jpg" />
 </div>
 
 
@@ -372,7 +396,7 @@ Photomatix Pro 7.1.1 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160539.jpg" />
 </div>
 
 
@@ -397,7 +421,7 @@ SILKYPIX Developer Studio Pro 11.0.12.1 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160562.jpg" />
 </div>
 
 
@@ -421,7 +445,7 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161058.jpg" />
 </div>
 
 
@@ -445,7 +469,7 @@ Boz Digital Labs - ProVocative 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161088.jpg" />
 </div>
 
 
@@ -470,7 +494,7 @@ Boz Digital Labs - Sasquatch 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161141.jpg" />
 </div>
 
 
@@ -494,7 +518,7 @@ Cableguys - ShaperBox 3 3.2 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161298.jpg" />
 </div>
 
 
@@ -520,7 +544,7 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161480.jpg" />
 </div>
 
 
@@ -544,7 +568,7 @@ UVI - Model D Falcon 1.6 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161539.jpg" />
 </div>
 
 
@@ -571,7 +595,7 @@ UVI - Austrian Grand v.1.0.3 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161561.jpg" />
 </div>
 
 
@@ -595,7 +619,7 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161770.jpg" />
 </div>
 
 
@@ -607,32 +631,6 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DFADBDA7BEC4F7C21A476F201F46468F1A42791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517032   (161881) от 16.12.2021
-
-CODIJY Recoloring 4.2.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите черно-белые фотографии в цветные шедевры с помощью новейших технологий!
-Оживите старые семейные фотографии, соберите винтажные иллюстрации, попробуйте цветовые схемы и многое другое!
- Это простое в использовании программное обеспечение CODIJY Recoloring для редактирования фотографий раскрашивает черно-белые фотографии, талант графического дизайна не требуется! (   Читать дальше...   )Язык интерфейса: Русский, английский, и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880BEAAD51789FBD60D5DD475A28872B471A68AC
 ```
 
 

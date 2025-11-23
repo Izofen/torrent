@@ -6,7 +6,7 @@ EZ CD Audio Converter 2024.6.28.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38DD700C9DB4BCE53AD525476F55022DCA2D3E7C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51030.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51031.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A0FB0EBECC174F42E568FD5959FA514923EB52C
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51032.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4A2E1FD712673B966FBC74D5950FE9A71D83944F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51033.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:18ECDE8A4CE5DEBE4C2D232303564184446CB1FB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51034.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51035.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F46FA9B9A7F4C174E2E8AD508529B48BBBB22F1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51036.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1C008BB95B9AE6D58A97EBCB1AB5372E8367C28D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51037.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:613941AE09C60BBE417C624866940DFA21E95B4D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51038.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Dangerous Dave Pack (1991) [En] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51039.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:30A2894B54D3E5FEDE0DB185E782883521E9DDFA
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51040.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:EFE0C9E542DD219F875B07C47B68DE67E3AC9880
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51041.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:3117E23B826F9E38FF4A327386C65CC3C830CEEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51042.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DD8C2CE5EF4BDB8914CC5AA28109C151926EC571
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51043.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51044.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51045.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:5AFE7C726768324B228281196494FBD463FE98AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51046.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E666AADDD20989D8D3813C4110469614F93D619B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51047.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C5CA3ACF45814FF88879D7EDEFB46B371C54E680
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51048.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C5CA3ACF45814FF88879D7EDEFB46B371C54E680
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51049.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A99D2FC682F2361E5745D67FB0B07EBA176BCF7E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51050.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:DC0A2E1A183172D7D07B2506CDEC050AEF66D9D1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51051.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B8F88E7884B2FB2191A235F3FC88DF28F2953650
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51052.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:03B7242AD5C17456B8F9420D679D717FA5A834C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51053.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F34BB1368FBA6524B480DB75D4FAF5EEEF47EC6B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51054.jpg" />
 </div>
 
 

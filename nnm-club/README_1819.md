@@ -6,7 +6,7 @@ Seven Steps To The Green Door - The ? Truth (2024) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47649.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seven Steps To The Green Door - The?Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47650.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6171CE5CF75C132F1BF69C67B0D52B862B181921
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47651.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E740AFEE1D37E69A50317A2B035F09E76B141458
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47652.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ExtraDisks 24.7.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47653.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Plexim Plecs 4.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47654.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ RadioMaximus 2.33.00 (06.08.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47655.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:9B0D59CD95900DB79DD24AFEA44D41D79F9BCD17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47656.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47657.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E796CA86057AF3123B378E101DF3973578549A6E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47658.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:F2B901EB65304526C256EDEE5900C39BA20CC7B6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47659.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:8D5C8B56C5CBFE7F01ACCE507A1B070F72FD32BB
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47660.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Wondershare UniConverter 15.6.0.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47661.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:2C4A55367C20BB3DBB675B2C3853684EEA4A93F5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47662.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:CB71FA1E0A7E15E51C8CF655E6DD0F85AF79EFF1
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47663.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ TapinRadio 2.15.97.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47664.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ USB Device Tree Viewer 4.3.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47665.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7FD7E058ADE67AA6DFAD5961D35DE98224172182
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47666.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:48C808B304F344901735BC0BD0A46B9310F2E740
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47667.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ FinePrint 12.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47668.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.4.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47669.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:DACA6776F070EF8F8F18059407D4FF7B77F0BF1E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47670.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B5AC2A15C30C53E6F3A407A3BD96408120020BA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47671.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:08D705A7820A4A8C1CA05685C07ACBA8ECAF2C1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47672.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4C5F66DDA35C04BBD46948B6FE602CBCA06A68D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47673.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DA2215FA2B3A30DA537E064C137D6B950B737FE0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47674.jpg" />
 </div>
 
 

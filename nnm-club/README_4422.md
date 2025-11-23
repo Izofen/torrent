@@ -1,3 +1,78 @@
+###  Публикация: 1824694   (136831) от 16.10.2025
+
+Саша Фишер | На стороне солнца (Книги 1-4) (2024-2025) [MP3, Павел Архипов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все страны, события и герои вымышлены, но совпадения и ассоциации не случайны.
+Действие книг происходит в вымышленном государстве, созданном по образу и подобию Германии 1900 - 1937 годов XX века. С небольшим допущением - в этом мире есть люди с паранормальными способностями.
+Источники вдохновения - шпионские романы середины прошлого века.
+P.S. Слово "фюрер" (   Читать дальше...   )Жанр: Фэнтези, триллер, шпионскийИздательство: ЛитРесПродолжительность: 37:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DECC069F8E527EB978B21A0350DE110E16A45A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825023   (136832) от 16.10.2025
+
+Джон Уик 2 / John Wick: Chapter Two (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: США, Гонконг / 87Eleven, Lionsgate, Summit Entertainment, Thunder RoadЖанр: боевик, триллер, криминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчио, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоуренс Фишборн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный (Лицензия), многоголосыйЯзык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 02:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014E0A78926A1BDDFBB89B765537728EB3A0C2B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825078   (136833) от 16.10.2025
+
+VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136833.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский, Русский (через русификатор)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085BEE46AD5AAA110B65B0A7E5469F43E4BE3686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825037   (136834) от 16.10.2025
 
 Джон Уик 3 / John Wick: Chapter 3 - Parabellum (2019) BDRip [H.264/1080p]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136834.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:FB9F11AAABFCA8040E663C6E34005FCBB196F9F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136835.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:D7901092E04D2CFF16F7B2429BF3DA1FE51BC789
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136836.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:18FFDD349BD31CCECFC9CE97F439D346232928F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136837.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136838.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136839.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ YT Downloader 9.17.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136840.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136841.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ LeBron Johnson - Strong Men Still Human (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136842.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ Macon Music Revue - Macon Music Revue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136843.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136844.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136845.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ reaConverter Pro 8.0.144 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136846.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136847.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136848.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136849.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136851.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136852.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136853.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136854.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136855.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136856.jpg" />
 </div>
 
 
@@ -579,85 +654,6 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824993   (136857) от 16.10.2025
-
-По ту сторону кровати / De l'autre cote du lit (2008) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136857.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Аликс Жиро де л'Эн...
-Ариана и Гюго Марсиак вместе уже давно. У них большой дом и двое детей. Со стороны кажется, что всё замечательно. Но только со стороны. Ариана целый день вертится как белка в колесе, присматривая за детьми, да ещё и работать успевает. Гюго с утра до ночи на работе и так устаёт, что ему кажется, что Ариана ничего не делает. (   Читать дальше...   )Производство: Франция / Fidelite Films, TF1 Films Productions, Orange Cinema SeriesЖанр: комедияРежиссер: Паскал ПузадуАктеры: Софи Марсо, Дани Бун, Антуан Дюлери, Ролан Жиро, Анни Дюпере, Жюльет Арно, Нинон Могер, Клемо Кутюр, Франсуа Винчентелли, Дэльфин Ривьер, Арсен Моска, Эрик Фратичелли, Патрик Пальмеро, Филипп Бенард, Рафаэл КамбрейПеревод: дублированный (Blu-ray RUS), авторский (Антон Алексеев)Язык озвучки: русский, французскийСубтитры: нетПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962C0DC65CE0073D8704B0273FD1D855DFCF2C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824998   (136858) от 16.10.2025
-
-Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Said, Marianne Crebassa, Pene Pati, Michael… (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozart - Requiem in D Minor, K. 626
-01. I. Introitus. Requiem æternam (4:10)
-02. II. Kyrie (2:17)
-03. III. Dies iræ (1:44)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825001   (136859) от 16.10.2025
-
-Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ashes and Whispers (3:09)
-02.  Blood Moon Chant (5:05)
-03.  Salt and Bone (3:14)
-04.  Echoes in the Dust (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
 ```
 
 

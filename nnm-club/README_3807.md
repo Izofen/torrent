@@ -1,3 +1,77 @@
+###  Публикация: 1698059   (118664) от 08.02.2024
+
+Капитан Марвел 2 / The Marvels (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэрол Дэнверс обретает свою отнятую тиранами Крии личность и мстит Высшему Разуму. Это приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной Вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями Камалы Хан, известной как Мисс Марвел, а также с племянницей (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: Фэнтези, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AC9B28A0FC3DA20639536B99DDB752F7F78699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698054   (118665) от 08.02.2024
+
+Охота на киллера / Культ убийц / Cult Killer (2024) WEBRip [H.265/1080p-LQ] [10-bit] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда убивают известного частного детектива, за дело берется его протеже. Во время расследования она вынуждена сотрудничать с убийцей, чтобы раскрыть ужасные тайны города и восстановить справедливость.Производство: США / Yale Productions, BondIt Media Capital, Buffalo 8 ProductionsЖанр: триллер, драма, криминал, детективРежиссер: Джон КейесАктеры: Шелли Хенниг, Элис Ив, Антонио Бандерас, Олуэн Фуэре, Ник Даннинг, Ким ДеЛонги, Пол Рейд, Мэттью Томпкинс, Кваку Форчун, Софи КэннеллПеревод: Двуголосый профессиональный (ViruseProject | 18+)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6040FE5D11CD53FD30AB7D6704A2996C59E4BDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698353   (118666) от 08.02.2024
+
+Davinci Resolve Studio 18.6.5 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2024 Blackmagic DesignПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6186249F67BF8CD24CC954FBD3308DC004E12BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698153   (118667) от 08.02.2024
 
 Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundle]
@@ -6,7 +80,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118667.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118668.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:5BF3472549A5169144CBE7639E38D61A098D78E3
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118669.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:18334CF3167F05FC99B40698B12FC7653A8BDFE4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118670.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ MemTest86 10.7 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118671.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:9434179C50FB340503F0C9BF557A8340135046A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118672.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118673.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118674.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:63AA580BE71171500A98B9A7D171AC403ED51E79
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118675.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:55FB2C78A89AFEABD151DFAAB6A997953915A40D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118676.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ magnet:?xt=urn:btih:AF8526BC408AFDFC66816A3F76BF18EA41B77B22
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118677.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:1D4A34E6AB03CE194735D0B40F6338437C021A4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118678.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:28D2CC5E57D0C9177F52686CA27B072A3438C1D3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118679.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ Nik Collection by DxO 6.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118680.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118681.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ Alfa eBooks Manager 8.6.22.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118682.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118683.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:75540DA09E1A02B9606F0E67F7A1CBB109E0B9FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118684.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ magnet:?xt=urn:btih:75318365157B9A2675E9133F63F4944093B0EC70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118685.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ magnet:?xt=urn:btih:6C6435A05A5F35E529E9537B751A849637896B34
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118686.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ magnet:?xt=urn:btih:1CF836DD104DEC79502A95C267EE7AA4BFD95F00
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118687.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ magnet:?xt=urn:btih:CAE8F8936109D67B7199E0519CD8DD6DA9AD0FA0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118688.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ magnet:?xt=urn:btih:C74FC0982F2A4AD4A206EFA6B7D7A41157655DD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118689.jpg" />
 </div>
 
 
@@ -547,78 +621,6 @@ magnet:?xt=urn:btih:C74FC0982F2A4AD4A206EFA6B7D7A41157655DD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33F2DA01417E77414D1E3E254849F5910B42387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676112   (118690) от 08.02.2024
-
-Пила 10 / Saw X (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Крамер отправляется в Мексику на экспериментальную операцию, надеясь излечиться рака, но в результате выясняет, что это всего лишь мошенничество и обман отчаявшихся больных. Тогда мужчина решает покарать мошенников в своём фирменном стиле — при помощи хитроумных жестоких ловушек.Производство: США, Мексика, Канада / Lionsgate Productions, Aldea M EstudiosЖанр: ужасы, триллерРежиссер: Кевин ГротертАктеры: Тобин Белл, Шоуни Смит, Сюннёве Макоди Лунд, Стивен Брэнд, Рената Вака, Джошуа Окамото, Октавио Инохоса, Паулетта Эрнандес, Хорхе Брисеньо, Костас МэндилорПеревод: Дублированный (укр. неофициальный - HDRezka Studio), профессиональный многоголосый (укр. 15К3 / Megogo)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (forced, full, SDH)Продолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC45562AEAF570671479260A863807E12F8BE3AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654476   (118691) от 08.02.2024
-
-Сборник | «Фантастический боевик. Новая эра» [93 книги] (2021-2024) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник посвящен военной фантастике, в него входят книги из одноимённой книжной серии, а так же другие книги похожей тематики. В сборник вошли произведения как новичков в этом жанре, так и уже признанных мэтров. На страницах книг вас ждут красивые описания батальных сцен, виражи альтернативной истории, попаданцы в прошлое.Жанр: Боевая фантастика, попаданцы, альтернативная историяИздательство: АСТ, СамИздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1225C1E2E820CFF8264B4F21F270235DA283AA2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698222   (118692) от 08.02.2024
-
-CleanMyMac X 4.15.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118692.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac X — это пакет «все в одном», который сделает ваш Mac как из кробки. Он очищает мегатонны мусора и заставляет ваш компьютер работать быстрее. Так же, как это было в первый день знакомства с Macintosh.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2024 MacPaw Inc.Поддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6095CDF955488533375A43811648A466E1B6A9BA
 ```
 
 

@@ -6,7 +6,7 @@ Microsoft  Visual C++ Runtimes AIO v0.90.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20546.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20546.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Internet Download Manager 6.42 Build 33 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20550.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20550.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HEU KMS Activator 61.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20558.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Acrobat Pro 2025.001.20458 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20564.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wondershare UniConverter 16.4.2.194 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20575.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20575.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OCCT 14.0.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20580.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20580.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tablacus Explorer 25.4.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20591.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20591.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ AIMP 5.40.2674 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20600.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.8.7 Gold 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20609.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Flud v1.11.6.7 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20614.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ RarmaRadio Pro 2.76.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20616.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VideoProc Converter AI 8.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20625.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tablacus Explorer 25.4.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20679.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Text Editor Pro 32.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20680.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ QOwnNotes 25.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20681.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Sipnetic v1.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20702.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20702.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ TikTok Private Plus v39.6.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20704.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20704.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ OCCT 14.0.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20717.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ DLNow Video Downloader 1.54.2025.04.19 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20720.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ By Click Downloader Premium 2.4.20 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20725.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ FacePic - AI Face App v2.4.0 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20726.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Reg Organizer 9.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20730.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Autorun Organizer 6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20731.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Double Commander 1.1.24 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20733.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20743.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Jetbrains WebStorm 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20748.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20748.jpg" />
 </div>
 
 

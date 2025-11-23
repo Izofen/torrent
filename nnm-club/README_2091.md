@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54731.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54732.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AE53C60F97ACFB2A20EF8050AED5494BBE935CD8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54733.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D9E9BFD396125458CFD92F3990801CD5527E51FD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54734.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:717159F0877F4AD681EEE7B8B7EBF3ABD67D734E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54735.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:92999491C73D28235D2A1ACB50B504C96FD57558
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54736.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54737.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54738.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:37DF5D71D5071EC6D7DBD9F7CB70C8977B440F6B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54739.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F13CF3F98D2479B64B4E4E88D8637CDD8DA4B255
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54740.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:127A23B5DBA0D80F094E1C75391E0A4D306E253D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54741.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D054EF2B84FD6D29471CC26AEFA77C1D1C9A6B9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54742.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:625E8E02B74DB6925B352C7EDDBA5AAD7AC47DD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54743.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A4A8C4B7A05EFA448126606A9FA443E0211BBCA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54744.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Skillbox, Анастасия Полякова, Давид Медведик | А�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54745.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft удалила кодек AC-3 Dolby Digital из Windows 11 24H2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54746.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft удалила кодек AC-3 Dolby Digital из Windows 11 верс�
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54747.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SnapEdit - AI photo editor v6.4.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54748.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:17188150063BDB9471544DC8349DE997D1DF59AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54749.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:17188150063BDB9471544DC8349DE997D1DF59AE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54750.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54751.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ YouTube ReVanced Extended 19.16.39 (RVP v2.225.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54752.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3D19B53F9236270269A12CE4D124AFA4987E4B52
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54753.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54754.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:84CBB966995B5BF3F1D00D821487BB2D08AC1579
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54755.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:0F413989201BA93F2CEDD6D546826F04B4A0BAC0
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54756.jpg" />
 </div>
 
 

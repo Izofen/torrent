@@ -6,7 +6,7 @@ YT Downloader 9.12.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19850.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cockos REAPER 7.37 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19851.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19851.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EA79C130CA4E7ED8E7E6781379422E7220690941
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19852.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D27D5BA5F0B5B8737D469AAAD4E7941D893392BC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19853.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19853.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2366B5FE102D9430DBB771804F67183DAE2FBA1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19854.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19854.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9EB1B0C7DF99CB94466C1F0C5F32145A345BDAD8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19855.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19855.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:088B39451A100AE500C51CA04EA7301428891A95
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19856.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19856.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:94871C5DFB8249D06EAC332B3931CF1F40B84C4A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19857.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19857.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Krokus - Compilation (1976-2017) [MP3|320 Kbps] <Hard rock, Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19858.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19858.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Corona - The Rhythm Of The Night (1995) [FLAC|Lossless|tracks + .cue] <Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19859.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:57C66F8324A128B89E134F31B445ECB0C7A9BA7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19860.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19860.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Trance Top 100, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19861.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:5736B6DBFAC13C351F1F630D84D75A252C924D2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19862.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19862.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:5736B6DBFAC13C351F1F630D84D75A252C924D2C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19863.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19863.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:A925B032E014BFB14368B2C7716429DBA5A2A4F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19864.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:9321BC67CB163A64CB5FD61BCCDEF746A3227A40
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19865.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Vanced Tube v5.3.81.175 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19866.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ MediaHuman YouTube Downloader 3.9.11 (2804) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19867.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:816493C5E27BC64D46F57F8A49CB4570C50B37BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19868.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:49CC02DCE3BA07B3456918829743350109AE9959
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19869.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Alfa eBooks Manager 9.2.3 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19870.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ UniFab 3.0.1.5 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19871.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Glary Utilities Pro 6.25.0.29 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19872.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19872.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:BDE6B852D5D264CEF449B5C21E86D014C9B561D8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19873.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FFE20CC539F636348AE908FBBBD61C38CBDD1686
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19874.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:43E4CC24B901D385FB0578701F98389988020876
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19875.jpg" />
 </div>
 
 

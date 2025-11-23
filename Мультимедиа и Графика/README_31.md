@@ -1,3 +1,28 @@
+###  Публикация: 1730563   (107874) от 16.06.2024
+
+Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mariana - это новый программный синтезатор басов от Moog Music, способный достигать самых глубоких уровней низких частот.
+Рожденная из глубин наследия Moog Music в области синтеза басов, Mariana вдыхает новую жизнь в методы электронного саунд-дизайна для современного музыканта или продюсера.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA3C7C0BF00812E3E4411E98A19853324D2398E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728999   (108232) от 09.06.2024
 
 Newfangled Audio - Recirculate 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
@@ -6,7 +31,7 @@ Newfangled Audio - Recirculate 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108232.jpg" />
 </div>
 
 
@@ -33,7 +58,7 @@ Eventide - Ensemble Bundle 2.18.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108238.jpg" />
 </div>
 
 
@@ -57,7 +82,7 @@ Cymatics - Illusion 1.0.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108602.jpg" />
 </div>
 
 
@@ -82,7 +107,7 @@ Togu Audio Line - TAL-Pha 1.2.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109210.jpg" />
 </div>
 
 
@@ -107,7 +132,7 @@ Togu Audio Line - TAL-Dub-X 2.1.0 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109233.jpg" />
 </div>
 
 
@@ -131,7 +156,7 @@ GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109437.jpg" />
 </div>
 
 
@@ -157,7 +182,7 @@ Knif Audio & Plugin Alliance - Soma 1.3.1 VST, VST 3, AAX (x64) RePack by TCD [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109481.jpg" />
 </div>
 
 
@@ -182,7 +207,7 @@ Audio Damage - Other Desert Cities 1.0.11 VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109626.jpg" />
 </div>
 
 
@@ -206,7 +231,7 @@ Plugin Alliance & Dmitry Sches - DS Thorn 1.3.3 VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109649.jpg" />
 </div>
 
 
@@ -230,7 +255,7 @@ Plugin Alliance - Brainworx Bx_glue 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109916.jpg" />
 </div>
 
 
@@ -254,7 +279,7 @@ Audio Damage - Replicant 3 3.0.9 VST 3, CLAP, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110013.jpg" />
 </div>
 
 
@@ -280,7 +305,7 @@ Futurephonic - Rhythmizer Ultra 1.1.0 CLAP, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110193.jpg" />
 </div>
 
 
@@ -305,7 +330,7 @@ Tracktion Software & Dawesome - Novum 1.17 VSTi 3 (x64) RePack by TCD + Content 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110262.jpg" />
 </div>
 
 
@@ -329,7 +354,7 @@ Plugin Alliance & ADPTR Audio - Hype 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110271.jpg" />
 </div>
 
 
@@ -353,7 +378,7 @@ FigrCollage Professional 3.3.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110274.jpg" />
 </div>
 
 
@@ -377,7 +402,7 @@ Nevercenter CameraBag Pro 2024.1.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110304.jpg" />
 </div>
 
 
@@ -401,7 +426,7 @@ PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110529.jpg" />
 </div>
 
 
@@ -425,7 +450,7 @@ W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111763.jpg" />
 </div>
 
 
@@ -450,7 +475,7 @@ PhotoResizerOK 2.91 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111976.jpg" />
 </div>
 
 
@@ -476,7 +501,7 @@ Togu Audio Line - TAL-Pha 1.1.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112525.jpg" />
 </div>
 
 
@@ -501,7 +526,7 @@ TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112537.jpg" />
 </div>
 
 
@@ -526,7 +551,7 @@ BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112985.jpg" />
 </div>
 
 
@@ -551,7 +576,7 @@ Sugar Bytes - Effectrix 2 v2.0.3 Standalone, VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114219.jpg" />
 </div>
 
 
@@ -575,7 +600,7 @@ mp3Tag Pro 12.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114565.jpg" />
 </div>
 
 
@@ -599,7 +624,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115123.jpg" />
 </div>
 
 
@@ -610,30 +635,6 @@ Pixologic ZBrush - программа для трёхмерного модели
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC755D192808E90612E82204F0729B12B35CC74F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703094   (115267) от 28.02.2024
-
-Photo Mechanic Plus v6.0 build 7102 [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Mechanic - фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Язык интерфейса: Aнглийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406A23AF0F2542657B08583DBF2AD92E66A6631F
 ```
 
 

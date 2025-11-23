@@ -6,7 +6,7 @@ Topaz Gigapixel AI 7.1.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59829.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft .Net Packages AIO 11.04.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59843.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ OpenVPN 2.6.10 (13.04.2024) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59881.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ WinRAR 7.00 RePack (& Portable) (09.04.2024) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59898.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Topaz Gigapixel AI 7.1.2 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59904.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6F679AE02AA8AF50509AA37E9823EAB9D7453902
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59909.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Macrorit Partition Expert 8.1.6 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59912.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Malwarebytes Windows Firewall Control 6.9.9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59913.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Duolingo: изучай языки 5.146.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59914.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ ASUS GPU Tweak III 1.7.6.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59915.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Topaz Video AI 5.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59916.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ocenaudio 3.13.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59920.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinTools.net Premium / Professional / Classic 24.3.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59923.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ OpenVPN 2.6.10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59930.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Topaz Photo AI 3.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59933.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Filmora - Редактор видео с AI 13.2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59936.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ WinPaletter 1.0.9.2 Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59940.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ PIDKey Lite 1.64.4 b42 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59941.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ ImgDrive Pro 2.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59947.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Adobe Acrobat Pro 2024.002.20687 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59951.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Microsoft  Visual C++ Runtimes AIO v0.81.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59961.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Topaz Photo AI 3.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59964.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Office Installer & Office Installer+ 1.13 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59966.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe Acrobat Reader 2024.002.20687.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59987.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60009.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Topaz Gigapixel AI 7.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60013.jpg" />
 </div>
 
 

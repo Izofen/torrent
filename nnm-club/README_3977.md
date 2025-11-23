@@ -1,3 +1,81 @@
+###  Публикация: 1691807   (123084) от 13.01.2024
+
+Nesrallah Artuso Project - No Going Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Going Back (3:01)
+02. Nothing To Lose (3:40)
+03. Unhinged (3:51)
+04. Scatter My Ashes (4:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033D6D617A62A8AFC3AD42C9FE5D1EC416A2F953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691619   (123085) от 13.01.2024
+
+Болваны / Block-Heads (1938) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1917 год. Стэн получает задание охранять пост в окопе, пока другие солдаты идут в атаку. Будучи дисциплинированным солдатом, он остается на посту вплоть до 1938 года, пока не узнаёт от летчика, которого он чуть было не сбил, что война закончилась. В этом же 1938 году Оливер справляет первую годовщину женитьбы. Увидев в газете фотографию "освобождённого" (   Читать дальше...   )Производство: США / Hal Roach Studios Inc.Жанр: комедияРежиссер: Джон Дж. БлистоунВ ролях: Стэн Лорел и Оливер Харди, Патриция Эллис, Минна Гомбелл, Билли Гилберт, Джеймс Финлейсон, Зеффи Тилберри, Гарри Андерсон, Уолтер Бэйкон, Майк БихеганПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F17B0E92FEF34704B00EC8EB1C0D2346C05B8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691719   (123086) от 13.01.2024
+
+Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Mess (6:10)
+02. My Dream (2:40)
+03. Dreamer In The Jailhouse (5:53)
+04. All Hail (6:47)(   Читать дальше...   )Жанр: Progressive Rock / Symphonic Prog / Hard RockПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEBBBE5FCE72C3FB60389BD5B5F5D9BD1C15D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691589   (123087) от 13.01.2024
 
 Alarm Clock Pro 15 v.15.6 [En]
@@ -6,7 +84,7 @@ Alarm Clock Pro 15 v.15.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123087.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123088.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123089.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Layla Zoe - Back to the Spirit of 66 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123090.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123091.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123092.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123093.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ magnet:?xt=urn:btih:7B6A201AC55F03679B7658B26CE6D79375EED478
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123094.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ Damian Wilson and Adam Wakeman - Can We Leave The Light On Longer? (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123095.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ magnet:?xt=urn:btih:004000A9AFC218BB5A158C858DF52942053F23AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123096.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ Chris Rea - The Road To Hell (1989) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123097.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ RSS Guard 4.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123098.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:ECAC097DF0627DF6A0547E94F598068766E63A52
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123099.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ Ruthless - The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123100.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123101.jpg" />
 </div>
 
 
@@ -393,7 +471,7 @@ Emurasoft EmEditor Professional 23.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123102.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ Lucky Patcher 11.1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123103.jpg" />
 </div>
 
 
@@ -442,7 +520,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4581 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123104.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ magnet:?xt=urn:btih:485DC7F1A30CF95B0C3B0074BE65A12D4C400623
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123105.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ Emil Bulls - Love Will Fix It (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123106.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123107.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123108.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ magnet:?xt=urn:btih:A9EAF70A3EF12F66C34181C4989016C595F44F9A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123109.jpg" />
 </div>
 
 
@@ -579,84 +657,6 @@ magnet:?xt=urn:btih:A9EAF70A3EF12F66C34181C4989016C595F44F9A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:589476C457E181FB969DF4E3FF01EF58CA6297C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691711   (123110) от 13.01.2024
-
-Главная дорога (13.01.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посиделки с алкоголем в салоне авто: чем чреваты возлияния в припаркованном ТС?
-Принудительная остановка: как и чем помочь, если водитель уснул или потерял сознание прямо за рулем?
-Автопутешествие в праздничный и нарядный Татарстан.
-Забыть вещи в такси проще простого, но как их потом вернуть?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3DC842A825D79C9028980717E573730BB7D0A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691736   (123111) от 13.01.2024
-
-Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Melodic Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Femme Fatale
-02. It's A Sin (Pet Shop Boys cover)
-03. Run! (ft. Marko Hietala)
-04. Separate Ways (Journey cover)(   Читать дальше...   )Жанр: Symphonic, Melodic Metal, Female VocalПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C912347AE4CE8BB094AF80A25561D18E5714B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691638   (123112) от 13.01.2024
-
-Navicat Premium 16.3.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E311289051C86623F85036A056887BFDCD34AE
 ```
 
 

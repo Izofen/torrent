@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67672.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D10D99B8579A7124BF50BB08DB6D3FECFE0AB988
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67673.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CA7CE7B76A68D6BE77788DFE8100699E5A674F00
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67674.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5E8E2B91F077EBE8688D96C2FBF007FBBCA54944
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67675.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E9B798B5DD38216591E69F35B34EF8ED5ACCB48F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67676.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67677.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:794CA643B7964006A4A206DB8097E193ADA08B14
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67678.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Keep It Trance Vol. 28 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67679.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:410BA0DFDF2408D5C4B77B479D74709A24F72B25
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67680.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Progressive Trance Awakening, Vol. 04 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67681.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Trancespotting Vol.10 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67682.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9FE331B397ACEE4379F2D13BBA0D89A28277FEF1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67683.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ YOTTO - Live @ We Belong Here (Historic Virginia Key Beach Park Miami) (2025-03-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67684.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:86E5E7C0B863A95A918040FC70A02CDEBDA7FB84
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67685.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TikTok Private Plus v39.6.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67686.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hellsmoke - Hellucination (2025) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67687.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VivaCut v4.1.6 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67688.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:76803320A6AC659B14F13F470FD0B934083392B3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67689.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67690.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67691.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Summer Pool Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67692.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:65237096D7C1ED78DDB1C5649DB40B204E193557
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67693.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:1160BA62961EB0C74E563A81981EF8BD100B90AD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67694.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Screenshot touch v2.4.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67695.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Hall of Gods - A Tribute to the Gods of Music (2025) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67696.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:2F4D1A45C9A92FC3DE5FD1CC7CD20448178E902D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67697.jpg" />
 </div>
 
 

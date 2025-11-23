@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39327.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D0396A426B68807DF4AFDAF8E53433E818034117
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39328.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1D34953358B5DE29DA37CBE64326D063C1F7657D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39329.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F5BCCD5DFEBF0CF027E5B955F72D9BE278F2604
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39330.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.40.7100 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39331.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5B6D67EF062DD891094930E6426858CAC76C2FF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39332.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2929AE824CA1AAE401DDF300958B419F12B36AE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39333.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Fairy Tail / Фейри Тейл / Сказка о Хвосте Феи [2009-202
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39335.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1BACF4811DEFACA4FBF536E4AA590996F64158FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39336.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B90ED9F036E34EA99394AF3F3F729115C69E0B6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39337.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39338.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39339.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.2.3161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39340.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39341.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39342.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ JetBrains PyCharm Professional 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39343.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:48D0901484427830FE50191C4D003227E7D1B581
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39344.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:2B644BAAEDF1B5417C62342F1531BC00BBF5CD65
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39345.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:A92E14177FC8B87FCB99A3FBE844874E2E321165
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39346.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39347.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39348.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:BD8722F6F2DC22D26F20F8647881E99948651BAF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39349.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ XYplorer 26.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39350.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39351.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39352.jpg" />
 </div>
 
 

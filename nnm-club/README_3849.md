@@ -1,3 +1,81 @@
+###  Публикация: 1696113   (119756) от 01.02.2024
+
+Hysteria - Heretic, Sadistic and sexual ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Perdition (A Path Through Nothingness)
+02. Vortex of confusion
+03. Heretic, sadistic, and sexual ecstasy
+04. My carnal desire(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421F8B1E5B70F8C8F753C78BDCA722D5D73FECAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696243   (119757) от 01.02.2024
+
+Преподобный Серафим Саровский | Избранные духовные наставления, утешения и пророчества (2022) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Серафим Саровский – великий подвижник Русской Православной Церкви, один из наиболее почитаемых святых, иеромонах Саровского монастыря, основатель и покровитель Дивеевской женской обители. Наследие Серафима Саровского – жемчужина духовной традиции Православия. Помимо наставлений, утешений и пророчеств в книгу также вошли отзывы о нем известных духовных (   Читать дальше...   )Жанр: ПравославиеИздательство: ЭксмоФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000E2B983D41617710826736A5FC565374626103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696161   (119758) от 01.02.2024
+
+Сергей Любавин - Волчонок (2002) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Макаров
+02 Брат вестовой
+03 Лебедь белая
+04 Ау(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510735B28989F0C31D2B1D88C6C707720EBD5EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696116   (119759) от 01.02.2024
 
 Sandboxie 5.67.8 [Multi/Ru]
@@ -6,7 +84,7 @@ Sandboxie 5.67.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119759.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119760.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119761.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:A59CF335809C65EEE97B14A53C525C44E60183A0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119762.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:5487AC47F2A68BA337AF3863535CA58456BDBEA1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119763.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119764.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ Room Arranger 9 fo Mac 9.8.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119765.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ magnet:?xt=urn:btih:62457B3021B3BB8081E068A75BB2F63455FBC38F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119766.jpg" />
 </div>
 
 
@@ -209,7 +287,7 @@ Serial Box & SerialSeeker 02-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119767.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ VA - Infrasonic Winter Selection (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119768.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119769.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ Kayak - Seventeen (2018) 2 x CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119770.jpg" />
 </div>
 
 
@@ -317,7 +395,7 @@ MediaInfo for Mac 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119771.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ magnet:?xt=urn:btih:B13195D8EBE06990729A44C10B0B2E7E5B3684DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119772.jpg" />
 </div>
 
 
@@ -365,7 +443,7 @@ magnet:?xt=urn:btih:2DB7E78A7DAA4D6D205EB0970F49B07C671267B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119773.jpg" />
 </div>
 
 
@@ -389,7 +467,7 @@ magnet:?xt=urn:btih:4277881F974500ED49D2F8A5EA27E011CFC817AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119774.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ INVRS - Live @ Ural Mountains for SE:VER, Russia (2024-01-23) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119775.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ VA - Cupid's Heartbeat Sensational Bossa Nova Music, Romantic Latin Jazz, Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119776.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ Soul Browser 1.4.03 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119777.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ Sandboxie plus 1.12.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119778.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ VA - Soft Lights Romantic Night Jazz & Sensual Flamenco Guitar to Ignite Your Se
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119779.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119780.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119781.jpg" />
 </div>
 
 
@@ -583,82 +661,6 @@ Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F9A3D657201E0A9B15DB76B200FB75305E68D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696130   (119782) от 01.02.2024
-
-Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai Mi Morena (feat. Mo' Horizons)
-02. Peanut Vendor (feat. Anita O'Day)
-03. Hazy (feat. Queen Mab)
-04. The Secret (feat. Mister T, Jean Honeymoon)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6144BB8B22C9F3A57AD04121DF40BBB4AD67A245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696122   (119783) от 01.02.2024
-
-Подшивка журнала | Тайны ХХ века №3-10 (январь-март 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119783.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619EA381FF8DDCDC022629BDD6F89FBF61FA7FB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696263   (119784) от 01.02.2024
-
-StaxRip 2.34.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119784.jpg" />
-</div>
-
-
-###  Подробнее
-
-StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
-Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19B45A752368347FA91571E530B63A2D23110E9
 ```
 
 

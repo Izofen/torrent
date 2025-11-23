@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96876.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96877.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96878.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96879.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96880.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mozilla Thunderbird 12.0 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96882.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96883.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96885.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96886.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96888.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96889.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96890.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96891.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96893.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96894.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96895.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:CD333769938A5FDBC152599EE7183DCBB641615A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96896.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96899.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96900.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96901.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96904.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96905.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96906.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96908.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96908.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96914.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ magnet:?xt=urn:btih:996656306FBA9B1A027F43E288210E2D186F09D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96916.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1435008   (148309) от 26.12.2020
+
+MiniTube 3.6.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minitube - приложение для рабочего стола от Youtube, с помощью которого вы можете смотреть ролики с сайта Youtube, не используя браузер и без использования Flash Player, вместо которого используется QuickTime. Приложение не является клоном оригинального Web-интерфейса, а является самостоятельным приложением, с возможностью поиска и автоматическим промотром найденного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2020Разработчик: Flavio TordiniПоддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4977E7112430A9ADE7782649C2F0E858F57E67CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519337   (148310) от 24.12.2021
+
+4K Video Downloader 4.19.2.4690 RePack (& Portable) elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148310.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFED7804B84FE4D769F1D3EE68D5F315652AFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347725   (148314) от 24.12.2019
+
+Movavi Slideshow Maker 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите титры и эффекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7DCDD2F78305EB27B04EF7853283A91B131177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087195   (148317) от 26.12.2016
 
 iMazing 2.1.6 [Multi/Ru]
@@ -6,7 +79,7 @@ iMazing 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148317.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ InfraRecorder 0.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148319.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Perfectly Clear Plugin for Photoshop 2.0.2.1 and Lightroom 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148322.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ AllDup 4.5.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148323.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ Adobe Animate CC and Mobile Device Packaging CC 2019 19.1.0.349 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148327.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:8584CCC6B25DFB651A98B5FCFF40841F4116DE37
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148337.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Total Movie Converter v3.2.163 Final Рус/Мульти + Portable(RePack by Ky
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148347.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ Loopback 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148350.jpg" />
 </div>
 
 
@@ -206,7 +279,7 @@ Advanced SystemCare Pro 13.1.0.188 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148354.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ magnet:?xt=urn:btih:82C1CA75E4E0018E399EDEBCDC1EA6B563692EB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148361.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ Rainmeter 4.3.0 Build 3271 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148368.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ iZotope - Neutron 3 Advanced 3.8.1 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148370.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ Movavi Screen Recorder 11.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148378.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ Avidemux 2.8.0 Release(r211223) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148383.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ AnyTrans 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148402.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ This PC Tweaker 1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148405.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ magnet:?xt=urn:btih:10BB4DF6260ED15467409F787CD74DBC89CF5285
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148413.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ magnet:?xt=urn:btih:C7CCF5202FDC31C62A75E2391FFB39881BAAAFFC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148421.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ magnet:?xt=urn:btih:B6B3BFEF0EAC03E692F456C6F8865C4F347A4B55
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148429.jpg" />
 </div>
 
 
@@ -482,7 +555,7 @@ Ashampoo Burning Studio 20.0.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148445.jpg" />
 </div>
 
 
@@ -506,7 +579,7 @@ Movavi Screen Recorder 22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148452.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ Duplicate Photos Fixer Pro 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148458.jpg" />
 </div>
 
 
@@ -555,7 +628,7 @@ Network Kit 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148475.jpg" />
 </div>
 
 
@@ -566,78 +639,6 @@ Network Kit 9.0.2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1617E9C926821D1AAC980ACAB88E57DED4ED8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519339   (148483) от 24.12.2021
-
-VueScan Pro 9.7.71 (DC 23.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148483.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1A4A91D6DFF9C6AAD93B2CC6E371A1B7176CC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271612   (148493) от 24.12.2018
-
-Wise Hotkey 1.2.3.43 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Hotkey программа от известного разработчика WiseCleaner, представляет из себя панель быстрого запуска. После запуска мы видим панель темного цвета с красивыми иконками, нажимаем на нужную или на пустую и можем добавить файл, папку или сайт, выбираем, что интересует и все. Теперь по сочетании определенных клавиш, можно выполнить запуск программы, открытие папки, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2643924924B5257CA95790151DD68A26BB45AECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519458   (148506) от 24.12.2021
-
-Aiseesoft Mac Video Converter Ultimate 10.2.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572427E39765D5A338C42D3CEC24C13D0DB5C753
 ```
 
 

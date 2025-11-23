@@ -1,3 +1,76 @@
+###  Публикация: 1684203   (127847) от 15.12.2023
+
+007: Дорога к миллиону / 007: Road to a Million (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соревновательное реалити – шоу, ведущий Брайан Кокс, в шоу участвует девять команд, по два человека в каждой, соревнуются в гонке за 1 миллион фунтов стерлингов. Участникам предстоит выполнить перечень сложных заданий, вдохновлённых фильмами о Джеймсе Бонде.
+Сериал был разработан компанией 72 Films совместно с Eon Productions и MGM Television для выпуска на Amazon (   Читать дальше...   )Производство: Великобритания, США / 72 Films, EON Productions, MGM TelevisionЖанр: игра, реальное ТВ, приключенияРежиссер: Джулиан Джонс, Tom Dumican, Джэми ГулдАктеры: Брайан Кокс, Josh Ali, Nick Ashton-Jones, Colin Barnes, James Bone, Joey Bone, Keith Curtis, Kamara Davis, Jenny Dorward, Daniel Fenner и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA402809DF4B184BDDEB302E980049856DEF221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684374   (127848) от 15.12.2023
+
+MassTube Ultra 17.1.0.513 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127848.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube Plus — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3734CC9007E5EC20616A93980187468F6CE8D416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684389   (127849) от 15.12.2023
+
+Крупный улов / Finestkind (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата оказываются втянуты в сделку с преступным синдикатом Бостона.Производство: США / 101 Studios, Bosque Ranch ProductionsЖанр: триллер, драма, криминалРежиссер: Брайан ХелгелендАктеры: Бен Фостер, Тоби Уоллес, Дженна Ортега, Томми Ли Джонс, Тим Дейли, Клейн Кроуфорд, Лолита Давидович, Исмаэль Крус Кордова, Аарон Стэнфорд, Меган ЛитерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FF1CAC1F145596BC634F62563C921D35991AB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684426   (127850) от 15.12.2023
 
 Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
@@ -6,7 +79,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127850.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:A48BC1D1FA896D0AA0C6B8C2E4BEA26DEE93E70D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127851.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:5CACB6C948CDE7969117C89D51C956704F6BD44F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127852.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:CE62138E7505916A786B6119C86D7035A3CDFF4B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127853.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127854.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:89D0A0431F6559EE968D348E5BA20B748AF8D044
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127855.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:9E679A6930684FAA21EDF72BFDCC7FEB0C0D5C9B
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127856.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ magnet:?xt=urn:btih:7BEB534F82908AB3EA0991A57AA7BA4077A85079
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127858.jpg" />
 </div>
 
 
@@ -234,7 +307,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127859.jpg" />
 </div>
 
 
@@ -258,7 +331,7 @@ magnet:?xt=urn:btih:EBA56E2A9E51A978A93DBFA5442EFB211A579577
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127860.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ magnet:?xt=urn:btih:A05B7225784CD44014C1AEDFFB1C722D5B319C1E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127861.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ magnet:?xt=urn:btih:48DEF4CB3F4628AB233E68DEF9B6A7969D527D42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127862.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ magnet:?xt=urn:btih:48DEF4CB3F4628AB233E68DEF9B6A7969D527D42
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127863.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ magnet:?xt=urn:btih:A250A03AFB96797DB4442C8FA34BA104E406749C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127864.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ magnet:?xt=urn:btih:DF0B2C9F0935F9059F05F84B095A7A1309B5344C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127865.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ magnet:?xt=urn:btih:DF0B2C9F0935F9059F05F84B095A7A1309B5344C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127866.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:60437A9A1E129CC081A1E35CE0E7FAB873F00A33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127867.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ magnet:?xt=urn:btih:60437A9A1E129CC081A1E35CE0E7FAB873F00A33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127868.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ magnet:?xt=urn:btih:C1C616F2AE54D2B2F22688F2CABDAE261A2A6E31
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127869.jpg" />
 </div>
 
 
@@ -501,7 +574,7 @@ magnet:?xt=urn:btih:6C748BAA62CCCB47EA77905BC7701C9C080F6CC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127870.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ magnet:?xt=urn:btih:20C8E4AA49EFE58C8FBD8E1004C7AA745C5ED5D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127871.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:5E6618D770ADAB3D785B4C5B6C674344AE218803
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127872.jpg" />
 </div>
 
 
@@ -562,80 +635,6 @@ magnet:?xt=urn:btih:5E6618D770ADAB3D785B4C5B6C674344AE218803
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4ADF6FEC8304FC4E49AF29208E0BB988DDEFC08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684267   (127873) от 15.12.2023
-
-Гномы. Новогодний беспредел / There's Something in the Barn (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Нового года, когда принято палить в воздух из бутылок шампанского, взрывать хлопушки и записывать тиктоки, есть те, кто не любит тиктоки и взрывы. Это амбарные гномы. Они мечтают о миске овсяных хлопьев и тишине. А любого, кто нарушит их покой и забудет покормить, ждёт страшная участь. Они будут иметь дело с целым полчищем гномов, вооруженных (   Читать дальше...   )Производство: Норвегия, Финляндия / 74 Entertainment, Charades, Don FilmsЖанр: ужасы, фэнтези, комедияРежиссер: Магнус МартенсАктеры: Мартин Старр, Амрита Ачария, Киран Шах, Таунс Баннер, Зои Винтер-Хансен, Калле Хеллеван-Ларсен, Генриетта Стинстрап, Йеппе Бек Лаурсен, Эльдар Воган, Марианн ЮнгерПеревод: Дублированный (звук с ТС)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:16Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684399   (127874) от 15.12.2023
-
-Ableton - Live 12 12.0b22 (x64) Beta [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ableton Live позволяет вам легко создавать, производить и исполнять музыку в одном интуитивно понятном интерфейсе.
-Live синхронизирует все и работает в режиме реального времени, поэтому вы можете воспроизводить и изменять свои музыкальные идеи, не прерывая творческий процесс.
-Но Live также имеет революционный Session View: уникальный блокнот для импровизации, игры (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (Русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E69A88915B9A86687FE7D449A1DC8FC617FB0ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684526   (127875) от 15.12.2023
-
-Glary Utilities Pro 6.3.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F405068BB13E9B1BF4960BD194A370597FC9F7
 ```
 
 

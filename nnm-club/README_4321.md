@@ -1,3 +1,84 @@
+###  Публикация: 1681204   (133014) от 02.12.2023
+
+iA Writer 7.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2010–2023 Information Architects GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A624D4EA2E4683984C0C7173B31E90EB40B42E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594303   (133015) от 27.12.2012
+
+Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2002 - Lazy Sunday Afternoon
+2004 - A Piece Of My Heart
+2006 - Travel...
+2007 - Beautiful Day
+2008 - Selection: Songs For A Beautiful Day
+2011 - Lucent TouchЖанр: Jazz Lounge |Продолжительность: 06:06:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681335   (133016) от 02.12.2023
+
+Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тариф Необходимый минимум (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта серия мастер-классов сочетает в себе теорию и практику масляной живописи. Принимая участие в серии, Вы освоите разные техники, примените их и напишите 4 картины.
+
+Какие результаты вы получите после прохождения серии?
+- Научитесь строить перспективу, правильно размещать композицию(   Читать дальше...   )Производство: Bazanova ArtЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:18:54Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591515   (133017) от 27.12.2012
 
 Задиры / Vexed (Сезон 1 полный (3 серии)) (2010) HDTVRip (Первый)
@@ -6,7 +87,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133017.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133018.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Baldur's Gate: Dark Alliance [GameCube] [English] [NTSC] (2002)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133019.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Background Eraser (InShot Inc.) v2.194.57 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133020.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:6F015ACAA05194143D7A1B0F4936BC84CCF16D18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133022.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ magnet:?xt=urn:btih:AF4348058130E0AB7AF20E166869F1D2674E2381
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133024.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:7CEC296BB29652F51B4099181C57A0468812B2CB
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133026.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:C6AF676D940E746BB2BCC3FD194B0DE52E445434
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133027.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133028.jpg" />
 </div>
 
 
@@ -233,7 +314,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133033.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133034.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ VA - Best of ROAD TRIP Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133035.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ magnet:?xt=urn:btih:C6C65B4FECEDB550F5A2634DEB676CBE38D79050
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133036.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ magnet:?xt=urn:btih:88B50DFA4B749A5E2C9DB15021CF6A80643CB26E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133037.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ magnet:?xt=urn:btih:109FBAD313355BF6AE8FF2015080BA367B6EC8F5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133038.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133039.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133040.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ magnet:?xt=urn:btih:D77A60667F27629BC4C431290F7F20036E9B1D6D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133041.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ magnet:?xt=urn:btih:01A1A5FE073C39FC6C6EFAEFB05A53207F603A85
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133042.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133043.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133044.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133046.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133047.jpg" />
 </div>
 
 
@@ -563,78 +644,6 @@ magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C37D1CF4CD395A6FA844B90851304A7F180670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681392   (133048) от 02.12.2023
-
-Ventusky: Прогноз погоды v30.0 (b3000) Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.12.2023Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595172   (133049) от 27.12.2012
-
-Извлечение / Extracted (2012) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, Триллер, ДрамаРежиссер: Нир Панири / Nir PaniryАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара Томко и др.Перевод: Любительский |двухголосый закадровый| den904 & DeadSno + Одноголосый закадровый |Kerob|Продолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681200   (133050) от 02.12.2023
-
-Джон Кеннеди: Один день из жизни Америки / JFK: One Day in America (2023) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133050.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1960 году Джон Кеннеди стал самым молодым президентом в истории США. Три года спустя, 22 ноября 1963 года его убили. В этой программе вы узнаете историю того дня и последовавшего за ним событий из уст последних живущих ныне свидетелей...Производство: Великобритания, 72 Films LimitedЖанр: документальный, история, биографияРежиссер: Элла РайтУчастники: Клинт Хилл, Сид Дэвис, Пол Э. ЛэндисПеревод: двуголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1465E2165BC2F3466D67C546D83A01D7E6394A30
 ```
 
 

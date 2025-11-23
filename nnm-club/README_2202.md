@@ -6,7 +6,7 @@ R-Studio Technician 9.4 Build 191310 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57618.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57619.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:891D5AC5050CDC793DFB0AE01EFB5859CDAC165A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57620.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AE255B889BF7351E6C066378834307A6BB51BBAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57621.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:26FF1E5C40EBB72F65F6FAB1B931DB2BF751EFE8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57622.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5366493802D027155ADDAA4DBE51C8E664BF5173
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57623.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4B6B4F01A0FCE9B7F32088089472F86FB5EBECF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57624.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FCFC31EA7A5363A189596FAAAFB3277D0A00356E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57625.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57626.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:30E62B62C149EA6EA1EA6C58E35797668057F427
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57627.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F14567338D629F83FDA7F25724DE323D4EBEC97D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57628.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:833871425C51CCC062AB08CAB1DBDEADEDC05E62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57629.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2A556BE433F096EEAA1D1B5C2068F727B1879DAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57630.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Acoustica Mixcraft Pro Studio 9 9.0 Build 470 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57631.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8EA7323C46AA099CD1FE30044159F1AA0557FF89
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57632.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:385DC4397DF697D0A05E083ACB0E7D5B8598B962
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57633.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:229B386681889537AD1BF964E3D65BF5FA2972D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57634.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B2CAED492A2BF3980B7F0BB0C713E220E15F3320
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57635.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:69156CA1DA1EC4A3D56AC38BBEE736EFA999EBC2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57636.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D362C85C90BF113F7D3E318D1B283C96A5729186
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57637.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9679957BE9E3713A4E68E6ADF37A0319A1C3AC1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57638.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:6200B41E2869EC410A1F8B2080397FFF4881395E
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ ZBrush 2024.0.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57640.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:72AA64B30F8E868AE816A1DDF811A61EB8C2C9EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57641.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:11E843D53A83E37FCEAA2EF1E09034F70BC4B05C
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57642.jpg" />
 </div>
 
 

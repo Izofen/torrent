@@ -1,3 +1,177 @@
+###  Публикация: 1599249   (159998) от 22.12.2022
+
+Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159998.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70186CFF57CB7E0D2E0CDC3B2B3CE4AF0792C54A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675524   (159999) от 09.11.2023
+
+Оппенгеймер / Oppenheimer (2023) BDRip [H.264/720p] [IMAX, MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159999.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни американского физика Роберта Оппенгеймера, который стоял во главе первых разработок ядерного оружия.Производство: США, Великобритания / Atlas Entertainment, Gadget Films, SyncopyЖанр: биография, драма, историяРежиссер: Кристофер НоланАктеры: Киллиан Мерфи, Эмили Блант, Мэтт Дэймон, Роберт Дауни мл., Флоренс Пью, Джош Хартнетт, Кейси Аффлек, Рами Малек, Кеннет Брана, Бенни СэфдиПеревод: Многоголосый любительский (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 03:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84C4093EE7DF6C34600C57467007DDD8FA053A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599213   (160000) от 22.12.2022
+
+Разлом Сан-Андреас / San Andreas (2015) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэй — пилот спасательного вертолета, который всю свою жизнь помогал другим людям. За все время работы он насмотрелся на множество жутких вещей и не раз оказывался в очень сложных ситуациях. Несмотря на все преграды он спешил на помощь, даже не предполагая, что самое страшное ждет его впереди.
+
+На Калифорнию обрушивается мощное землетрясение, в результате которого (   Читать дальше...   )Производство: США / New Line Cinema, Village Roadshow Pictures, RatPac-Dune EntertainmentЖанр: боевик, триллер, драма, приключенияРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Карла Гуджино, Александра Даддарио, Йоан Гриффит, Арчи Панджаби, Пол Джаматти, Хьюго Джонстон-Барт, Арт Паркинсон, Уилл Юн Ли, Кайли МиноугПеревод: дублированныйСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B95729420D21EEE29408F57110DCAF7E5D1A8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675530   (160001) от 09.11.2023
+
+Щенячий патруль: Мегафильм / PAW Patrol: The Mighty Movie (2023) WEB-DL [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебный метеор падает в Городе приключений и наделяет членов Щенячьего патруля сверхспособностями, тем самым превращая их в Мегащенков.Производство: США, Канада / Nickelodeon Animation Studios, Nickelodeon Movies, Paramount AnimationЖанр: мультфильм, фантастика, приключения, детскийРежиссер: Кэллан БрункерПеревод: дублированный (Videofilm Ltd.)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB08F0C4353D8A4E3FB05121026347E6A56618A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675357   (160002) от 09.11.2023
+
+Джестер / The Jester (2023) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобное существо, известное как Шут, терроризирует жителей маленького городка в ночь на Хэллоуин. Среди жителей городка есть две сестры, который давно не разговаривают друг с другом, но теперь вынуждены объединиться, чтобы найти способ победить это злое существо.Производство: США / Cinematic Productions, Epic PicturesЖанр: ужасыРежиссер: Колин КравчукАктеры: Майкл Шеффилд, Лелия Симингтон, Делани Уайт, Кен Арнольд, Riley Collins, Дэн ДеЛюка, Molly Evetts, Juniper Grabia, Джесси Л. Грин, Jessie L. GreeneПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские, французскиеПродолжительность: 01:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5CC994EC4447F07189A33C66C35FD1770C78A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599236   (160003) от 22.12.2022
+
+Кино - 12_22 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Нам с тобой
+2. Мама, мы все тяжело больны
+3. Троллейбус
+4. Сосны на морском берегу(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7765A792E9A1BF799F05DF3C22E7EBC965CA765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599255   (160004) от 22.12.2022
+
+Цифровая Земля 1.0.4 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государственная корпорация «Роскосмос» представляет мобильное приложение Информационной системы «Цифровая Земля». Сервис заинтересует как «простых» пользователей, так и профессионалов, занимающихся обработкой продуктов спутниковой съёмки (дистанционного зондирования) Земли.
+Просматривайте и скачивайте новые и архивные изображения Земли с разрешением до 70 сантиметров (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16 декабря 2022Разработчик: Госкорпорация «Роскосмос»Поддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6991AE3606328E41D0B931E2ED919C65C8077AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675389   (160005) от 09.11.2023
 
 Пила 10 / Saw X (2023) WEB-DLRip
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160005.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ CapCut 9.7.0(9700100) Mod by Alien (ToonXTech) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160006.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ Bandicam 6.0.5.2033 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160007.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:A96B1715BE909A7446AB03731C0B7A4984CFD2B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160008.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160010.jpg" />
 </div>
 
 
@@ -152,7 +326,7 @@ magnet:?xt=urn:btih:21252265F7C6F10DE1DB225EC72BC8A1F2885B1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160011.jpg" />
 </div>
 
 
@@ -176,7 +350,7 @@ magnet:?xt=urn:btih:FF80ABB4BAFB094A5A827B276CCEE2E21930BC3C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160012.jpg" />
 </div>
 
 
@@ -200,7 +374,7 @@ magnet:?xt=urn:btih:F8F433B97511657EB1B0BFE42B0F1A73B552BE8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160013.jpg" />
 </div>
 
 
@@ -226,7 +400,7 @@ magnet:?xt=urn:btih:5EFDE7EE4BD34A322A8F9BFB7AF97CE453CD2443
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160014.jpg" />
 </div>
 
 
@@ -250,7 +424,7 @@ magnet:?xt=urn:btih:12D1F859E74182EB6214FFB648CED3F65E031878
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160015.jpg" />
 </div>
 
 
@@ -274,7 +448,7 @@ magnet:?xt=urn:btih:AB7BC432A31087BE9E275E8531282F44614A3D48
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160016.jpg" />
 </div>
 
 
@@ -298,7 +472,7 @@ magnet:?xt=urn:btih:1D2EE39E8E4A6A8417C1235B6D21DD424E4AC09C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160017.jpg" />
 </div>
 
 
@@ -322,7 +496,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160018.jpg" />
 </div>
 
 
@@ -349,7 +523,7 @@ magnet:?xt=urn:btih:AEBE5C01512622E6D2A154258C7898B8420EFCBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160019.jpg" />
 </div>
 
 
@@ -373,7 +547,7 @@ magnet:?xt=urn:btih:E67C03A5CCAB149F2964EABB9BF09D97C0E6458D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160020.jpg" />
 </div>
 
 
@@ -397,7 +571,7 @@ Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160021.jpg" />
 </div>
 
 
@@ -424,7 +598,7 @@ magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160022.jpg" />
 </div>
 
 
@@ -448,7 +622,7 @@ magnet:?xt=urn:btih:CF4D7CADF2A01FBCE36F380B3CBB98DD17C3D075
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160023.jpg" />
 </div>
 
 
@@ -462,179 +636,6 @@ magnet:?xt=urn:btih:CF4D7CADF2A01FBCE36F380B3CBB98DD17C3D075
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1590D769A2627CB989F125C2F81C4C5AC23029BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599224   (160024) от 22.12.2022
-
-Мальчишник: Часть III / The Hangover Part III (2013) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз никакой свадьбы. Никакого мальчишника. Казалось бы, что могло пойти не так? Но когда Волчья стая оказывается на дороге, все ставки снимаются.Производство: США / Green Hat Films, Legendary PicturesЖанр: комедия, криминалРежиссер: Тодд ФиллипсАктеры: Брэдли Купер, Эд Хелмс, Зак Галифианакис, Кен Жонг, Джон Гудман, Джастин Барта, Джеффри Тэмбор, Мелисса Маккарти, Хизер Грэм, Майк ЭппсПеревод: дублированный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E26F29ABA89AB4351DD6F56C79C48EB03CECD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599297   (160025) от 22.12.2022
-
-GPU-Z 2.52.0 + ASUS_ROG Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160025.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41154EA95561E2029A7FD9DF83FF359382985E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599135   (160026) от 22.12.2022
-
-Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Christmas>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindsey Stirling (21.09.1986) - американская скрипачка, автор песен и танцовщица. Stirling исполняет самые разные музыкальные стили, от классики до поп-музыки и от рока до электронной танцевальной музыки. Помимо оригинальных работ, в ее дискографии есть каверы на песни других музыкантов и различные саундтреки. Ее дебютный альбом вышел в 2012, а уже к августу 2014 (   Читать дальше...   )01. Sleigh Ride (3:02)
-02. God Rest Ye Merry Gentlemen (3:16)
-03. feat. Bonnie McKee - Crazy for Christmas (3:44)
-04. Feliz Navidad (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ChristmasПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3576DAE55422C37A6341CED4CD24B13E33F86F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674368   (160027) от 09.11.2023
-
-Шаблоны - Пакет Новогодних и не только Календарей 2024 от Koaress [PSD]
-
->>След.
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160027.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пакет Новогодних и не только Календарей 2024 от Koaress» - большой пакет все возможных календарей + перекидные (помесячные) на 2024 год от Koaress для Вашего творчества.
-Многие оценят по достоинству.Формат: PSDРазрешение файлов: 3508x4961 | 4961x3508 | 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654957F2B42D915F3EA26B57F93A9E43CD1552C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599158   (160028) от 22.12.2022
-
-Shotcut 22.12.21+ Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shotcut - мощное кроссплатформенное приложение с открытым исходным кодом, с помощью которого пользователи могут просто и быстро производить все стандартные операции по обработке видео. Данная программа позволяет быстро редактировать, коллажировать видеоролики с помощью широкого набора настраиваемых аудио и видео фильтров, менять настройки видео и аудио, указывать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DD1BC2677D7884B4CFF220948E077E7804D941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599178   (160029) от 22.12.2022
-
-PotPlayer 221215 (1.7.21861) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612741AA5A0313FD5ABDB20339240B00C39FD8D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675515   (160030) от 09.11.2023
-
-Проекты - VideoHive - Christmas Dream Photo Slideshow for After Effects - 49130693 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160030.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas Dream Photo Slideshow for After Effects» - стильный, элегантный проект для создания рождественского слайд шоу.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E7BF3F3796449727537F7211AB099A162D01D
 ```
 
 

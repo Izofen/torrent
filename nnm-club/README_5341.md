@@ -1,3 +1,179 @@
+###  Публикация: 1431986   (164348) от 17.12.2020
+
+Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind (3:46)
+02. (I Don't Need) Perfection (4:11)
+03. Grit Your Teeth (3:41)
+04. Man On A Mission (3:24)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDF015F4F60F73E361ACDF5BDF6FF57B58218A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673730   (164349) от 02.11.2023
+
+Easy Data Transform 1.44.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 15.09.2023Разработчик: © 2022 Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CFC3CA33E35B5A0FA90C8F3E0E98F10E829F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346346   (164350) от 18.12.2019
+
+Настя Понедельник | Пряничные домики и не только (2019) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы привыкли к тому, что в новогодний день снимаем мундиры с картошки, нарезаем салаты почти ровными кубиками, слой за слоем прикрываем селедку шубой. В новогодний вечер сервируем стол, распушаем елку еще разок, суетимся, пытаясь успеть все до боя курантов.
+
+Новогодняя ночь пролетает незаметно, и вот уже настал следующий год! Как же вернуть магию и трепет, которых (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9294146ABB30A3212DB262544A862DEA9CA47FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597916   (164351) от 17.12.2022
+
+Прогресс деградации - Геноцид умов (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Патриот [00:02:33]
+02. Космо [00:03:24]
+03. Зомбоящик [00:02:33]
+04. Маньячелло [00:03:16](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839AFAAD03374BE3410B5A5846DC78396F583448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673404   (164352) от 02.11.2023
+
+Благовест | Апокалипсис. Опыт подстрочного комментария. На основании учения Священного Писания и святых отцов (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164352.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге святого апостола и евангелиста Иоанна Богослова, – Апокалипсисе, – завершающей Новый Завет, таинственно приоткрываются грядущие судьбы человечества и всего мира. Это Божественное откровение составляет неотъемлемую часть промысла Господня о людях. Но чтобы правильно понять эту книгу и получить духовную пользу от ее прочтения, всякий христианин должен ознакомиться (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E51626BF366D00690F8D9B864A11E2CF7E5E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598155   (164353) от 17.12.2022
+
+iStatistica 6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Statistica - подробный монитор системных ресурсов для macOS. В приложение входит виджет для Notification Center и меню статистики в области часов. Просто откройте Notification Center, чтобы увидеть подробную статистику по загрузке памяти, процессора, диска или посмотреть карту сети и скорость передачи данных.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2015-2022 Andrey TsarkovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D98DE2FAF0BF298EF9C3EABC9DE17FC27DB77B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598149   (164354) от 17.12.2022
+
+Чарли Чейз. Жертва популярности / Publicity Pays (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая жена Джимми Джампа увлекается любительским театром. Ее замечает продюсер с интересной фамилией Фиаско. Это итальянская фамилия? Он начинает продвигать девушку, устраивает пышную рекламную компанию для начинающей звездульки. Очень пышную рекламную компанию - с лимузином, страусинными перьями, с экзотическими животными. Успех обеспечен! Ну, что могло пойти (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Бет Дарлингтон, Эдди Бэйкер, Ной Янг, Лайл ТайоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2901A9EF07972497E1C4F15DA73429B0996D7417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673572   (164355) от 02.11.2023
 
 Журнал | Инженер №10 (октябрь 2023) [PDF]
@@ -6,7 +182,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164355.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ magnet:?xt=urn:btih:FCD032147E66406D35F97999C4280A014C5A43C9
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164356.jpg" />
 </div>
 
 
@@ -54,7 +230,7 @@ SuperDuper! 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164357.jpg" />
 </div>
 
 
@@ -78,7 +254,7 @@ magnet:?xt=urn:btih:DD1DB00398DDEDF78A3D563D430CC454D3F652C9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164358.jpg" />
 </div>
 
 
@@ -102,7 +278,7 @@ magnet:?xt=urn:btih:2E65BA780DFD6C6C45BEAFE9432355681043DEB0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164359.jpg" />
 </div>
 
 
@@ -126,7 +302,7 @@ HWiNFO 7.65 Build 5255 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164360.jpg" />
 </div>
 
 
@@ -150,7 +326,7 @@ magnet:?xt=urn:btih:CBF62EBF48FD716A1447D8CCDAA2C8D048DEEC54
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164361.jpg" />
 </div>
 
 
@@ -175,7 +351,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -199,7 +375,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164363.jpg" />
 </div>
 
 
@@ -223,7 +399,7 @@ magnet:?xt=urn:btih:E0DD590D074EE410B3FB0FE43C1244E40294843A
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164364.jpg" />
 </div>
 
 
@@ -250,7 +426,7 @@ magnet:?xt=urn:btih:6ECAFCFB64C5DF09E69B61C7FF603917369CABB6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164365.jpg" />
 </div>
 
 
@@ -274,7 +450,7 @@ magnet:?xt=urn:btih:D2C83004BE3C2DEBE74747AA74F684F165F3FCBF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164366.jpg" />
 </div>
 
 
@@ -298,7 +474,7 @@ Bootstrap Studio 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164367.jpg" />
 </div>
 
 
@@ -324,7 +500,7 @@ magnet:?xt=urn:btih:964F64AE17D463B6BB3A26B6FA83F18FC585EABA
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164368.jpg" />
 </div>
 
 
@@ -348,7 +524,7 @@ magnet:?xt=urn:btih:0010F9920976C8D61CFDCF137DB462FAB1C0E605
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164369.jpg" />
 </div>
 
 
@@ -372,7 +548,7 @@ Sanguine Hum - А Тrасе Оf Меmоrу (2020) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164370.jpg" />
 </div>
 
 
@@ -399,7 +575,7 @@ magnet:?xt=urn:btih:3103290B85227EA88AD256140B7E8BE9DF980C1A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164371.jpg" />
 </div>
 
 
@@ -423,7 +599,7 @@ Tone2 - Electra 2.8.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164372.jpg" />
 </div>
 
 
@@ -447,7 +623,7 @@ magnet:?xt=urn:btih:348B64C304F73864D8AC0FA8C0B382E5AE371D72
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164373.jpg" />
 </div>
 
 
@@ -458,182 +634,6 @@ magnet:?xt=urn:btih:348B64C304F73864D8AC0FA8C0B382E5AE371D72
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA85519876653A42D456C0D78E4C27DA8BDC5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673704   (164374) от 02.11.2023
-
-Теодор Драйзер | Американская трагедия (2020) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
-Роман «Американская трагедия» Теодора Драйзера – одно из лучших произведений американской (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 39:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF228FE501E5FEB08C77CFA205B30A5CA4C9B657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516986   (164375) от 13.12.2021
-
-Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164375.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Alpha - Anteludium
-02. Abyss Of Time - Countdown To Singularity
-03. The Skeleton Key(   Читать дальше...   )Жанр: Symphonic Power Metal, Gothic MetalПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962F89C072A1A604F53D67FFE370C623BAED2726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597972   (164376) от 17.12.2022
-
-Sync Folders Pro 4.6.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
-Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E9DA88AA57A8F9B2A57EC678993BF54C7B3109
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432466   (164377) от 17.12.2020
-
-MacBooster 8 Pro 8.0.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164377.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacBooster поможет настроить и ускорить работу macOS. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: IObitПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12B32B897691BBBDA43E97B1504DD4B34AD5B76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346249   (164378) от 18.12.2019
-
-Сокровища Европы. Россия / Tresors D'Europe. Russie (2017) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская Федерация - самая большая страна в мире. 17 100 000 квадратных километров поделены на одиннадцать часовых поясов. Это необъятная страна со степями, горами и бесконечными реками, текущими на север. Россия, с её богатой историей и культурой, расположенная на пересечении континентов и доходящая до Крайнего Севера, раскрывает свои тайны тому, кто находит время (   Читать дальше...   )Производство: Франция, Roche ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Жульен БюрПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1304A6A762E40E21D6B3F11795EA85B8FF241E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673573   (164379) от 02.11.2023
-
-Воображение / Kalpana / Imagination (1948) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный фильм танцора и хореографа Удая Шанкара - утопическая мечта о культурном обновлении и прославлении индийского танца во всем его разнообразии. Разворачиваясь как эпический фильм внутри фильма, Калпана рассказывает историю танцора (самого режиссера), который полон решимости открыть культурный центр и вдохнуть новую жизнь в традиционные художественные формы (   Читать дальше...   )Производство: ИндияЖанр: мюзклРежиссер: Удей ШанкарАктеры: Лакшми Канта, Уша Киран, Лалита, Падмини, Амала Шанкар, Удей ШанкарПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, хиндиСубтитры: русские (forced на песни, full), английскиеПродолжительность: 02:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01A70637D84ECDB8F42A10FF33A26F79675E76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597930   (164380) от 17.12.2022
-
-DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holding On 04:56
-02. Fallen World 04:08
-03. Cry Thunder 05:15
-04. Give Me the Night 04:28(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291DFAB285FE7119EA73AA2A17C8444B07337340
 ```
 
 

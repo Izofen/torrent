@@ -1,3 +1,79 @@
+###  Публикация: 1349047   (138543) от 30.12.2019
+
+EasyBCD 2.4.0.237 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138543.jpg" />
+</div>
+
+
+###  Подробнее
+
+EasyBCD - менеджер загрузки операционных систем для Windows, позволяющий быстро настроить загрузку ОС и использовать несколько операционных систем на одном компьютере (поддерживаются все версии Windows, Linux, Mac OS X и BSD). С помощью EasyBCD можно установить и сконфигурировать загрузочные записи ОС, что позволит загружать любую из поддерживаемых операционных систем (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436136   (138544) от 30.12.2020
+
+Advanced Renamer 3.87 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D606A7B13CD1D5C3E82359EBFBDD00C6A6966DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679246   (138545) от 25.11.2023
+
+Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bleeding Society (feat. Tom Angelripper) [3:39]
+02 - Eyes Of Evil [2:06]
+03 - Sound Of Demise [4:06]
+04 - Regression... And The Price We Pay [3:47](   Читать дальше...   )Жанр: Metal, Death Metal, Melodic Death MetalПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A58D3003B5CE5BA576876924341D00E24BEF5B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088584   (138546) от 31.12.2016
 
 AnyToISO Pro 3.7.4 [Multi/Ru]
@@ -6,7 +82,7 @@ AnyToISO Pro 3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138546.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Driver Easy Pro 5.6.8.35406 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138547.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Ummy Video Downloader 1.5.0.5 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138548.jpg" />
 </div>
 
 
@@ -73,6 +149,30 @@ magnet:?xt=urn:btih:2EC9A462C87571149456CA38AB4F9F0612998105
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590936   (138549) от 18.12.2012
+
+WYSIWYG Web Builder 8.5.3 [MULTi + Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_138549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для веб-дизайнеров, автоматически создающая HTML-код и не требующая знания HTML. Вам нужно просто разместить необходимые объекты в любом месте страницы и после этого останется лишь закачать получившиеся файлы на сервер при помощи встроенного инструмента "Публикация". Имеет, практически, все возможности MS Frontpage, но содержит значительно больше инструментов для работы с объектами (изображения, текст, таблицы и т.д.). Благодаря данной программе веб-страница в интернете будет иметь точно такой же вид, как на экране ПК, независимо от используемого браузера.Название программы: WYSIWYG Web BuilderЯзык интерфейса: MULTi + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679502   (138551) от 25.11.2023
 
 NCH ClickCharts Diagram Pro 8.67 [En]
@@ -81,7 +181,7 @@ NCH ClickCharts Diagram Pro 8.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138551.jpg" />
 </div>
 
 
@@ -105,7 +205,7 @@ magnet:?xt=urn:btih:83FC5B10B4253A5DA852EFC33E2D22EA72CEA797
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138552.jpg" />
 </div>
 
 
@@ -129,7 +229,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -153,7 +253,7 @@ magnet:?xt=urn:btih:72F8624EEE116EDC0AE7F080DE8AADFDCFB08026
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138554.jpg" />
 </div>
 
 
@@ -177,7 +277,7 @@ Display Driver Uninstaller 15.7.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138555.jpg" />
 </div>
 
 
@@ -201,7 +301,7 @@ magnet:?xt=urn:btih:DFF1002854EC942FA58A0E04599ECB15B15012A1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138556.jpg" />
 </div>
 
 
@@ -225,7 +325,7 @@ magnet:?xt=urn:btih:7A415BC2C525AAE9BB2BBC62DB0A5371F41F59C2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138557.jpg" />
 </div>
 
 
@@ -252,7 +352,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138558.jpg" />
 </div>
 
 
@@ -276,7 +376,7 @@ magnet:?xt=urn:btih:1FA446AA7EFAA8D25A7E1B6E9727D3C17BAF2FC3
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138559.jpg" />
 </div>
 
 
@@ -301,7 +401,7 @@ WidsMob Portrait 1.4.0.128 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138560.jpg" />
 </div>
 
 
@@ -325,7 +425,7 @@ Black Mesa (2015) [Ru] (0.9.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138561.jpg" />
 </div>
 
 
@@ -349,7 +449,7 @@ magnet:?xt=urn:btih:84A618DD319048D527189D3B25F6F7314285A29D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138562.jpg" />
 </div>
 
 
@@ -373,7 +473,7 @@ magnet:?xt=urn:btih:BC26F6AF2EFCC34D3AFE1F73EA3CC3A33E4FCC51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138563.jpg" />
 </div>
 
 
@@ -397,7 +497,7 @@ magnet:?xt=urn:btih:A9F210B5E661DB826C7056FCBF227D761336758F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138564.jpg" />
 </div>
 
 
@@ -421,7 +521,7 @@ magnet:?xt=urn:btih:841D04320B5142248CB39DFD68664866D70BC3D9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138565.jpg" />
 </div>
 
 
@@ -447,7 +547,7 @@ EagleGet 2.0.4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138566.jpg" />
 </div>
 
 
@@ -471,7 +571,7 @@ magnet:?xt=urn:btih:9FD9F163F05A81931F07177B32A02FE4EADA40A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138567.jpg" />
 </div>
 
 
@@ -495,7 +595,7 @@ magnet:?xt=urn:btih:9FD9F163F05A81931F07177B32A02FE4EADA40A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138568.jpg" />
 </div>
 
 
@@ -519,7 +619,7 @@ VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138569.jpg" />
 </div>
 
 
@@ -533,104 +633,6 @@ VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520805   (138570) от 30.12.2021
-
-Фукусима / Атомные самураи / Fukushima 50 (2020) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138570.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о ликвидаторах аварии на АЭС Фукусима-1 после землетрясения у восточного побережья острова Хонсю в Японии 11 марта 2011 года, также известного как Великое восточно-японское землетрясение. Как руководству станции, так и обычным сотрудникам предстоит принять ряд важных решений и бороться с мирным атомом ценой собственных жизней.Производство: Япония, Гонконг / Fukushima 50 Film Partners, Just Creative Studio, Kadokawa, Shochiku Films Ltd.Жанр: Драма, биография, историяРежиссер: Сэцуро ВакамацуАктеры: Коити Сато, Кэн Ватанабэ, Хидэтака Ёсиока, Наруми Ясуда, Наото Огата, Сёхэи Хино, Мицуру Хирата, Масато Хагивара, Рихо Ёсиока, Такуми СаитоПеревод: Дублированный (iTunes)Язык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A89C32F58991719746330A31311FB856F932224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679336   (138572) от 25.11.2023
-
-Doppler for Mac 2.1.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175C2A677D9E5457FA6A6F4A6523CAB53662B3B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436039   (138573) от 30.12.2020
-
-Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Павлович - художник по персонажам, его специализация - 3D концепт арт и продакшн пайплайны.
-В 2005 закончил Ринглингский колледж искусств и дизайна, получив степень бакалавра изящных искусств в комптютерной анимации.
-Начал свою карьеру в Electronic Arts в качестве художника по окружению, работал над такими проектами, как Madden NFL и NCAA Football, затем занимался (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC66EEC049DE8D3F57CC3CD3BCE50DAE5969A586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520707   (138574) от 30.12.2021
-
-Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяси и её горничная-дракон [ТВ-2] [2021, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кобаяси — самая обычная офисная сотрудница, проживающая свою скучную жизнь в маленькой квартирке. Так и тянулись её рутинные дни, пока не спасла она попавшую в беду дракониху, которую по пьяни ещё и жить к себе пригласила. Дракониха эта, Тору, может обращаться в человека (хотя, рожки и торчащий хвост никуда не деваются!), и теперь она всеми силами желает отплатить (   Читать дальше...   )Производство: Студия Kyoto Animation / 京都アニメーションЖанр: комедия, повседневностьРежиссер: Исихара ТацуяЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BC22D087D50F11D20F82A8DE3F63769A5AB0A5
 ```
 
 

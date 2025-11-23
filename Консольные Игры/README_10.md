@@ -1,3 +1,51 @@
+###  Публикация: 1552908   (233046) от 25.05.2022
+
+The Sims 4 (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.50 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_233046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайте волю воображению, придумывая внешность и характеры своим симам, экспериментируя с их стилем одежды или прическами и определяя, каким ценностям они будут следовать. Стройте отношения, поднимайтесь вверх по карьерной лестнице и живите интересной жизнью, полной ярких и незабываемых моментов. Без усилий постройте дом своей мечты в новом строительном режиме, позволяющем (   Читать дальше...   )Тип издания: LicenseРазработчик: Maxis и The Sims StudioЖанр: Симуляторы жизниЯзык озвучки: СимлишЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85648C8D1F578B46A03308A6B9D340F9876E5DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551042   (235423) от 14.05.2022
+
+EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это обновленный выпуск, включающий в себя наиболее актуальные данные о футбольных клубах, составе команд и различных игроках. В представленном дополнении были реализованы функции, одобренные критиками, благодаря чему вы буквально не сможете оторваться от прохождения. Ознакомьтесь с самыми знаменитыми футбольными клубами и завоюйте звание абсолютного чемпиона. Создайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Konami Digital EntertainmentЖанр: Sport (Soccer), SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032477A6627ED98932DD3BB5D3EF21FEACA12ED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548993   (237176) от 05.05.2022
 
 Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [Repack] [En] [MOVE]
@@ -6,7 +54,7 @@ Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237176.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239028.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239028.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240225.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240225.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Chernobylite (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.09] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240226.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240226.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ LEGO Worlds (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.19 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240316.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240316.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241308.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241308.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241782.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241782.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Jurassic World Evolution 2 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.12 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242386.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242386.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243666.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243666.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244157.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244472.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244472.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244502.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244502.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246028.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246028.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247144.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247144.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247156.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247156.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ magnet:?xt=urn:btih:B548636AA114E6684459D24CF54C9383B2B09444
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249002.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249561.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249561.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249572.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249572.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ ELEX II (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250064.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Shadow Warrior 3 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250218.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250218.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Back 4 Blood (2021) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi] [Ul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250240.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250240.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252115.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252115.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Assassin's Creed III (2012) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254451.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Dead Island 2 Gold Edition (2023) [PS4] [EUR] [5.05] [HEN] [License / 1.03 / DLC
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254548.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254548.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Dead Island 2 — ролевой экшен с видом от первого л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:362A213BC0EEFC633DA56CA24D8E22040AD0EF3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225112   (254597) от 03.05.2023
-
-Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [EUR] 4.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teenage Mutant Ninja Turtles: Mutants in Manhattan - это классический кооперативный экшен про черепашек ниндзя по сюжету автора комиксов Тома Вальца. Игрокам доступны кооператив для 2-4 человек и онлайновый мультиплеер с несколькими режимами. Боритесь вместе со своими братьями-черепашками в канализации, подземке и на улицах Нью-Йорка, для того чтобы победить Шредера (   Читать дальше...   )Тип издания: LicenseРазработчик: Platinum GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EA00454C920D9598DD3EA121293069265C041B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354027   (254602) от 03.05.2023
-
-Dead Space 3 (2013) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Space 3 отправляет Айзека Кларка и незнающего жалости солдата Джона Карвера в глубины космоса на поиски источника нашествия Некроморфов. Совершив аварийную посадку на скованной холодом планете Тау Волантис, Айзек вынужден противостоять враждебной среде, искать необходимые ресурсы и оборудование. Играйте в одиночку за Айзека Кларка или сражайтесь вместе с другом (   Читать дальше...   )Тип издания: RepackРазработчик: Visceral GamesЖанр: Action, Horror, ShooterЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC3A34A39F16C35599F5C19C7EDC56ABDEC8FA2
 ```
 
 

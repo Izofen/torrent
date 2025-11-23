@@ -6,7 +6,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32031.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32240.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32932.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7D1B97CB1167544D2617F35128E29DA8C05E2D0D
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33472.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33958.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34384.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34389.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, Worl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34392.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34410.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34414.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34419.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35115.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35116.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35206.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35403.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:83E29249EF16395536298D0B476E160BECD2EC6C
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35431.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35627.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35628.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dammerland - Dammerland (2024) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35830.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35831.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2FFDBD61D226CD6AA8DA36DC81F3C87BEEBFD206
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35873.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36139.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36366.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36565.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36577.jpg" />
 </div>
 
 

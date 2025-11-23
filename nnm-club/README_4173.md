@@ -1,3 +1,75 @@
+###  Публикация: 1683899   (128185) от 13.12.2023
+
+Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128185.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Другой мир» - это история молодого физика, проводившего эксперимент на синхротроне. Из-за удара молнии в установку открылся межпространственный портал, и герой перенёсся на другую планету. Вскоре он попадает в инопланетную тюрьму, находит друга-алиена и вместе с ним совершает побег. Игра поддерживает HD-картинку, имеет новую схему управления, посвежевший саундтрек.Тип издания: RepackРазработчик: DotEmu, The Digital LoungeЖанр: Arcade (Platform)Язык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187650C0E6F2C6F2DBA0AC0853884E1B30FE7344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595879   (128186) от 13.12.2023
+
+Избавление / Deliverance (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий - адаптация одноимённого романа 1970 года. Четверо отправляются в путешествие в дикую и пустынную местность в Аппалачах. Они спускаются вниз по реке на двух лодках. В их намерения входит просто отдохнуть, развеяться и посмотреть живописные места. Они не знали, что попадут в засаду к малограмотным местным горцам, головорезам и садистам. Злодеи «рады» туристам (   Читать дальше...   )Производство: США, Warner Bros, Elmer EnterprisesЖанр: драма, приключения, триллерРежиссер: Джон БурменАктеры: Джон Войт, Бёрт Рейнолдс, Нед Битти, Ронни Кокс, Билл МакКинни, Херберт «Ковбой» Кауорд, Джеймс Дики, Билли Редден, Макон МакКалман, Эд Раме...Перевод: дублированный (Варус видео), профессиональный многоголосый, авторский (Юрий Живов)Субтитры: английскиеПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BCBF111F89649228FBD45A53546FB1984DB78D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684011   (128187) от 13.12.2023
+
+Изгоняющий дьявола: Верующий / The Exorcist: Believer (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две 13-летние подружки после школы пошли в лес, чтобы вызвать дух погибшей мамы одной из них, и пропали. Их семьи ставят на уши полицию и расклеивают объявления, когда вдруг через три дня потеряшки внезапно обнаруживаются в фермерском сарае в 30 км от дома. Родители вне себя от радости, но с девочками что-то не так — обе начинают вести себя очень агрессивно.Производство: США / Universal Pictures, Morgan Creek EntertainmentЖанр: УжасыРежиссер: Дэвид Гордон ГринАктеры: Лесли Одом мл., Лидия Джюэтт, Оливия О’Нилл, Энн Дауд, Норберт Лео Бац, Дженнифер Неттлз, Рафаэль Сбардж, Оквуи Окпоквасили, Дэнни Маккарти, Эллен БёрстинПеревод: Дублированный, Профессиональный многоголосый (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A1DBB521DD36994C5E8F84024FBF647AF258AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055907   (128188) от 13.12.2023
 
 Безумно влюбленный / Innamorato pazzo (1981) BDRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128188.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128189.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:70C5056B861039DF35E70A51F3009ABB13A0FAE3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128190.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:CC2FA1F430937CA97946F185010C779B84414447
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128191.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ MAGIX Vegas Pro 21.0 Build 208 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128192.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:7DA8EA8DFDC1E6C803DA14C6735958E31F49B6DB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128193.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:25B02F908C1EED1911674562C6B08B46B8F69C27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128194.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:C1A3C629A9C895D58DE2242ED13BCD64CD9F8D83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128195.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128196.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ CCleaner 6.19.10858 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128197.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:9C5697F2C95927399E58062B5758F931BE9550F6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128198.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:BE33F0110CCCBE753A60BC89D24E94F120E4CDF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128199.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:63BB4D8521FA596A209C4C201CAF008F3E02F1BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128200.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:F43E148540E9A979CB0B6BBB1281D1CCCC47B444
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128201.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:892B41FDF3413CCBEB4E7F531297938C056D07E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128202.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:C3C38CA4C29B33D3D1DCCC6AD0CF15C3C29A6A45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128203.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:5F985EFAB33EB3AB960F450FBB47ACA354ED99D9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128204.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:5E3C9B60E6A32F349A33B17D235D12B28B45DA03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128205.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:45B888197BCACA7B9A4D5DDB86598A75C25F4998
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128206.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128206.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:45B888197BCACA7B9A4D5DDB86598A75C25F4998
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128207.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128208.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:0410E2EFA3DC9BCF66A3399E47B553BF77D70F0E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128209.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:6D64556F7C12FD21D9ACDCFB5033042679C8FB78
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128210.jpg" />
 </div>
 
 
@@ -553,82 +625,6 @@ magnet:?xt=urn:btih:6D64556F7C12FD21D9ACDCFB5033042679C8FB78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE70184468BED829F9F7E344E531B4E4C64680C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683747   (128211) от 12.12.2023
-
-VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - The Way You Look Tonight (5:06)
-02. Chillaxing Jazz Kollektion - A New Day (4:44)
-03. Love Suggestions - Clarity (4:36)
-04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC427F85EA72390E6EAADF86E03668CCD05B0D8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683697   (128212) от 12.12.2023
-
-Журнал | Дачный сезон №7 (июль 2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED63FBE40885FF739D8BC4CF1AF676536F4EB75A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683782   (128213) от 12.12.2023
-
-Михаил Лермонтов | Княгиня Лиговская (2005) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-«Княгиня Лиговская» – роман о жизни офицеров и чиновников в Петербурге. Любовь, борьба за положение в свете, интриги, неравенство. Книга «Княгиня Лиговская»  – незавершённый  социально-психологический роман с элементами светской (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-МПродолжительность: 04:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222740401C3AD3996736081ACC01A5BC17182127
 ```
 
 

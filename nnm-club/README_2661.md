@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69934.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CCECDCDECB289D6F28469FDD94058F73E4151258
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69935.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0E28C7FBA30C49692B2960FC60E2DDA692F5D6BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69936.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:61E7609A53C1532B81D05B18C7AC27FBCC169209
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69937.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tori Amos - The Music of Tori and the Muses (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69938.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (02.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69939.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:36703B6368BF9E3C1DE23A71F7B04485A58CA1EA
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69940.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dark Chapel (Часовня Тьмы) - Spirit in The Glass (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69941.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ John Lee Hooker - The Standard School Broadcast Recordings (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69942.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PhotoDirector v19.11.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69943.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Magical Mind (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69944.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A7F344FD4DFE55BEA67A279D18BB7E254D1C258B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69945.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Compilation part 145 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69946.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69947.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TikTok Private Plus (PayBack Edition) v38.9.5 Mod by TikTok + Plugin Update [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69948.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7BB39613E932BB080E7D1B2CA27DDA58F7131291
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69949.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Photo Lab PRO v3.13.50 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69950.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compila
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69951.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69952.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Garmin: City Navigator Thailand NT 2024.40 Globetech (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69953.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69954.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69955.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69956.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69957.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:71DC41E29C7D072B6B3D8B197D3F1E45C818CAA5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69958.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69959.jpg" />
 </div>
 
 

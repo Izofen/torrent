@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30123.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Together We Live v1.0.1g [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30124.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30124.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Compilation part 139 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30125.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30125.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ PhotoRoom v2025.04.03 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30126.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30126.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 134.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30127.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A6BC293868406E84D1883C237E184B2FA925998D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30128.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:44F4D4F6E4349E560BF18C1C15ADBB9EDD6A7838
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30129.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30129.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9B1E181828413977E637183BA699D8023EE15602
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30130.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9C532D811F4A738DAFDE846E61C118DD73689042
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30131.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30131.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D151C5818B1307F72F6210C21EC3853AE13446ED
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30132.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30132.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9F8F6F2D763D6666A6D66948A2C55D4372AE09EC
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30133.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30133.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9CA65F2A1C9BECDB8C89E73AE5BFC14E24FE71E2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30134.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ DVDFab StreamFab 6.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30135.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Hard Disk Sentinel PRO 6.20.6 Build 13391 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30136.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:192A6EEACDFB84E330EF0BE34908728170848CBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30137.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:3971E102F20D78E5246D77B962EAE7FD6C6782AD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30138.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30139.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30140.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30140.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Blender 4.2.6 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30141.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30141.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kalmuri 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30142.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:69F4ACF6D15848F2B6DE2F9920445DE321C26626
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30143.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30143.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30144.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30145.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30145.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:614785F994B9E2C1375015F4FE7AFD71E1577F81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30146.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Teslagrad v2.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30147.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30147.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Reg Organizer 9.61 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30148.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30148.jpg" />
 </div>
 
 

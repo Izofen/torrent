@@ -1,3 +1,75 @@
+###  Публикация: 1087406   (146637) от 27.12.2016
+
+akaEasyMoney 1.0.8 Portable [Multi/Ru] (Авторская раздача)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146637.jpg" />
+</div>
+
+
+###  Подробнее
+
+akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64394483043AC911305A789BB5247A953EA2885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678213   (146638) от 20.11.2023
+
+Сборник | Книги-компиляции от издательства «Витовт». Часть 2 [500 книг] (2020-2023) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть глобальной электронной библиотеки от интернет-издательства «Витовт» - это еще 500 омнибусов большого объема, которые не позволят вам остаться без любимых книг.Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE5EF1A81F8FF54988015AC506620071F911F68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590060   (146654) от 16.12.2012
+
+Gilrs Wallpaper Collection (15.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814A584821118F7F8BCF28D9184ECE9574F56FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678252   (146656) от 20.11.2023
 
 PotPlayer 231113 (1.7.22038) RePack (& portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ PotPlayer 231113 (1.7.22038) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146656.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Truecaller: определитель номера и запись звонков
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146657.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:42C62E1587C8E2331C53C17B650D598634A39520
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146660.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Gilrs Wallpaper Collection (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146663.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ PortableApps.com Platform 19.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146666.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ VA - Карнавал Русских Новинок (2013) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146667.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ Noire Antidote - I Know Where The Wolf Sleeps (2016) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146668.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ Butterfly - Favorite Colors 062: Top 10 (15.12.2012) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146672.jpg" />
 </div>
 
 
@@ -221,7 +293,7 @@ Uranium Backup 9.6.8.7229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146675.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:13C481200CB0E64CBDFEE38EE9A316A8A4D3298D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146676.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Nature Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146681.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:7AC1B6E4A20466A62F04ECE8A11B3AD282994101
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146692.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Sexy Girls Pack Wallpapers (15.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146694.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ HT System Administrator 14.1.5.22 [En] (SharewareOnSale до 31.12.2018)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146705.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:7CC0176103EAE808A61F09761478665EF303321F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146709.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ PicShop - Photo Editor 3.0.3 Paid [Eng] - Редактирование фото�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146711.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ Sumatra PDF 3.2.11073 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146712.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146715.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Lane 8 - Winter 2020 Mixtape (2020-12-15) [MP3|320 Kbps] <Progressive House, Dee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146721.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:B035A51454883AB38B55B62468D251A775638B23
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146722.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:F2EF7B2D9772C42601B552CB91AAE13D710334C0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146726.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Total Commander 11.02 Portable by wincmd64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146731.jpg" />
 </div>
 
 
@@ -573,7 +645,7 @@ The 3rd And The Mortal - Tears Laid In Earth (1994) [WavPack|Lossless]<Avantgard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146733.jpg" />
 </div>
 
 
@@ -593,78 +665,6 @@ The 3rd And The Mortal - Tears Laid In Earth (1994) [WavPack|Lossless]<Avantgard
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519692   (146736) от 25.12.2021
-
-SamDrivers 21.12 LAN [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4CFE9598C9E382B910FECBC56585A0804169F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590017   (146740) от 16.12.2012
-
-Sexy Girls Wallpapers (14.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D257969FB6B6B27D144BA8DF5E907ECF559B93A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590020   (146746) от 16.12.2012
-
-Gilrs Wallpaper (14.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DB4CE79F85FE26021A99E709444575608F83B3
 ```
 
 

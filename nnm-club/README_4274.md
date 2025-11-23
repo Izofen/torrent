@@ -1,3 +1,88 @@
+###  Публикация: 1682537   (131421) от 07.12.2023
+
+Ханна Кричлоу | Наука о судьбе. Почему ваше будущее более предсказуемое, чем вы думаете (2021) [MP3, Алина Арчибасова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто мы – творцы собственной судьбы или биомашины, каждое действие которых заранее предопределенно? Этим вопросом человечество задаётся испокон веков. Известный нейробиолог Хана Кричлоу пытается ответить на него с помощью своей науки, обращаясь за помощью специалистов из разных областей: от генетики и психологии до богословия.
+В своём исследовании Хана описывает, (   Читать дальше...   )Жанр: Психология, СаморазвитиеИздательство: БомбораПродолжительность: 07:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8BBCD08E8E93566B16BAE1DFA71FD06D70441E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596366   (131425) от 30.12.2012
+
+Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Of Age [04:20]
+02. Bad Reputation [04:29]
+03. Runaway [04:03]
+04. High Enough [04:45]
+05. Damn Yankees [04:39]
+06. Come Again [05:39]
+07. Mystified [04:15]
+08. Rock City [04:26]
+09. Tell Me How You Want It [04:33]
+10. Piledriver [04:27]Жанр: Hard RockПродолжительность: 01:38:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595566   (131426) от 30.12.2012
+
+Шоу Элементы: Модель для сборки (2002) VHSRip - Повелительница тьмы
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу "Элементы: Модель для сборки" на национальном музыкальном канале Муз-ТВ.
+
+МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, дип-техно, транса и подобных музыкальных направлений. Фирменное звучание "Модели" достигается благодаря актерскому таланту и "профессиональному" голосу автора программы и бессменного чтеца Влада Коппа в сочетании со вкусом музыкальных ведущих проекта — диск-жокеев Михаила Габовича и Андрея Эддисона, которые своими миксами погружают слушателя в глубину рассказа и создают соответствующую атмосферу восприятия.
+Как правило, в эфире звучат рассказы и небольшие повести, время прочтения которых ограничивается одним эфиром. Но, нередко используются и более продолжительные произведения и минисериалы, занимающие до 5-6 выпусков программы.Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 1:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E094082CE2723DDCED30BC9853DCAACDA220B108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682362   (131427) от 07.12.2023
 
 Эпоха лесов / Le temps des forets / The Time of Forests (2018) DVB [FR / RU, EN, FR, DE Sub]
@@ -6,7 +91,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131427.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@ magnet:?xt=urn:btih:1D087A9AE522197625DEA64F462311EB89943A77
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131429.jpg" />
 </div>
 
 
@@ -54,7 +139,7 @@ VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131430.jpg" />
 </div>
 
 
@@ -81,7 +166,7 @@ magnet:?xt=urn:btih:1221626DF5859C2852D1062829C5E2F1953F6DB1
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131431.jpg" />
 </div>
 
 
@@ -107,7 +192,7 @@ magnet:?xt=urn:btih:21D7A67EE56CE93F66A6FE39B7035AE383943995
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131432.jpg" />
 </div>
 
 
@@ -131,7 +216,7 @@ magnet:?xt=urn:btih:3C2DC00CEA6D04E19D34001FC2AA581A1B424507
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131433.jpg" />
 </div>
 
 
@@ -155,7 +240,7 @@ magnet:?xt=urn:btih:BEFD0210181754CEFD9871A78EF3394ABB92E742
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131434.jpg" />
 </div>
 
 
@@ -179,7 +264,7 @@ magnet:?xt=urn:btih:6A08BF5EED3481C75B74D29376C703F07386C9E8
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131435.jpg" />
 </div>
 
 
@@ -205,7 +290,7 @@ Manna - Chabako Trick (1979) [MP3|320 Kbps] <Electronic, City Pop, Disco, Funk, 
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131436.jpg" />
 </div>
 
 
@@ -232,7 +317,7 @@ magnet:?xt=urn:btih:544439D15301878A4FC32344CBC04DF8620D66DC
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131437.jpg" />
 </div>
 
 
@@ -256,7 +341,7 @@ magnet:?xt=urn:btih:544439D15301878A4FC32344CBC04DF8620D66DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131438.jpg" />
 </div>
 
 
@@ -281,7 +366,7 @@ magnet:?xt=urn:btih:544439D15301878A4FC32344CBC04DF8620D66DC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131440.jpg" />
 </div>
 
 
@@ -305,7 +390,7 @@ magnet:?xt=urn:btih:FD7654A4937F93930C4167E99D20085F3B1C67CA
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131442.jpg" />
 </div>
 
 
@@ -332,7 +417,7 @@ magnet:?xt=urn:btih:5F7DE187D1F5FF9F9E2E205AD4701F2C03DFAFDD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131444.jpg" />
 </div>
 
 
@@ -356,7 +441,7 @@ magnet:?xt=urn:btih:08BD907966CF7CA1CE60FFCE76B3E9DE0ECB4C76
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131446.jpg" />
 </div>
 
 
@@ -380,7 +465,7 @@ magnet:?xt=urn:btih:00A3107A6627D9B734EDC09E759C21321CE17F66
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131447.jpg" />
 </div>
 
 
@@ -404,7 +489,7 @@ Opera GX 105.0.4970.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131448.jpg" />
 </div>
 
 
@@ -430,7 +515,7 @@ magnet:?xt=urn:btih:F07B2F0CEE3D0C91421E2CD9BA7CA198DAC0C160
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131451.jpg" />
 </div>
 
 
@@ -454,7 +539,7 @@ VA - Winter Chillout Lounge 2023 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131452.jpg" />
 </div>
 
 
@@ -481,7 +566,7 @@ magnet:?xt=urn:btih:86949F26E769C937A6D398EA9D944ADF76E828F7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131454.jpg" />
 </div>
 
 
@@ -505,7 +590,7 @@ Tiny Legs Tim - Sing My Title (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131455.jpg" />
 </div>
 
 
@@ -532,7 +617,7 @@ magnet:?xt=urn:btih:50B52D846D40728374D316FED91281DCF96C58EF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131457.jpg" />
 </div>
 
 
@@ -556,7 +641,7 @@ magnet:?xt=urn:btih:3C6A25592C7BBC307DE0B3CE159A4822F8878A6D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131458.jpg" />
 </div>
 
 
@@ -568,80 +653,6 @@ magnet:?xt=urn:btih:3C6A25592C7BBC307DE0B3CE159A4822F8878A6D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E4F458DDF2CA4967EEF3D9B9275F6C27FE25BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682397   (131459) от 07.12.2023
-
-Игорь Евдокимов | Доктор Фальк. Тайна серого монаха (2023) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: доктор Василий Оттович Фальк. Эстет, педант, скептик, совершеннейший зануда – и сыщик поневоле. В дачном поселке на побережье Финского залива, куда он переезжает летом из Петербурга, найдена мертвой пожилая вдова. За день до гибели она жаловалась Фальку, что по ночам в ее саду появляется серый монах – верный предвестник смерти. Но доктор быстро понимает, (   Читать дальше...   )Жанр: Исторические детективыИздательство: ЛитРес: чтецПродолжительность: 05:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF446ECB29D7B029CD22C3492C8F5C44CC9F042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596459   (131460) от 30.12.2012
-
-Бедная Саша (1997) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бедная Саша» - это в первую очередь детектив! «Новая русская» девочка хочет ограбить банк своей «новой русской» мамы, для того, чтобы она перестала быть банкиршей, а стала просто любимой мамочкой.
-«Бедная Саша» - это, конечно же, новогодняя сказка о том, как сильно люди нуждаются в любви: девочке недостает родительского тепла, ее мама неуютно чувствует себя без любимого (   Читать дальше...   )Жанр: Комедия, Приключения, СемейныйРежиссер: Тигран КеосаянПродолжительность: 01:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9103B78B99E03A27EAE1683B35F22FA613F0DA0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682392   (131461) от 07.12.2023
-
-Борис  Кригер | Звёздная система Сириуса (2023) [MP3, Андрей Канаев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига «Звездная система Сириуса» представляет собой увлекательное путешествие в глубины космоса, где Сириус, ярчайшая звезда на нашем ночном небе, играет главную роль. Автор раскрывает сложную природу этой звездной системы, которая состоит из двух звезд разного типа — яркой Сириуса A и тусклого белого карлика Сириуса B.
-В книге используются последние научные (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Неофициальное изданиеПродолжительность: 02:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAA3860424122F997B32BEA35C0C642411AEE5B
 ```
 
 

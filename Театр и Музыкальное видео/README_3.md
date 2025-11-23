@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32237.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BF944C11C8BCFEC6AAFA746D6A65078130EC7B61
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32538.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E109EF77EEE0A45C8CBC1889D7F1372F4F69A968
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32547.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:ABE48158D1C46C5CC19C260028A44142537A79B4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33344.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Depeche mode - Devotional Tour. Live In Barcelona (1993) WEBRip [H.264/1080p] [h
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33487.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33660.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33664.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33669.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33670.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33684.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:77DE3CDDCB3BE0223FA86788EE841F50796E38BD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34058.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:2F0DFA5D599A9E8615D7BB12BE3B72E73F4FBC95
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34083.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0B255A2219350D8F527B76FB3F160BB5D1A8C68C
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34471.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:571761D8737DEDFDAC2E7D3AA1D71B60C4C135A7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34836.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:14805A04C9BC51C0BC68F0146641865273794E32
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34904.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34907.jpg" />
 </div>
 
 

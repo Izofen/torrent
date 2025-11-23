@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tarkan - Лучшие песни (2008) [FLAC|Lossless|image + .cue]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79634.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79641.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80156.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80282.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80509.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80695.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80961.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Savage - Gold (1994) [MP3|320 кб/с]<Pop, Italo Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80997.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81030.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sabrina - Golden. Disco. Hits (2003) [MP3|320 кб/с]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81038.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81043.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81194.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81385.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81386.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81425.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81450.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81478.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81727.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81805.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Московские окна: Песни на все времена (1995)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82022.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82049.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82318.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ ABBA - Gold: Greatest Hits (1993) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82564.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ magnet:?xt=urn:btih:3C1DEE5B22DB310F3136F5964D51BF55773E34D7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82692.jpg" />
 </div>
 
 
@@ -796,7 +796,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82711.jpg" />
 </div>
 
 

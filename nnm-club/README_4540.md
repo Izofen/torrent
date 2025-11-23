@@ -1,3 +1,152 @@
+###  Публикация: 1348912   (140555) от 29.12.2019
+
+Ford против Ferrari / Ford v Ferrari (2019) WEBRip [Line, AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция / 20th Century Fox Film Corporation, Chernin EntertainmentЖанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:32:30Реклама: Присутсвует банер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195718   (140556) от 30.12.2017
+
+Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив.Субтитры: ОтсутствуютПродолжительность: ~ 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854943   (140557) от 30.12.2014
+
+Михаил Костин | Ложные истины (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Хроники Этории».
+На войне юноши взрослеют быстро. Сын простого торговца из деревушки Виллон Дарольд Ллойд и его друзья познают эту страшную аксиому на себе. Жестокая судьба не щадит их — вчерашние друзья оказываются врагами, а враги лишь растут в числе.
+По дорогам Этории мчатся закованные в сталь рыцари, льется кровь, горят города, и мрачные тени (   Читать дальше...   )Жанр: Боевая фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32729143E35A249A0739799EDED8A1E2718F316A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565288   (140558) от 29.12.2019
+
+Разбойник Варавва / Barabba (1961) DVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библейская легенда о воре и убийце Варавве, которого помиловал Понтий Пилат. Он был схвачен римскими властями, приговорён к смерти, заключен под стражу и ожидал исполнения приговора, но, к счастью для него, канун казни совпал с иудейским празднованием Песах, где иудейскому народу по сложившейся традиции было дано право освободить от уголовного наказания (смертной (   Читать дальше...   )Жанр: Драма, ИсторическийРежиссер: Ричард Флайшер / Richard FleischerАктеры: Энтони Куинн, Сильвана Мангано, Артур Кеннеди, Кэти Хурадо, Гарри Эндрюс, Витторио Гассман, Норман Вуленд, Валентина Кортезе, Джек Пэланс, Эрнест БоргнайнПеревод: профессиональный (многоголосый закадровый) - лицензияЯзык субтитров: английские, испанские, французские, немецкие и др.Продолжительность: 02:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBD6658A37DD8D86481EADB02222D592A07D62D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970486   (140560) от 30.12.2015
+
+А. Сидорова (ред.) | 200 кулинарных навыков, которые помогут вам правильно и вкусно готовить (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не получается разделать курицу, замесить тесто необходимой консистенции, приготовить яйцо-пашот? С нашей книгой вы можете забыть о подобных трудностях! Здесь собраны и раскрыты секреты кулинарного мастерства, которые помогут вам усовершенствовать свою технику и превратить любое блюдо в маленький шедевр. Эта книга – не скучная многотомная теория, это практические (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D425FBA05D79FC542F313613F91CF7806FB51C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679170   (140561) от 24.11.2023
+
+Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have the Power [00:02:05]
+02. Xenon Gods [00:04:23]
+03. A Silent Symphony [00:06:23]
+04. Bridge of Death [00:04:48](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520680   (140562) от 29.12.2021
 
 Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
@@ -6,7 +155,7 @@ Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140562.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140563.jpg" />
 </div>
 
 
@@ -54,7 +203,7 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140564.jpg" />
 </div>
 
 
@@ -78,7 +227,7 @@ magnet:?xt=urn:btih:FFCECCBFE726755506400DB4A3EF1A7D26216B36
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140565.jpg" />
 </div>
 
 
@@ -102,7 +251,7 @@ One Click Hide 1.0.0.78 [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140566.jpg" />
 </div>
 
 
@@ -126,7 +275,7 @@ Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140567.jpg" />
 </div>
 
 
@@ -153,7 +302,7 @@ magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140568.jpg" />
 </div>
 
 
@@ -180,7 +329,7 @@ magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140569.jpg" />
 </div>
 
 
@@ -204,7 +353,7 @@ magnet:?xt=urn:btih:EE8D6BE7B2E9DC7DC5171E7A1542207A6BACC015
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140570.jpg" />
 </div>
 
 
@@ -228,7 +377,7 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140571.jpg" />
 </div>
 
 
@@ -252,7 +401,7 @@ Cisdem Video Player 5.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140572.jpg" />
 </div>
 
 
@@ -276,7 +425,7 @@ magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140573.jpg" />
 </div>
 
 
@@ -300,7 +449,7 @@ magnet:?xt=urn:btih:0F2E454E25A7FD84037560D4E5AD49D5803EAB97
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140574.jpg" />
 </div>
 
 
@@ -324,7 +473,7 @@ magnet:?xt=urn:btih:819C32C66A62FB287D96D5D02EABDDBFB3199FC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140576.jpg" />
 </div>
 
 
@@ -348,7 +497,7 @@ magnet:?xt=urn:btih:9DB6695935DAD0B3E492F7ED4A932D0F912D941B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140577.jpg" />
 </div>
 
 
@@ -372,7 +521,7 @@ magnet:?xt=urn:btih:574F3098B0988832062971E485EC1A714B6ACF76
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140578.jpg" />
 </div>
 
 
@@ -398,7 +547,7 @@ magnet:?xt=urn:btih:5B6F5A3DBB19E2037131B292AC7FB98213236A7E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140579.jpg" />
 </div>
 
 
@@ -422,7 +571,7 @@ Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140580.jpg" />
 </div>
 
 
@@ -449,7 +598,7 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140582.jpg" />
 </div>
 
 
@@ -473,7 +622,7 @@ magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140583.jpg" />
 </div>
 
 
@@ -484,165 +633,6 @@ magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA835D144373CE13DEF78DB4BF9B63D4DA203D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088271   (140585) от 30.12.2016
-
-Дмитрий Зыкин | Большая игра. Британия и США против России (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противостояние Британской и Российской империи, Большая игра, как его называют в литературе, до сих пор окутано тайной. Прошло много лет, но даже сейчас многие важнейшие документы той эпохи остаются под грифом «секретно». Какую неудобную правду хранят старые папки в английских архивах? Секретные операции на Кавказе, подрывная работа диссидентов XIX века, планы Англии (   Читать дальше...   )Жанр: Военная история, История, ПолитикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8368BB5EB3ED3E1B86C4496D9566152F5F179071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435665   (140586) от 29.12.2020
-
-Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] [UKR, ENG / EN Sub] [IMAX Edition]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Дублированный (UKR)Язык озвучки: Украинский, английскийСубтитры: английскиеПродолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D0156A1E9BA37EDE1AB904D58E84D1610C2CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272661   (140587) от 29.12.2018
-
-VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Балаган LTD & Филипп Киркоров - Наивная
-02. Таня Буланова - Пела Я Тебе
-03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591174   (140588) от 18.12.2012
-
-VA - 20 Winter Trance Tunes 2012 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140588.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - 20 Winter Trance Tunes 2012 
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:22:46
-Лейбл: Armada Music (ARVA213)
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59D9873E21CA1B8FD66D96137436B043465030D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969985   (140589) от 30.12.2015
-
-Проекты - Pond5 - Ink Slides Movie Trailer And Titles - 58589901 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативный проект для создания фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E22318F4C992CEAF806F9048651D0050E8040E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195769   (140590) от 30.12.2017
-
-Гетьман - Зшита З Попелу Книга (2017) [MP3|320 Kbps] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Брама (07:04)
-02. Сьоме Небо (08:37)
-03. Як тихо на землі! Як тихо... (07:38)
-04. Грудочка Землі (08:09)(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A1020AEB637019E02FC9026DECB8163A9C105E
 ```
 
 

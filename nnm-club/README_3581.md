@@ -1,3 +1,79 @@
+###  Публикация: 1709434   (112788) от 25.03.2024
+
+Necrosanct - Desolate (1993) Reissue, 2013, Abhorrent Productions [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed
+02. Reprisal
+03. Plagued Mind
+04. Epitaph(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23725FF5E6EAD7543E0AB46ECF9B2E55EC719520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709611   (112789) от 25.03.2024
+
+VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 продолжительностью 01:09:33
+1. Charles Webster & Ursula Rucker – Begin Anew (Quivver & Dave Seaman Beginapella)Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709485   (112790) от 25.03.2024
+
+Сергей Гран | Gran Collection (Подкаст) (2017-2022) [MP3, Сергей Гран]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все грани классической рок музыки в авторской программе Сергея Грана - GRAN COLLECTION. От истоков до современности, от Led Zeppelin до Maroon5. В качестве бонуса периодически выходят выпуски программ в рамках актуального хита-парада от музыкального журнала BILLBOARD Автор и ведущий - Сергей ГранЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 96:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B9CDA7E9258A7CD6715D3F3C58FF5EFACA9C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709457   (112791) от 25.03.2024
 
 QOwnNotes 24.3.5 Portable [Multi/Ru]
@@ -6,7 +82,7 @@ QOwnNotes 24.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112791.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112792.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ VA - Driving USA (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112793.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ ANTARCTIC - Культура, Часть 1 (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112794.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ Ocenaudio 3.13.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112795.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ magnet:?xt=urn:btih:D06AE07539ECAB179FF6DFBBFF8E1DB3326397D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112796.jpg" />
 </div>
 
 
@@ -160,7 +236,7 @@ VA - Ultimate Chill Lounge Pleasure Relaxing Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112797.jpg" />
 </div>
 
 
@@ -187,7 +263,7 @@ MotoGP. Этап 02 из 22. Гран-при Португалии. Гонка (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112798.jpg" />
 </div>
 
 
@@ -211,7 +287,7 @@ VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112799.jpg" />
 </div>
 
 
@@ -238,7 +314,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112800.jpg" />
 </div>
 
 
@@ -265,7 +341,7 @@ magnet:?xt=urn:btih:6C814C796BC6229252C1EAE8670721DCD3D03402
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112801.jpg" />
 </div>
 
 
@@ -292,7 +368,7 @@ magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112802.jpg" />
 </div>
 
 
@@ -316,7 +392,7 @@ Oakfarm - Oakfarm (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112803.jpg" />
 </div>
 
 
@@ -343,7 +419,7 @@ Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112804.jpg" />
 </div>
 
 
@@ -370,7 +446,7 @@ Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112805.jpg" />
 </div>
 
 
@@ -397,7 +473,7 @@ Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112806.jpg" />
 </div>
 
 
@@ -424,7 +500,7 @@ Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112807.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112808.jpg" />
 </div>
 
 
@@ -478,7 +554,7 @@ Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112809.jpg" />
 </div>
 
 
@@ -505,7 +581,7 @@ Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112810.jpg" />
 </div>
 
 
@@ -532,7 +608,7 @@ Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112811.jpg" />
 </div>
 
 
@@ -559,7 +635,7 @@ Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112812.jpg" />
 </div>
 
 
@@ -586,7 +662,7 @@ Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112813.jpg" />
 </div>
 
 
@@ -600,87 +676,6 @@ Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982DB0F265E177CE9D8BD85C700A7303A5E6B476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709338   (112814) от 24.03.2024
-
-Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Eterea
-02. Perceiving The Reality
-03. The Stream Of Causality
-04. Mind Renewal(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBFC5D9904FB813DFB40463C49E903176F29086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709389   (112815) от 24.03.2024
-
-Necrosanct - Equal In Death (1990) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arachneurosis
-02. Pretentious Priests
-03. Trial by Fire
-04. Besieged Citadel(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD26DDA04E4CFC04A0DEAD7783836F73FFE46EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709333   (112816) от 24.03.2024
-
-Mindwork - Into The Swirl (2009) [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Swirl
-02. Unrecognized Entity
-03. Inner Consciousness
-04. Essence of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B804CDB8258848F11E5417BDCBA98FB9CBCDC46
 ```
 
 

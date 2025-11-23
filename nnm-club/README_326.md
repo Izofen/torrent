@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8572.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1AA20657BC6C9D503C34B75843A5C50C27511526
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8573.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7385300000E50C991B737ADBB9B5EE75C54C5137
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8574.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:50F6DCF06D4BC4E858856C72B1040D2F16D0E840
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8575.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:CEE31F2AA5CBC5046CAD7276474061A30F083C50
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8576.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8577.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ ScreenToGif 2.42 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8578.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3BFC3491BC5C6CF4C36B30485ECA1328C8593178
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8579.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6DA9DD8188406B5002472C7E2C872F38F0EC7552
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8580.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ opencode 0.13.5 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8581.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:0E8E57F62F8F5BEBD95FB58785A9CD17FC589ED5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8582.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7C93991A49B561F2C65AC0ECDF9FCDE3D13DF19D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8583.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:27DC1994E2FF14B8ED229603FBC93F2279CCD495
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8584.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Purvpn 9.7 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8585.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VidCoder 12.10 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8586.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PotPlayer 250926 (1.7.22622) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8587.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5A9C1CB0A4DD728224186FC6646D2265FB50DFAC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8588.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:5E22B39DD8262635453211CC1EA51A4290B13CC9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8589.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Phantom Squad (2025) [Ru/Multi] (1.3.0.24d5ed) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8590.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8591.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8592.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8593.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:92A296458D7DFEE0DF903ED614836E302A9A5954
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8594.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:C50ED57995B6272F02ECBEEAE5BA6150F991973D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8595.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8C2838E082F3436D20E5894B987553C2A8501EAD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8596.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:BE7EB6CAE40A0E79D05DF270E1182FC92EE1D9CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8597.jpg" />
 </div>
 
 

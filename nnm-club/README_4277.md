@@ -1,3 +1,86 @@
+###  Публикация: 596108   (131532) от 30.12.2012
+
+Николай Раков | Охота на охотников [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война с Империей гаюнов вступает в свою завершающую фазу. Генеральное сражение флотов может начаться в ближайшие несколько дней, но не принесет победы ни одной из сторон.
+ Коварный враг начал свою охоту. Он ждет взаимного уничтожения противоборствующих сил, чтобы, добив ослабевших противников, захватить планеты и Союза, и Империи.
+ Тайна становится известна Шаману, пытающемуся добыть секрет нуль-пространственной транспортировки. Враг не знает, что его замысел раскрыт.
+ Превратить охотников в дичь. Нанести ему неожиданный смертельный удар, не оставив ни одного шанса на успех, - вот задача, поставленная перед собой группой диверсантов Управления специальных операций Вооруженных сил Союза.
+ Нетрацы начинают охоту на охотников, раскрывая секрет врага и используя его в своих целях, применяя при этом знания и методы, свойственные только им, обладающим тайнами волновой энергетики.
+ 1-2 книга Сборник | Антология - Серия "Боевая фантастика" издательства ЛенИздат 273 тома [2005-2012]Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50077569E6A72F20BE673B5C2E5A18F12BE9B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682221   (131533) от 07.12.2023
+
+Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Servant's Diary (01:10)
+02. The Dark Wanderer (05:47)
+03. Tristram (04:56)
+04. The Desert Sands (04:56)(   Читать дальше...   )Жанр: Heavy, Post-Black MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682294   (131535) от 07.12.2023
+
+Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Give You My Love (4:40)
+02. Hey Blues Mama (3:30)
+03. Stovall's Farm (5:26)
+04. County Prison Blues (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682546   (131536) от 07.12.2023
 
 Детский труд / Children Who Labor (1912) WEBRip
@@ -6,7 +89,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131536.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@ magnet:?xt=urn:btih:4C0E05018B5EA70E2AE213FD89DFA3F22E187B7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131537.jpg" />
 </div>
 
 
@@ -56,7 +139,7 @@ magnet:?xt=urn:btih:BD9165BB6F418E586BB618F454E0B841382F0A5F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131539.jpg" />
 </div>
 
 
@@ -80,7 +163,7 @@ Holly Becker, Joanna Copestick | Decorate. 1,000 Design Ideas for Every Room in 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131540.jpg" />
 </div>
 
 
@@ -108,7 +191,7 @@ We Are Perspectives - Heritage (Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131541.jpg" />
 </div>
 
 
@@ -135,7 +218,7 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131542.jpg" />
 </div>
 
 
@@ -168,7 +251,7 @@ magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131544.jpg" />
 </div>
 
 
@@ -192,7 +275,7 @@ Radioactive Man - Waits and Measures (2012) [MP3|320 kbps] < Electronic, Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131545.jpg" />
 </div>
 
 
@@ -225,7 +308,7 @@ magnet:?xt=urn:btih:2388677C06642CAEF846302D864754733D9A2EA1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131546.jpg" />
 </div>
 
 
@@ -249,7 +332,7 @@ Windows 11 16in1 +/- Office 2019 x86 by SmokieBlahBlah 2023.12.02 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131548.jpg" />
 </div>
 
 
@@ -274,7 +357,7 @@ magnet:?xt=urn:btih:F0439140B4F04684C34320F9632DF8A8682B2CF6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131549.jpg" />
 </div>
 
 
@@ -298,7 +381,7 @@ SteamWorld Dig 2 (2017) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131550.jpg" />
 </div>
 
 
@@ -322,7 +405,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131551.jpg" />
 </div>
 
 
@@ -346,7 +429,7 @@ magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131553.jpg" />
 </div>
 
 
@@ -370,7 +453,7 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131555.jpg" />
 </div>
 
 
@@ -395,7 +478,7 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131556.jpg" />
 </div>
 
 
@@ -420,7 +503,7 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131557.jpg" />
 </div>
 
 
@@ -444,7 +527,7 @@ magnet:?xt=urn:btih:648041F7DEA85D4FC01D85F8D47F80C4E9C614A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131559.jpg" />
 </div>
 
 
@@ -468,7 +551,7 @@ magnet:?xt=urn:btih:1346F7A039CA0918866E1BF16F30903A6F6CAF6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131561.jpg" />
 </div>
 
 
@@ -492,7 +575,7 @@ VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131562.jpg" />
 </div>
 
 
@@ -525,7 +608,7 @@ Adobe Illustrator 2024 28.1.0.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131563.jpg" />
 </div>
 
 
@@ -549,7 +632,7 @@ magnet:?xt=urn:btih:3C5EE604CCD90DF93BAB8C0D1AB696CDF4B35E31
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131564.jpg" />
 </div>
 
 
@@ -574,7 +657,7 @@ magnet:?xt=urn:btih:2E8A20F71818922F882FEB1791CBBF4C4C1DC334
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131565.jpg" />
 </div>
 
 
@@ -585,82 +668,6 @@ magnet:?xt=urn:btih:2E8A20F71818922F882FEB1791CBBF4C4C1DC334
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D373FCFCA3F320D1BE2E775EECEA4B3306A371B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682171   (131567) от 06.12.2023
-
-Что происходит потом / What Happens Later (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилла и Билл — бывшие любовники, которые увидят друг друга впервые за много лет, когда они оба окажутся в заснеженном аэропорту во время перелета.Производство: США / Das Films, Prowess PicturesЖанр: мелодрама, комедияРежиссер: Мег РайанАктеры: Мег Райан, Дэвид Духовны, Hal Liggett, Julia D. Borkowski, Faron Ledbetter, Эрик Паркинсон, Will Reed, Kat Silva, Renee WhiteleyПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH), ИспанскиеПродолжительность: 01:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADA5F789201A2AFF567D07C270F81DC53177EA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596160   (131568) от 30.12.2012
-
-Cafe R&B - 4 Альбома (1998 - 2012) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Black & White
-2002 - Blues and all the rest
-2005 - Very Live (2CD)
-2012 - American MusicЖанр: BluesПродолжительность: 04:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682310   (131569) от 06.12.2023
-
-Поколение «Ви» / Gen V (2023) WEB-DLRip [H.265/1080p-LQ] [10-bit] (сезон 1, серии 1-8 из 8) Red Head Sound
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодые супергерои Америки обучаются в специально предназначенном для них колледже, которым управляет компания «Vought». В учениках бурлят гормоны, заставляя их проверять свои физические и моральные пределы, соревнуясь друг с другом за лучшие контракты в лучших городах.Производство: США / Amazon Studios, Kripke Enterprises, Original Film, Point Grey Pictures, Sony Pictures TelevisionЖанр: фантастика, боевик, драма, комедия, приключенияРежиссер: Нельсон Крегг, Стив Бойум, Рэйчел ГолдбергАктеры: Джаз Синклер, Чэнс Пердомо, Лиззи Бродвей, Мэдди Филлипс, Лондон Тор, Дерек Лу, Аса Германн, Шелли Конн, Александр Кэлверт, Майа Джей БастидасПеревод: Дублированный (Red Head Sound 18+)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639EA20463F527EBA57A815D067164C781573C37
 ```
 
 
